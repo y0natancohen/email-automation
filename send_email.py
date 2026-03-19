@@ -22,7 +22,7 @@ def build_email(config, sender):
     body = f"Hello!\n\nThis is your daily email for {date_str}.\n\nThis is a test message to verify the automation works.\n"
 
     msg = MIMEMultipart()
-    msg["From"] = sender
+    msg["From"] = f"Daily Baby <{sender}>"
     msg["To"] = ", ".join(config["recipients"])
     msg["Subject"] = subject
     msg.attach(MIMEText(body, "plain"))
