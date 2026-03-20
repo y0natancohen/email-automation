@@ -15,6 +15,28 @@ Your partner may be noticing increased vaginal discharge, which can include the 
 ## 🍽️ Nutrition Tip
 Hydration is critical right now. Your partner should be drinking at least 10 cups (about 2.5 liters) of water per day. Dehydration can trigger Braxton Hicks contractions and make swelling worse. If plain water gets boring, try adding cucumber slices, mint, or frozen berries. Coconut water is also a great natural source of electrolytes.
 
+**Chilled Cucumber-Melon Gazpacho**
+
+This refreshing no-cook soup is mostly water by volume, making it a sneaky way to boost hydration while also getting a serving of vegetables. Perfect for days when drinking yet another glass of water feels like a chore.
+
+*Ingredients:*
+- 1 large English cucumber, roughly chopped
+- 2 cups honeydew melon chunks
+- 1/2 cup plain Greek yogurt
+- Juice of 1 lime
+- 1 tbsp fresh mint leaves (plus extra for garnish)
+- 1/4 avocado
+- Pinch of salt
+- 2-3 ice cubes
+
+*Directions:*
+1. Add all ingredients to a blender and blend until completely smooth.
+2. Taste and adjust salt and lime juice as needed.
+3. Pour into bowls or large mugs and garnish with a sprig of mint.
+4. Serve immediately, or refrigerate for up to 24 hours (stir before serving).
+
+Cucumber and honeydew melon are both over 90% water, making this gazpacho an excellent hydration tool. The yogurt adds protein and probiotics, and the avocado provides healthy fats that help the body absorb fat-soluble vitamins. A cool, nourishing option for warm days or when appetite is low.
+
 ## 💪 Exercise & Movement
 Wall squats are a gentle, supported way to strengthen the legs and practice an effective labor position. Stand with back against a wall, slide down until thighs are roughly parallel to the floor (or as far as comfortable), hold for 10-20 seconds, then slide back up. Start with 5 repetitions and work up. This builds the endurance needed for squatting positions during labor.
 

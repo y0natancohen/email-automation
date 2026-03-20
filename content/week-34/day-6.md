@@ -24,6 +24,28 @@ Nesting instinct might be kicking in hard. Your partner may suddenly feel the ur
 
 Blend until smooth. This provides a great calcium, magnesium, and potassium boost. The tahini adds healthy fats and a nutty flavor. Takes 2 minutes and counts as a snack and drink in one.
 
+**Dark Chocolate Almond Energy Bites (No-Bake)**
+
+Your baby's CNS is in overdrive this week, and mom needs sustained energy to keep up. These no-bake bites are rich in magnesium (from almonds and dark chocolate) and provide a quick pick-me-up without a sugar crash.
+
+*Ingredients:*
+- 1 cup almond butter
+- 1/2 cup rolled oats
+- 1/3 cup dark chocolate chips (70% cacao or higher)
+- 2 tbsp ground flaxseed
+- 2 tbsp maple syrup
+- 1/4 cup unsweetened shredded coconut
+- Pinch of sea salt
+
+*Directions:*
+1. Combine almond butter, oats, ground flaxseed, maple syrup, and salt in a mixing bowl. Stir until well combined.
+2. Fold in the dark chocolate chips and shredded coconut.
+3. Refrigerate the mixture for 15 minutes so it firms up slightly.
+4. Roll into 14-16 small balls using damp hands.
+5. Store in an airtight container in the fridge for up to a week, or freeze for longer.
+
+Almonds and dark chocolate are two of the best dietary sources of magnesium, which helps reduce leg cramps, supports restful sleep, and aids baby's nervous system development. Keep a few in your hospital bag for snacking during labor.
+
 ## 💪 Exercise & Movement
 Encourage your partner to practice labor positions today: hands and knees, slow dancing (leaning on you for support), sitting backward on a chair, and gentle bouncing on a birth ball. These positions can help baby move into an optimal position for birth and give her a sense of what feels comfortable. Practice them together — you'll be her support during labor.
 

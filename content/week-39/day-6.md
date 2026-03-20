@@ -15,6 +15,33 @@ Everything aches. That's the honest summary. Your partner's joints are loosened 
 ## 🍽️ Nutrition Tip
 Stock up on postpartum-friendly freezer meals this weekend. Here's an easy one: **Chicken and Vegetable Stir-Fry Freezer Packs.** Slice chicken breast, bell peppers, snap peas, broccoli, and carrots. Divide into freezer bags with a splash of soy sauce, sesame oil, ginger, and garlic. Freeze flat. When you need a meal, dump a bag into a hot pan, cook for 10-12 minutes, and serve over rice. Future-you will be deeply grateful.
 
+**One-Pot Creamy Tomato Tortellini Soup**
+
+When you need pure comfort in a bowl — the kind that warms you from the inside and feels like a hug — this is it. One pot, minimal cleanup, maximum soul-nourishing goodness.
+
+*Ingredients:*
+- 1 tbsp olive oil
+- 3 cloves garlic, minced
+- 1 can (28 oz) crushed tomatoes
+- 3 cups vegetable or chicken broth
+- 1 package (9 oz) refrigerated cheese tortellini
+- 2 cups fresh baby spinach
+- 1/2 cup heavy cream or full-fat coconut milk
+- 1 tsp dried basil
+- 1/2 tsp dried oregano
+- Salt, pepper, and red pepper flakes to taste
+- Grated Parmesan for serving
+
+*Directions:*
+1. Heat olive oil in a large pot over medium heat. Add garlic and cook for 30 seconds until fragrant.
+2. Add crushed tomatoes, broth, basil, oregano, salt, and pepper. Bring to a simmer.
+3. Add tortellini and cook according to package directions (usually 3-5 minutes).
+4. Stir in spinach and let it wilt, about 1 minute.
+5. Remove from heat and stir in cream. Taste and adjust seasoning.
+6. Serve in big bowls topped with Parmesan and a pinch of red pepper flakes.
+
+This soup takes about 20 minutes from start to finish and delivers comfort, calcium, protein, and iron. It's the kind of easy, warming meal that's perfect for the final days of waiting — when you want something delicious but have zero energy for complicated cooking.
+
 ## 💪 Exercise & Movement
 Today, try a simple breathing exercise together. Sit comfortably, close your eyes, and practice the slow breathing technique used during labor: inhale slowly through the nose for 4 counts, exhale through the mouth for 6 counts. The longer exhale activates the parasympathetic nervous system and helps the body relax. Practice this for 5 minutes together. During labor, this simple technique can be incredibly powerful for managing pain and anxiety.
 

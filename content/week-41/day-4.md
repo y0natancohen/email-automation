@@ -15,6 +15,33 @@ At this point, your partner might be experiencing a range of physical symptoms t
 ## 🍽️ Nutrition Tip
 **15-Minute Garlic Lemon Pasta:** Cook pasta according to package directions. While it boils, warm olive oil in a pan with sliced garlic until fragrant (don't burn it!). Toss drained pasta with the garlic oil, a generous squeeze of lemon juice, a handful of baby spinach (it wilts right in), red pepper flakes, and grated parmesan. Season with salt and pepper. This is the kind of meal you can make at midnight when neither of you can sleep and you need comfort food. Quick, delicious, and uses pantry staples you probably already have.
 
+**Spicy Pineapple & Black Bean Tacos (The "Let's Get This Party Started" Meal)**
+
+Will spicy food induce labor? Probably not — but it won't hurt, and at 41+ weeks, it's fun to try. Pineapple contains bromelain, an enzyme that some believe helps soften the cervix (the evidence is thin, but the tacos are delicious).
+
+*Ingredients:*
+- 1 can (15 oz) black beans, rinsed and drained
+- 1 cup diced fresh pineapple
+- 1 small jalape\u00f1o, seeded and minced (adjust to your heat tolerance)
+- 1/4 cup red onion, finely diced
+- Juice of 1 lime
+- 1/4 cup fresh cilantro, chopped
+- 1/2 tsp cumin
+- 1/4 tsp chili powder
+- Hot sauce to taste
+- 6 small corn or flour tortillas
+- 1/2 avocado, sliced
+- Crumbled queso fresco or feta (optional)
+
+*Directions:*
+1. In a bowl, combine pineapple, jalape\u00f1o, red onion, lime juice, and cilantro to make a salsa. Set aside.
+2. In a small pot, warm black beans with cumin, chili powder, and a splash of water. Mash slightly with a fork for texture.
+3. Warm tortillas in a dry skillet or directly over a gas flame for a few seconds per side.
+4. Spoon seasoned black beans onto each tortilla, top with pineapple salsa, avocado slices, and cheese if using.
+5. Finish with a shake of hot sauce — as mild or fiery as you dare.
+
+These tacos are a fun, flavorful way to break the monotony of waiting. The black beans provide protein and iron, the pineapple adds vitamin C and that maybe-magic bromelain, and the spice gives you both something to laugh about. Worst case: a great dinner. Best case: labor starts at midnight.
+
 ## 💪 Exercise & Movement
 If your partner is feeling restless and uncomfortable, a warm (not hot) bath can work wonders. The buoyancy relieves the weight on her joints and pelvis, the warmth relaxes tight muscles, and the quiet can calm an anxious mind. Add some Epsom salts for magnesium absorption and sore muscle relief. She can stay in for 20-30 minutes as long as the water isn't too hot. It won't induce labor, but it can make the waiting significantly more bearable.
 

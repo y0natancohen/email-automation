@@ -18,6 +18,27 @@ Your partner might be oscillating between intense impatience and genuine fear, a
 ## 🍽️ Nutrition Tip
 **Labor Day Energy Bites:** Mix 1 cup oats, 1/2 cup peanut butter, 1/3 cup honey, 1/2 cup dark chocolate chips, 1/4 cup ground flaxseed, and 1 tsp vanilla. Roll into balls and refrigerate. These are perfect for early labor snacking, hospital bag treats, and postpartum fuel. High in protein, healthy fats, and slow-release carbs — everything you both need for energy. Make a double batch and keep some in the freezer.
 
+**Raspberry Leaf Tea & Date Smoothie (Labor-Prep Power Drink)**
+
+Raspberry leaf tea has been used by midwives for centuries to help tone the uterus and prepare for labor. Combined with dates (linked to easier labor in studies), this smoothie is a delicious way to get both in one glass.
+
+*Ingredients:*
+- 1 cup brewed raspberry leaf tea, cooled
+- 4 Medjool dates, pitted
+- 1/2 cup frozen mango chunks
+- 1/2 cup plain Greek yogurt
+- 1 tbsp ground flaxseed
+- 1/2 tsp cinnamon
+- Handful of ice
+
+*Directions:*
+1. Brew raspberry leaf tea (1 tea bag in 1 cup boiling water for 10 minutes). Let it cool to room temperature, or make it the night before and refrigerate.
+2. Add cooled tea, dates, mango, yogurt, flaxseed, cinnamon, and ice to a blender.
+3. Blend on high until completely smooth — dates may take an extra 15 seconds to break down fully.
+4. Pour into a tall glass and sip slowly.
+
+Raspberry leaf tea is caffeine-free and rich in minerals like iron and calcium. The dates provide natural sweetness plus the labor-prep benefits, while the yogurt and flaxseed add protein and omega-3s. A nourishing ritual for due date week.
+
 ## 💪 Exercise & Movement
 Walking remains the best thing your partner can do right now. It helps baby engage deeper in the pelvis, and gravity is a natural ally. Aim for short, easy walks — even 10 minutes around the block counts. If she feels up to it, walking up stairs (slowly, with a handrail) can help open the pelvis even more. The key is gentle, consistent movement, not intensity.
 

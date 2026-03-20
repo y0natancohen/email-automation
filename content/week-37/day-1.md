@@ -18,6 +18,30 @@ Braxton Hicks contractions might be happening several times a day now. Your part
 ## 🍽️ Nutrition Tip
 Keep the date-eating going! At this stage, easily digestible, energy-rich foods are key. Think of food as fuel for the marathon ahead. Complex carbs (sweet potatoes, whole grain toast, quinoa), lean proteins, and healthy fats should be the foundation of every meal. If appetite is decreasing due to stomach compression, smoothies are a great way to pack in nutrition in liquid form.
 
+**Date & Walnut Stuffed Baked Apples**
+
+Research suggests that eating 6 dates per day from week 36 onward may help with cervical ripening and reduce the need for labor induction. This warm, comforting dessert-meets-snack makes eating those daily dates a treat rather than a task.
+
+*Ingredients:*
+- 2 large apples (Honeycrisp or Gala work well)
+- 6 Medjool dates, pitted and chopped
+- 1/4 cup chopped walnuts
+- 1 tbsp coconut oil, softened
+- 1/2 tsp cinnamon
+- 1/4 tsp ground ginger
+- 2 tbsp water
+- Drizzle of honey (optional)
+
+*Directions:*
+1. Preheat oven to 350°F (175°C).
+2. Core the apples, leaving the bottom intact to create a well.
+3. Mix chopped dates, walnuts, coconut oil, cinnamon, and ginger in a small bowl.
+4. Stuff each apple generously with the date-walnut mixture, pressing it in firmly.
+5. Place apples in a small baking dish, add water to the bottom, and cover with foil.
+6. Bake 35-40 minutes until apples are tender. Drizzle with honey if desired.
+
+Each apple delivers 3 dates' worth of labor-prep goodness, plus the walnuts add protein and omega-3s. The warm spices aid digestion, and the whole thing tastes like autumn in a bowl. Make both apples — one for each of you.
+
 ## 💪 Exercise & Movement
 Walking remains king. If your partner is feeling up to it, a 20-minute walk each day can help maintain stamina for labor, encourage baby to move down, and boost mood. Walking stairs sideways (one step at a time, holding the railing) is a technique some midwives suggest for encouraging baby into an optimal position — but only if it feels comfortable.
 

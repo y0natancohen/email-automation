@@ -18,6 +18,35 @@ Your partner might notice her bump is becoming more obviously "pregnant" rather 
 ## 🍽️ Nutrition Tip
 Vitamin D is essential for baby's bone development and immune system, and many people don't get enough of it. Best sources: sunlight (15-20 minutes of sun exposure), fortified milk or orange juice, egg yolks, and fatty fish like salmon. If your partner is indoors a lot or it's winter, talk to the OB about a vitamin D supplement — many prenatals don't contain enough.
 
+**Turkey and Quinoa Stuffed Zucchini Boats**
+
+Baby's facial muscles are firing up and toenails are forming — both need plenty of protein. This dish is packed with complete protein from two sources to fuel all that rapid growth.
+
+*Ingredients:*
+- 4 medium zucchini, halved lengthwise
+- 1 lb ground turkey
+- 1/2 cup quinoa, cooked (about 1 cup cooked)
+- 1 small onion, diced
+- 2 cloves garlic, minced
+- 1 cup marinara sauce
+- 1/2 cup shredded mozzarella cheese
+- 1 tbsp olive oil
+- 1 tsp Italian seasoning
+- Salt and pepper to taste
+- Fresh basil for garnish
+
+*Directions:*
+1. Preheat oven to 375°F (190°C). Scoop out the center of each zucchini half with a spoon to create a boat, reserving the scooped flesh.
+2. Place the zucchini boats in a baking dish and brush lightly with olive oil.
+3. Heat olive oil in a skillet over medium heat. Cook onion and garlic for 3 minutes, then add ground turkey. Cook until browned, breaking it apart, about 6 minutes.
+4. Chop the reserved zucchini flesh and add it to the skillet along with cooked quinoa, half the marinara sauce, and Italian seasoning. Stir to combine.
+5. Spoon the turkey-quinoa mixture into each zucchini boat, packing it in generously.
+6. Pour the remaining marinara sauce over the top and sprinkle with mozzarella.
+7. Cover with foil and bake for 25 minutes. Remove foil and bake another 10 minutes until cheese is bubbly and golden.
+8. Garnish with fresh basil before serving.
+
+Turkey provides lean, high-quality protein plus iron, while quinoa adds all nine essential amino acids — making this a complete protein meal that supports the explosive muscle and tissue development happening at week 16.
+
 ## 💪 Exercise & Movement
 **Wall Push-Ups** — a great way to maintain upper body strength without lying on the floor. Stand about arm's length from a wall, place palms flat on the wall at shoulder height, and do push-ups against the wall. Start with 2 sets of 10. This strengthens the chest and arms, which will come in very handy when you're carrying a baby (and eventually a toddler!) all day long.
 

@@ -15,6 +15,31 @@ If the GBS test hasn't happened yet, it's likely this week. The swab test itself
 ## 🍽️ Nutrition Tip
 Keep stocking the freezer! Here's a simple addition: freeze individual portions of cooked rice and grains. Cooked brown rice, quinoa, or pasta can be frozen in zip-lock bags (flatten them for easy stacking) and reheated in minutes. Having a grain base ready means any meal is just a protein and vegetable away. Also freeze fresh herbs in olive oil using ice cube trays — instant flavor for any dish.
 
+**Herb-Crusted Turkey Meatballs with Spinach (High-Protein Freezer-Friendly)**
+
+At 37 weeks, baby's brain is gaining 30% of its weight in these final weeks, and mom needs plenty of protein to sustain that growth. These meatballs are easy to batch-cook and freeze beautifully for postpartum.
+
+*Ingredients:*
+- 1 lb ground turkey
+- 1 cup finely chopped fresh spinach
+- 1/3 cup breadcrumbs (regular or whole wheat)
+- 1 egg
+- 2 cloves garlic, minced
+- 2 tbsp fresh parsley, chopped (or 1 tsp dried)
+- 1 tsp dried oregano
+- 1/2 tsp salt
+- 1/4 tsp black pepper
+- 1 tbsp olive oil
+
+*Directions:*
+1. Preheat oven to 400°F (200°C) and line a baking sheet with parchment paper.
+2. Combine all ingredients except olive oil in a large bowl. Mix with your hands until just combined — don't overmix.
+3. Roll into 20-24 meatballs (about 1.5 inches each) and place on the baking sheet.
+4. Drizzle with olive oil and bake 18-22 minutes until golden and cooked through (internal temp 165°F / 74°C).
+5. Let cool completely, then freeze on the baking sheet before transferring to a freezer bag. Reheat in sauce, in the microwave, or in the oven.
+
+Each meatball delivers about 5 grams of protein, plus the spinach sneaks in iron and folate. Serve over pasta, in a pita, on top of rice, or just eat them straight — they're that good. A batch takes 30 minutes and gives you meals for days.
+
 ## 💪 Exercise & Movement
 Practice the labor breathing techniques one more time:
 - **Slow breathing** (for early labor): In through nose for 4 counts, out through mouth for 6 counts

@@ -18,6 +18,32 @@ Your partner might notice her center of gravity has shifted enough that she feel
 ## 🍽️ Nutrition Tip
 Zinc supports immune function and cell growth, and needs increase during pregnancy. Great sources: pumpkin seeds, beef, chickpeas, cashews, and fortified cereals. A **Quick Zinc-Packed Snack**: trail mix made with pumpkin seeds, cashews, dark chocolate chips, and dried cranberries. Mix a big batch and keep portions in small bags for easy grabbing throughout the week.
 
+**Avocado and Chickpea Smash on Sourdough**
+
+Baby is laying down brown fat this week — the kind that keeps newborns warm after birth. Healthy fats are the building blocks, and this recipe is loaded with them.
+
+*Ingredients:*
+- 1 ripe avocado
+- 1 can (14 oz) chickpeas, drained and rinsed
+- 2 slices sourdough bread, toasted
+- 1 tbsp extra-virgin olive oil
+- 1 tbsp lemon juice
+- 1/4 tsp red pepper flakes
+- 1/2 tsp garlic powder
+- Salt and pepper to taste
+- 2 tbsp hemp seeds
+- 4 cherry tomatoes, halved
+- Handful of microgreens or sprouts
+
+*Directions:*
+1. In a bowl, roughly mash the chickpeas with a fork — leave some chunks for texture.
+2. Add the avocado and mash it into the chickpeas until combined but still chunky.
+3. Stir in olive oil, lemon juice, garlic powder, red pepper flakes, salt, and pepper.
+4. Pile the avocado-chickpea mixture generously onto toasted sourdough slices.
+5. Top with halved cherry tomatoes, hemp seeds, and microgreens.
+
+Avocado delivers heart-healthy monounsaturated fats, hemp seeds add omega-3 and omega-6 fatty acids, and chickpeas provide protein and fiber. This combination of healthy fats supports the brown fat deposits your baby is building this week to prepare for temperature regulation after birth.
+
 ## 💪 Exercise & Movement
 **Standing Pelvic Tilts** — stand with your back against a wall, feet shoulder-width apart. Flatten your lower back against the wall by gently tucking the pelvis. Hold for 5 seconds, release. Repeat 10 times. This strengthens the core, relieves lower back pressure, and helps with posture as the belly gets bigger. Your partner can do these throughout the day whenever she needs a quick back-relief break.
 

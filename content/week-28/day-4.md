@@ -24,6 +24,30 @@ Perfect for keeping in the fridge for quick energy:
 
 Mix everything together, roll into balls, refrigerate for 30 minutes. Makes about 20 bites. They're packed with protein, fiber, and healthy fats — perfect for combating that third-trimester energy dip.
 
+**Sesame-Ginger Tofu and Bok Choy Bowl**
+Your baby's bones are hardening and need plenty of calcium. Tofu made with calcium sulfate is one of the best non-dairy calcium sources, and bok choy adds even more — plus this dish is loaded with protein for your baby's growing muscles.
+
+*Ingredients:*
+- 1 block (14 oz) firm tofu, pressed and cubed
+- 3 heads baby bok choy, halved lengthwise
+- 2 tablespoons sesame oil
+- 2 tablespoons soy sauce (or tamari)
+- 1 tablespoon rice vinegar
+- 1 tablespoon maple syrup or honey
+- 1-inch piece fresh ginger, grated
+- 2 cloves garlic, minced
+- 1 tablespoon sesame seeds
+- Cooked jasmine rice for serving
+
+*Directions:*
+1. Whisk together soy sauce, rice vinegar, maple syrup, ginger, and garlic in a small bowl to make the sauce.
+2. Heat 1 tablespoon sesame oil in a large skillet over medium-high heat. Add tofu cubes and cook 5-7 minutes, turning occasionally, until golden on all sides.
+3. Push tofu to one side, add remaining sesame oil, and place bok choy cut-side down. Cook 2-3 minutes until lightly charred, then flip.
+4. Pour sauce over everything. Toss gently and cook 1-2 minutes until bok choy is tender-crisp.
+5. Serve over jasmine rice and sprinkle with sesame seeds.
+
+Half a block of calcium-set tofu provides about 50% of daily calcium needs, and bok choy is one of the few greens whose calcium is highly bioavailable — your baby's bones will thank you.
+
 ## 💪 Exercise & Movement
 A gentle prenatal yoga sequence for today: focus on hip-opening poses, which help prepare the pelvis for birth. Try:
 - Butterfly pose (sitting, soles of feet together, gently pressing knees toward the floor)

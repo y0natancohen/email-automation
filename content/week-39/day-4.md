@@ -15,6 +15,29 @@ Cervical checks may have started at prenatal appointments. Your partner's doctor
 ## 🍽️ Nutrition Tip
 **Quick Red Lentil Soup for the Freezer:** Sauté diced onion and garlic in olive oil. Add 1.5 cups red lentils, a can of diced tomatoes, 4 cups broth, cumin, turmeric, and salt. Simmer 20 minutes until lentils are soft. Blend if you like it smooth. This makes a big batch — freeze in single-serving containers. When baby arrives and cooking feels impossible, you'll thank yourself for this one. Red lentils are packed with iron, protein, and fiber — exactly what a recovering mom needs.
 
+**Peanut Butter Date Energy Bars (No-Bake, 10 Minutes)**
+
+Labor is a marathon — literally hours of intense physical work. These bars pack complex carbs, protein, and natural sugars for sustained energy. Stash a few in the hospital bag.
+
+*Ingredients:*
+- 1 cup Medjool dates, pitted (about 10-12)
+- 1/2 cup natural peanut butter
+- 1/3 cup rolled oats
+- 1/4 cup crispy rice cereal
+- 2 tbsp hemp seeds
+- 2 tbsp mini dark chocolate chips
+- 1 tbsp coconut oil, melted
+- Pinch of sea salt
+
+*Directions:*
+1. Pulse dates in a food processor until they form a sticky paste (about 30 seconds).
+2. Add peanut butter and coconut oil and process until combined.
+3. Transfer to a bowl and fold in oats, rice cereal, hemp seeds, chocolate chips, and salt.
+4. Press the mixture firmly into a parchment-lined 8x8 baking pan.
+5. Refrigerate at least 1 hour, then cut into 10 bars. Store in the fridge for up to 2 weeks or freeze individually wrapped.
+
+Dates provide fast-acting natural sugar plus fiber to prevent a crash, while peanut butter and hemp seeds deliver protein and healthy fats. These bars are designed for the intense energy demands of labor — eat one during early contractions and you'll have fuel for hours.
+
 ## 💪 Exercise & Movement
 Perineal massage is something your partner can start (or continue) this week. While not the most glamorous topic, research shows it can reduce the risk of tearing during delivery, especially for first-time moms. Using a natural oil (coconut or olive oil work well), the massage involves gentle pressure on the lower vaginal wall for about 5 minutes, a few times a week. Your partner's doctor or midwife can explain the technique if she's interested.
 

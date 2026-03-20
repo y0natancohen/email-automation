@@ -24,6 +24,29 @@ If baby has dropped, your partner might be experiencing what's lovingly called t
 
 Beat eggs, mix in vegetables, cheese, and seasoning. Pour into a greased muffin tin. Bake at 375°F (190°C) for 18-20 minutes. Cool completely, then freeze in a zip-lock bag. Microwave 2-3 for a quick, protein-packed breakfast in the first weeks with baby. These are perfect for one-handed eating while holding a newborn.
 
+**Banana-Coconut Potassium Pancake Bites (Makes 18 Mini Pancakes)**
+
+When large meals feel impossible because baby is taking up all the room, these silver-dollar-sized pancakes are gentle on the stomach and rich in potassium to help with muscle cramps and fluid balance.
+
+*Ingredients:*
+- 1 ripe banana, mashed
+- 2 eggs
+- 1/4 cup coconut flour
+- 1/4 cup unsweetened coconut milk
+- 1 tbsp coconut oil (melted, plus extra for the pan)
+- 1/2 tsp vanilla extract
+- 1/4 tsp baking powder
+- Pinch of salt
+
+*Directions:*
+1. Mash the banana in a bowl, then whisk in the eggs, coconut milk, melted coconut oil, and vanilla.
+2. Add coconut flour, baking powder, and salt. Stir until just combined (batter will be thick).
+3. Heat a non-stick pan over medium-low heat and grease lightly with coconut oil.
+4. Drop tablespoon-sized dollops of batter onto the pan. Cook 2-3 minutes per side until golden.
+5. Serve warm with a drizzle of honey or a spoonful of nut butter. Extras freeze well — reheat in the toaster.
+
+Bananas and coconut are both naturally rich in potassium, and the eggs provide a solid protein base. At mini size, these are easy to nibble throughout the day without feeling overly full — perfect for the "baby is squishing my stomach" phase.
+
 ## 💪 Exercise & Movement
 Partner-assisted stretches: stand behind your partner and gently press on her lower back while she leans forward slightly. The counter-pressure can relieve a tremendous amount of lower back tension. This is also a technique that many women find helpful during labor contractions. Practice it now so it's natural when you need it.
 

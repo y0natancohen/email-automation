@@ -25,6 +25,32 @@ Your partner might be feeling "over it" — and that's completely valid. The phy
 
 Heat broth with ginger and garlic for 10 minutes. Remove from heat, stir in miso paste (don't boil the miso — it kills the beneficial bacteria). Add spinach and lemon. Sip from a mug. This broth is warming, healing, and packed with nutrients for recovery. Make a big batch and freeze in portions.
 
+**Freezer-Friendly Baked Ziti (Serves 6-8)**
+
+This classic comfort meal is the ultimate freezer hero. Make a full pan now, slice it into portions, and freeze. When postpartum hits and someone asks "what can I do to help?" — point them to the oven and this dish.
+
+*Ingredients:*
+- 1 lb ziti or penne pasta
+- 2 cups ricotta cheese
+- 2 cups shredded mozzarella (divided)
+- 1/2 cup grated Parmesan
+- 1 jar (24 oz) marinara sauce
+- 2 cups fresh spinach, roughly chopped
+- 1 egg
+- 1 tsp garlic powder
+- 1 tsp dried basil
+- Salt and pepper to taste
+
+*Directions:*
+1. Cook pasta to just under al dente (it will cook more in the oven). Drain and set aside.
+2. In a large bowl, mix ricotta, egg, 1 cup mozzarella, Parmesan, garlic powder, basil, salt, and pepper.
+3. Add the cooked pasta and chopped spinach to the cheese mixture. Stir to combine.
+4. Spread a thin layer of marinara on the bottom of a 9x13 baking dish. Add the pasta mixture, then top with remaining marinara and remaining mozzarella.
+5. **To eat now:** Cover with foil and bake at 375°F (190°C) for 25 minutes. Uncover and bake another 10 minutes until bubbly and golden.
+6. **To freeze:** Cover tightly with plastic wrap then foil (unbaked). Freeze for up to 3 months. Bake from frozen at 375°F for 60-70 minutes (remove plastic wrap first, keep foil on for the first 45 minutes).
+
+This dish delivers protein, calcium, and iron from the spinach — all crucial for postpartum recovery. It's the kind of meal that makes you feel taken care of, even when you're running on two hours of sleep.
+
 ## 💪 Exercise & Movement
 Restorative rest today. A warm bath (not hot), gentle stretching, deep breathing, and as much sleep as possible. If your partner wants to walk, keep it short and close to home. The body is doing its final preparations, and rest supports that process. Think of today as carb-loading before a marathon — except the carbs are sleep and calm.
 

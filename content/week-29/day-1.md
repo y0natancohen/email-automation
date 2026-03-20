@@ -28,6 +28,35 @@ Your baby can now taste differences in the amniotic fluid, so let's make it deli
 
 Fresh, light, and packed with protein, fiber, and healthy fats.
 
+**Baked Egg Shakshuka with Feta and Herbs**
+Your baby's bones are fully formed but still soft this week, and calcium plus vitamin D are critical for helping them strengthen. Eggs are one of the few food sources of vitamin D, and the feta adds a calcium boost.
+
+*Ingredients:*
+- 1 can (28 oz) crushed tomatoes
+- 1 onion, diced
+- 1 red bell pepper, diced
+- 3 cloves garlic, minced
+- 6 large eggs
+- 1/3 cup crumbled feta cheese
+- 2 tablespoons olive oil
+- 1 teaspoon cumin
+- 1 teaspoon paprika
+- 1/2 teaspoon chili flakes (optional)
+- Fresh cilantro or parsley for garnish
+- Crusty bread or challah for dipping
+
+*Directions:*
+1. Preheat oven to 375°F/190°C.
+2. Heat olive oil in an oven-safe skillet over medium heat. Saute onion and bell pepper for 5 minutes until softened.
+3. Add garlic, cumin, paprika, and chili flakes. Cook 1 minute until fragrant.
+4. Pour in crushed tomatoes, stir, and simmer for 10 minutes until thickened slightly.
+5. Make 6 small wells in the sauce and crack an egg into each one.
+6. Scatter feta cheese around the eggs.
+7. Transfer to the oven and bake 10-12 minutes until egg whites are set but yolks are still slightly runny.
+8. Garnish with fresh herbs and serve with bread for dipping.
+
+Each egg provides about 6g of protein and one of the few natural food sources of vitamin D, while the feta delivers calcium — both essential for your baby's developing skeletal system.
+
 ## 💪 Exercise & Movement
 As the belly grows, balance becomes more important. Try this simple balance exercise:
 - Stand near a wall or countertop (for support if needed)

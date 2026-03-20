@@ -18,6 +18,32 @@ Your partner may notice that her belly has "popped" even more this week — the 
 ## 🍽️ Nutrition Tip
 Vitamin C is essential for iron absorption and for your partner's immune system. A simple snack: red bell pepper strips with hummus. Red bell peppers have almost three times more vitamin C than oranges! Pair this with iron-rich foods at meals to maximize absorption. Other great vitamin C sources: strawberries, kiwi, broccoli, and citrus fruits.
 
+**Broccoli and White Bean Baked Frittata**
+Your baby's bones are beginning to harden this week, and calcium is essential for that process. This protein-packed frittata combines eggs, white beans, and broccoli — all excellent sources of calcium and protein.
+
+*Ingredients:*
+- 8 large eggs
+- 1/2 cup milk (dairy or fortified plant milk)
+- 1 can (15 oz) white beans (cannellini), drained and rinsed
+- 2 cups broccoli florets, chopped small
+- 1/2 cup shredded mozzarella cheese
+- 1/4 cup sun-dried tomatoes, chopped
+- 2 tablespoons olive oil
+- 1/2 teaspoon garlic powder
+- Salt and pepper to taste
+- Fresh basil for garnish
+
+*Directions:*
+1. Preheat oven to 375°F/190°C.
+2. Heat olive oil in an oven-safe skillet over medium heat. Saute broccoli for 3-4 minutes until bright green and slightly tender.
+3. Add white beans and sun-dried tomatoes, stirring to combine.
+4. Whisk eggs with milk, garlic powder, salt, and pepper. Pour over the vegetables.
+5. Sprinkle mozzarella on top. Cook on the stovetop for 2 minutes until edges begin to set.
+6. Transfer to the oven and bake for 18-20 minutes until puffed and golden.
+7. Let cool for 5 minutes, slice, and garnish with fresh basil.
+
+Each serving delivers roughly 20g of protein and a significant dose of calcium from the cheese, beans, and broccoli — exactly what your baby's hardening bones need right now.
+
 ## 💪 Exercise & Movement
 If your partner enjoys swimming, the third trimester is the best time to take advantage of it. The buoyancy of water relieves pressure on joints and the spine, reduces swelling, and provides a full-body workout without the impact. Even just floating or gentle laps can feel incredible. Many community pools offer aqua-natal classes specifically designed for pregnant women.
 

@@ -10,7 +10,7 @@ day: 1
 Welcome to week 13 — the official start of the second trimester! Your baby is now the size of a peach (~2.9 inches, 7.4 cm) and weighs about 23 grams. Here's what's happening this monumental week:
 - Vocal cords are forming in the larynx
 - Fingerprints are beginning to develop — your baby is getting a unique identity
-- Facial expressions are emerging: your baby can squint and make mouth movements
+- Mouth movements are beginning — the jaw muscles are developing and practicing
 - The intestines are now fully inside the abdomen
 - The placenta has taken over hormone production entirely
 - Energy often starts returning for your partner

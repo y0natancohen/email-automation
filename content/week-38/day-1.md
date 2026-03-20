@@ -18,6 +18,33 @@ Your partner might be experiencing what's called "lightening" if baby has droppe
 ## 🍽️ Nutrition Tip
 This is the week to make sure the freezer is fully stocked. If you haven't finished your meal prep, prioritize it this week. At minimum, freeze: 5-7 main meals (soups, stews, casseroles), a batch of muffins or energy balls for snacking, and portions of cooked grains. Label everything with the name and date. Your future sleep-deprived selves will be profoundly grateful.
 
+**Freezer-Ready Stuffed Bell Peppers (Makes 6)**
+
+These stuffed peppers freeze and reheat beautifully — pop one in the oven when you're too exhausted to cook and you'll have a complete, balanced meal in 30 minutes.
+
+*Ingredients:*
+- 6 bell peppers (any color), tops cut off and seeds removed
+- 1 lb ground beef or turkey
+- 1 cup cooked brown rice
+- 1 can (15 oz) diced tomatoes, drained (reserve liquid)
+- 1 cup shredded mozzarella cheese
+- 1/2 diced onion
+- 2 cloves garlic, minced
+- 1 tsp Italian seasoning
+- Salt and pepper to taste
+- 1 tbsp olive oil
+
+*Directions:*
+1. Preheat oven to 375°F (190°C).
+2. Heat olive oil in a skillet. Sauté onion and garlic until soft, then add ground meat and cook until browned. Drain fat if needed.
+3. Stir in cooked rice, drained tomatoes, Italian seasoning, salt, pepper, and half the cheese.
+4. Stuff each pepper with the mixture, packing it in firmly.
+5. Place peppers upright in a baking dish, pour reserved tomato liquid around the base, and top with remaining cheese.
+6. **To eat now:** Cover with foil and bake 35-40 minutes. Uncover for the last 5 minutes to brown the cheese.
+7. **To freeze:** Let stuffed peppers cool completely, wrap each individually in plastic wrap, then foil, and freeze. Reheat from frozen at 375°F for 45-50 minutes.
+
+Each pepper is a self-contained meal with protein, complex carbs, vegetables, and calcium from the cheese. They're satisfying, comforting, and require zero decision-making at 2 AM — just unwrap and heat.
+
 ## 💪 Exercise & Movement
 At 38 weeks, listen to the body. If your partner feels energetic, a walk is great. If she's exhausted, rest is the priority. Birth ball sitting, gentle hip circles, and pelvic floor exercises remain beneficial. The most important physical preparation now is rest — conserving energy for labor. Think of it like a rest day before a big race.
 

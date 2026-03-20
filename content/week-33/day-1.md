@@ -16,36 +16,44 @@ The immune system transfer happening right now is one of nature's most elegant s
 At 33 weeks, your partner's uterus is now about 5 inches above the belly button. She may feel like her ribcage is being pushed outward (it is — the ribs actually expand during pregnancy to accommodate the growing uterus). Heartburn might be especially intense as the stomach gets compressed. Sleeping positions are increasingly limited — left side is still recommended for optimal blood flow. She may also notice more frequent Braxton Hicks contractions, which are practice contractions that feel like a tightening across the belly. They're normal, but if they become regular or painful, it's worth calling the doctor.
 
 ## 🍽️ Nutrition Tip
-**Immune-Boosting Chicken and Vegetable Stir-Fry**
+**Immune-Boosting Turmeric & Lentil Soup**
 
-Since we're talking about immunity this week, here's a recipe loaded with immune-supporting nutrients — zinc from chicken, vitamin C from bell peppers, and antioxidants from garlic and ginger.
+Since we're talking about immunity this week, here's a recipe loaded with immune-supporting nutrients — iron and zinc from lentils, anti-inflammatory turmeric, and vitamin C from tomatoes and lemon.
 
 *Ingredients:*
-- 2 chicken breasts, sliced into thin strips
-- 1 red bell pepper, sliced
-- 1 yellow bell pepper, sliced
-- 1 cup broccoli florets
-- 1 cup snap peas
+- 1.5 cups red lentils, rinsed
+- 1 large onion, diced
 - 3 cloves garlic, minced
 - 1 tablespoon fresh ginger, grated
-- 3 tablespoons soy sauce (low sodium)
-- 1 tablespoon sesame oil
-- 1 tablespoon honey
-- 1 tablespoon cornstarch mixed with 2 tablespoons water
-- 2 tablespoons vegetable oil
-- Cooked rice or noodles for serving
-- Sesame seeds and sliced green onions for garnish
+- 1 teaspoon ground turmeric
+- 1 teaspoon ground cumin
+- 1 can (400g) diced tomatoes
+- 4 cups vegetable or chicken broth
+- 1 cup coconut milk
+- 2 tablespoons olive oil
+- Juice of 1 lemon
+- Fresh cilantro and a dollop of yogurt for serving
+- Salt and pepper to taste
 
 *Instructions:*
-1. Heat vegetable oil in a large wok or skillet over high heat
-2. Add chicken strips and cook until golden, about 4-5 minutes. Remove and set aside
-3. In the same pan, add garlic and ginger. Stir for 30 seconds until fragrant
-4. Add bell peppers, broccoli, and snap peas. Stir-fry for 3-4 minutes until crisp-tender
-5. Mix soy sauce, sesame oil, and honey in a small bowl. Pour over vegetables
-6. Return chicken to the pan. Add cornstarch mixture and stir until sauce thickens, about 1 minute
-7. Serve over rice or noodles. Garnish with sesame seeds and green onions
+1. Heat olive oil in a large pot over medium heat
+2. Sauté onion for 5 minutes until soft. Add garlic and ginger, cook 1 minute
+3. Add turmeric and cumin, stir for 30 seconds until fragrant
+4. Add lentils, diced tomatoes, and broth. Bring to a boil
+5. Reduce heat and simmer for 20-25 minutes until lentils are soft
+6. Stir in coconut milk and lemon juice. Season with salt and pepper
+7. Serve topped with fresh cilantro and a spoonful of yogurt
 
-Serves 2-3. Quick, colorful, and exactly what a third-trimester body needs. Leftovers make a great lunch the next day.
+Serves 4. Warm, comforting, and packed with the iron and folate your growing baby needs. Freezes beautifully for quick meals later.
+
+## 💪 Exercise & Movement
+**Gentle Third-Trimester Stretch Routine:**
+At 33 weeks, movement should feel good, not exhausting. Try this 10-minute stretch sequence:
+- **Cat-Cow stretches** (on all fours): 10 repetitions, breathing deeply with each movement. Relieves back tension and helps with baby positioning
+- **Side-lying leg lifts**: 10 per side. Strengthens the hips and outer thighs, which support the growing belly
+- **Seated butterfly stretch**: Sit with soles of feet together, gently press knees toward the floor. Hold for 30 seconds. Opens the pelvis
+- **Wall push-ups**: 10 repetitions. Maintains upper body strength for carrying and holding the baby
+- **Deep breathing**: 2 minutes of slow, deep breaths. Inhale for 4 counts, hold for 4, exhale for 6. Practice for labor
 
 ## 💡 Tip for Dad
 Start thinking about your support team for after the birth. Who can you call for help in the first two weeks? Parents, siblings, friends, neighbors — anyone who can bring a meal, hold the baby while you shower, or just keep you company during those long days. Make a mental (or actual) list. People often offer to help but don't know what to do. When they ask "Is there anything I can do?", have specific answers ready: "Can you bring dinner on Tuesday?" or "Can you come sit with the baby for an hour so we can nap?" Being specific makes it easier for people to say yes and actually follow through.

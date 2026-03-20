@@ -21,6 +21,33 @@ Quickening was historically one of the most important moments in pregnancy. In m
 ## 🍽️ Nutrition Tip
 **Simple Lentil Soup** — a perfect second-trimester comfort meal. Saute diced onion, carrot, and celery in olive oil. Add 1 cup red lentils, a can of diced tomatoes, 4 cups vegetable broth, cumin, and turmeric. Simmer for 20 minutes until lentils are soft. Blend half of it for creaminess, stir back together. Squeeze lemon on top. This delivers iron, folate, fiber, and protein — basically a prenatal vitamin in soup form. Makes great leftovers.
 
+**Beef and Beetroot Power Bowl**
+
+Your baby's circulatory system is now fully functional — the heart, blood vessels, and blood are all working as a team. Iron is critical for building red blood cells, and this bowl delivers it in abundance.
+
+*Ingredients:*
+- 8 oz beef sirloin, sliced thin
+- 2 medium beets, peeled and diced into 1/2-inch cubes
+- 2 cups baby kale or arugula
+- 1/2 cup cooked farro or barley
+- 2 tbsp tahini
+- 1 tbsp lemon juice
+- 1 tbsp olive oil
+- 1 tsp cumin
+- 1/2 tsp smoked paprika
+- Salt and pepper to taste
+- 2 tbsp pumpkin seeds
+
+*Directions:*
+1. Preheat oven to 400°F (200°C). Toss diced beets with half the olive oil, cumin, salt, and pepper. Spread on a baking sheet and roast for 25 minutes until tender and caramelized.
+2. While beets roast, season beef slices with smoked paprika, salt, and pepper.
+3. Heat remaining olive oil in a skillet over high heat. Sear beef slices for 1-2 minutes per side for medium. Let rest for 3 minutes, then slice against the grain.
+4. Whisk together tahini and lemon juice with 1-2 tbsp water until you get a smooth, drizzle-able dressing.
+5. Assemble bowls: layer baby kale, cooked farro, roasted beets, and sliced beef.
+6. Drizzle with tahini-lemon dressing and top with pumpkin seeds.
+
+Beef is one of the most bioavailable sources of iron, and pairing it with vitamin C-rich beets helps maximize absorption. The pumpkin seeds add extra iron and zinc — a perfect combination for supporting baby's brand-new circulatory system.
+
 ## 💪 Exercise & Movement
 **Seated Cat-Cow** — perfect for days when getting on the floor feels like too much effort. Sit on the edge of a chair, feet flat on the floor, hands on knees. On an inhale, arch the back and lift the chest (cow). On an exhale, round the spine and tuck the chin (cat). Move slowly, breathing deeply. Repeat 10 times. This relieves back tension and can be done anywhere — at a desk, on the couch, or in a waiting room.
 

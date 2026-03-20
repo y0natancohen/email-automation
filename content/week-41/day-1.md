@@ -18,6 +18,34 @@ Honestly? Over it. Your partner is likely beyond ready to not be pregnant anymor
 ## 🍽️ Nutrition Tip
 **Quick Overnight Oats for Exhausted Parents-to-Be:** Before bed, mix 1/2 cup oats, 1/2 cup milk (or almond milk), 1/4 cup yogurt, 1 tbsp chia seeds, a drizzle of honey, and a handful of berries in a jar. Refrigerate overnight. Breakfast is ready when you wake up — no cooking required. Oats are widely believed to support milk production (though evidence is mostly anecdotal, many lactation consultants recommend them), and the chia seeds provide omega-3s and fiber. Make two jars while you're at it.
 
+**Warm Cinnamon-Pear Crumble for Two (Patience in a Bowl)**
+
+The wait past 40 weeks requires patience — and what better way to practice patience than with a slow-baked, warmly spiced crumble? This recipe uses pears, which are gentle on the stomach and rich in fiber to keep digestion comfortable.
+
+*Ingredients:*
+- 2 ripe pears, cored and sliced
+- 1 tbsp lemon juice
+- 1 tbsp maple syrup
+- 1/2 tsp cinnamon
+- 1/4 tsp nutmeg
+
+*For the crumble topping:*
+- 1/3 cup rolled oats
+- 2 tbsp almond flour
+- 1 tbsp butter or coconut oil, softened
+- 1 tbsp maple syrup
+- Pinch of salt
+
+*Directions:*
+1. Preheat oven to 350°F (175°C).
+2. Toss sliced pears with lemon juice, maple syrup, cinnamon, and nutmeg. Divide between two ramekins or place in a small baking dish.
+3. In a small bowl, combine oats, almond flour, butter, maple syrup, and salt. Mix until crumbly.
+4. Sprinkle the crumble topping evenly over the pears.
+5. Bake 30-35 minutes until the pears are tender and the topping is golden brown.
+6. Let cool slightly and serve warm — a scoop of vanilla yogurt on top is lovely.
+
+Pears are one of the most easily digested fruits and provide potassium, vitamin C, and gentle fiber. The oat topping adds sustaining energy. This is the kind of cozy, unhurried dessert that makes a long evening of waiting feel a little sweeter.
+
 ## 💪 Exercise & Movement
 If your partner is feeling up to it, walking remains the best activity. Some women at 41 weeks find that walking stairs helps — the movement opens the pelvis and the slight lunge position can encourage baby to descend. But here's the important caveat: if she's exhausted, resting is the right move. Her body is conserving energy for labor, and pushing too hard now can leave her depleted when she needs stamina most. Let her body lead.
 

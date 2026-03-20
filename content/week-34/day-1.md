@@ -18,6 +18,30 @@ Pelvic pressure is becoming a real thing now. Your partner might describe it as 
 ## 🍽️ Nutrition Tip
 Iron is crucial right now as your partner's blood volume is at its peak. Here's a quick and easy iron-boosting combo: pair a handful of pumpkin seeds with a glass of orange juice. The vitamin C helps the body absorb the iron from the seeds much more effectively. Sprinkle pumpkin seeds on salads, yogurt, or oatmeal throughout the day.
 
+**Magnesium-Packed Black Bean & Quinoa Power Bowl**
+
+As baby's central nervous system matures this week, magnesium plays a key role in supporting nerve and muscle function — for both mom and baby. This bowl is loaded with magnesium-rich ingredients and delivers steady, lasting energy.
+
+*Ingredients:*
+- 1 cup cooked quinoa
+- 1/2 cup canned black beans, rinsed and drained
+- 1/2 avocado, sliced
+- 1/4 cup roasted pumpkin seeds (pepitas)
+- 1/4 cup corn kernels (fresh, frozen, or canned)
+- Handful of baby spinach
+- 1 tbsp olive oil
+- Juice of 1/2 lime
+- Pinch of cumin, salt, and pepper
+
+*Directions:*
+1. Warm the quinoa and black beans together in a small pot or microwave.
+2. Arrange spinach in a bowl and top with the warm quinoa and beans.
+3. Add corn, avocado slices, and pumpkin seeds.
+4. Drizzle with olive oil and lime juice, then season with cumin, salt, and pepper.
+5. Toss gently and enjoy.
+
+This bowl delivers magnesium from quinoa, black beans, spinach, and pumpkin seeds — four powerhouse sources in one meal. It also provides folate, iron, and fiber to keep energy levels steady throughout the day.
+
 ## 💪 Exercise & Movement
 Gentle walking remains one of the best exercises at this stage. Aim for 15-20 minute walks, and encourage your partner to wear supportive shoes. If she's feeling pelvic pressure, a maternity support belt during walks can make a big difference. Swimming or water aerobics are also fantastic — the buoyancy takes pressure off joints and the pelvis.
 

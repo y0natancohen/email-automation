@@ -18,6 +18,31 @@ If there were an award for patience, your partner would win it. She's been carry
 ## 🍽️ Nutrition Tip
 Keep it simple. Keep it nourishing. A bowl of oatmeal with banana and walnuts for breakfast. A big salad with chicken and avocado for lunch. Something warm and comforting for dinner. The focus now isn't on special foods or labor-inducing recipes — it's about keeping energy up and spirits high. And make sure you're both drinking plenty of water. If an induction is scheduled, have a good meal before heading to the hospital.
 
+**Golden Milk Rice Pudding (Strength for the Big Day)**
+
+This warm, creamy rice pudding is infused with turmeric and ginger — anti-inflammatory spices that have been used for centuries to prepare the body for childbirth. It's gentle, easily digestible, and provides the sustained energy you'll both need for the hours ahead.
+
+*Ingredients:*
+- 1 cup cooked white or jasmine rice
+- 1 cup whole milk (or full-fat coconut milk)
+- 1/2 tsp ground turmeric
+- 1/4 tsp ground ginger
+- 1/4 tsp cinnamon
+- 1 tbsp honey or maple syrup
+- 1 tbsp coconut oil
+- Pinch of black pepper (helps the body absorb turmeric)
+- 2 tbsp chopped pistachios for topping
+
+*Directions:*
+1. Combine cooked rice and milk in a small saucepan over medium-low heat.
+2. Stir in turmeric, ginger, cinnamon, coconut oil, and black pepper.
+3. Cook gently for 8-10 minutes, stirring frequently, until the mixture is thick and creamy.
+4. Remove from heat and stir in honey or maple syrup.
+5. Spoon into bowls and top with chopped pistachios.
+6. Serve warm — or refrigerate and enjoy cold as a snack.
+
+This is comfort food with purpose. The rice provides easy-to-digest carbohydrates for energy, the turmeric and ginger support the body's natural inflammation response, and the pistachios add protein and a satisfying crunch. Whether you're eating it before heading to the hospital or as a quiet midnight snack during the wait, it's nourishment that says: you're strong, you're ready, and the best is about to begin.
+
 ## 💪 Exercise & Movement
 Gentle movement only — a short walk if it feels good, some hip circles on the birth ball, or simply stretching on the floor. But truly, if your partner wants to lie on the couch and watch an entire season of something, that is also a valid choice. Her body has done extraordinary work for 42 weeks. It deserves rest and kindness.
 

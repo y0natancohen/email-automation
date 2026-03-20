@@ -22,6 +22,31 @@ By Friday, your partner might be feeling ready for a slower weekend. The third t
 
 Nourishing, warming, and easy enough to make before Shabbat starts. The sweet potatoes add a great dose of vitamin A.
 
+**Slow Cooker Beef and Black Bean Chili**
+With your partner's blood volume expanding rapidly in the third trimester, iron is in high demand. This hearty chili combines heme iron from beef with plant-based iron from black beans for maximum absorption.
+
+*Ingredients:*
+- 1 pound ground beef (or cubed stewing beef)
+- 1 can (15 oz) black beans, drained and rinsed
+- 1 can (14 oz) diced tomatoes
+- 1 red bell pepper, diced
+- 1 onion, diced
+- 3 cloves garlic, minced
+- 2 tablespoons tomato paste
+- 1 tablespoon chili powder
+- 1 teaspoon cumin
+- 1/2 teaspoon smoked paprika
+- Salt and pepper to taste
+- Toppings: sour cream, shredded cheese, cilantro
+
+*Directions:*
+1. Brown the ground beef in a skillet over medium heat, breaking it into pieces. Drain excess fat.
+2. Transfer beef to a slow cooker. Add black beans, diced tomatoes, bell pepper, onion, garlic, tomato paste, and all spices.
+3. Stir well, cover, and cook on low for 6-8 hours or high for 3-4 hours.
+4. Taste and adjust seasoning. Serve topped with sour cream, cheese, and cilantro.
+
+The vitamin C from the tomatoes and bell pepper boosts iron absorption from both the beef and beans. One bowl delivers a powerhouse of iron, protein, and fiber.
+
 ## 💪 Exercise & Movement
 Today, encourage your partner to do some gentle stretching and then rest. A prenatal yoga video (even just 15 minutes) can help release tension from the week. Focus on hip openers — these help create space in the pelvis and can ease some of the pelvic pressure she might be feeling. A great one: pigeon pose, modified with a pillow under the hip for support.
 

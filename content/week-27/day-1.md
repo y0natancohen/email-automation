@@ -28,6 +28,29 @@ Iron becomes extra important now as blood volume increases significantly in the 
 
 This bowl packs plant-based iron, fiber, and healthy fats — everything your partner needs right now.
 
+**Walnut-Crusted Baked Sardines**
+Your baby's brain is in a major growth spurt this week, and DHA (an omega-3 fatty acid) is the primary building block of brain tissue. Sardines are one of the richest sources of DHA and are low in mercury — a perfect pregnancy-safe brain food.
+
+*Ingredients:*
+- 2 cans sardines in olive oil, drained
+- 1/3 cup walnuts, finely chopped
+- 1/4 cup whole wheat breadcrumbs
+- 2 tablespoons fresh parsley, chopped
+- 1 clove garlic, minced
+- 1 tablespoon lemon zest
+- 1 tablespoon olive oil
+- Salt and pepper to taste
+- Lemon wedges for serving
+
+*Directions:*
+1. Preheat oven to 400°F/200°C. Line a baking sheet with parchment paper.
+2. Mix walnuts, breadcrumbs, parsley, garlic, lemon zest, olive oil, salt, and pepper in a bowl.
+3. Arrange sardines on the baking sheet and press the walnut mixture on top of each fillet.
+4. Bake for 12-15 minutes until the topping is golden and crispy.
+5. Serve with lemon wedges and a side salad or over brown rice.
+
+Sardines and walnuts together deliver a double dose of omega-3s for your baby's rapidly developing brain, plus calcium and vitamin D for bone growth.
+
 ## 💪 Exercise & Movement
 Third trimester exercise is all about maintaining comfort and stamina. Walking remains one of the best activities. Swimming is also fantastic — the buoyancy takes pressure off joints and the back. Encourage your partner to listen to her body. If something feels off, it's okay to slow down. Gentle prenatal yoga can help with flexibility and breathing techniques that will be useful during labor.
 

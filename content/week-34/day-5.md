@@ -7,7 +7,7 @@ day: 5
 # Week 34, Day 5
 
 ## 👶 Baby Development
-Your baby's eyes can now detect light filtering through the womb, and the pupils can dilate and constrict in response. Those tiny eyelashes and eyebrows are fully formed too. The brain is growing at an incredible rate — it's now about 66% of its full-term size. All five senses are functioning: touch, taste, hearing, sight, and even a basic sense of smell.
+Your baby's eyes can now detect light filtering through the womb, and the pupils can dilate and constrict in response. Those tiny eyelashes are well-defined now, giving your baby's face its finishing touches. The brain is growing at an incredible rate — it's now about 66% of its full-term size. All five senses are functioning: touch, taste, hearing, sight, and even a basic sense of smell.
 
 ## 🤰 What Mom Might Be Feeling
 Braxton Hicks may be picking up in frequency, which can be both exciting and anxiety-inducing. Your partner might notice lightning crotch — sudden, sharp, shooting pains in the pelvis caused by baby pressing on nerves. It sounds alarming but it's usually harmless, just uncomfortable. She may also be feeling emotionally intense: excited, scared, impatient, and overwhelmed all at once.

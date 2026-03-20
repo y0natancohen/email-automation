@@ -18,6 +18,28 @@ If baby has dropped, your partner might notice she can suddenly breathe more eas
 ## 🍽️ Nutrition Tip
 With baby pressing on the stomach and intestines, large meals might feel impossible. Encourage your partner to eat 5-6 small meals throughout the day instead of 3 big ones. Focus on nutrient-dense foods that pack a lot of nutrition in small portions: nut butters, avocados, hard-boiled eggs, cheese and crackers, and smoothies. Every bite counts.
 
+**Mini Sweet Potato & Ricotta Toasts (Potassium-Rich Snack)**
+
+As baby drops lower into the pelvis this week, stomach room shrinks. These small, nutrient-dense toasts are easy to eat one or two at a time and are loaded with potassium — important for managing the increased blood pressure and swelling of late pregnancy.
+
+*Ingredients:*
+- 1 medium sweet potato, sliced into 1/4-inch rounds
+- 1/2 cup ricotta cheese
+- 2 tbsp chopped walnuts
+- 1 tbsp honey
+- Pinch of cinnamon
+- Drizzle of olive oil
+- Flaky sea salt
+
+*Directions:*
+1. Preheat oven to 375°F (190°C). Lay sweet potato rounds on a parchment-lined baking sheet, drizzle with olive oil, and sprinkle with salt.
+2. Bake for 15-18 minutes, flipping halfway, until tender and lightly golden.
+3. Let rounds cool slightly, then top each with a spoonful of ricotta.
+4. Sprinkle with chopped walnuts, a drizzle of honey, and a pinch of cinnamon.
+5. Eat warm as a snack — make a batch and refrigerate extras for easy reheating.
+
+One medium sweet potato packs about 540 mg of potassium — more than a banana. The ricotta adds calcium and protein, and the walnuts contribute omega-3s. Small enough to eat between meals, satisfying enough to feel like real food.
+
 ## 💪 Exercise & Movement
 Walking is your partner's best exercise right now — it's gentle, it helps baby move into position, and it can actually encourage the baby to drop further into the pelvis. Aim for short walks (15-20 minutes) rather than long ones. If pelvic pressure is intense, a maternity support belt during walks can make them much more comfortable.
 
