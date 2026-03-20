@@ -1,9 +1,14 @@
-name: Daily Email
+name: Daily Baby Email
 
 on:
   schedule:
     - cron: '0 16 * * *'  # 6 PM Israel time (UTC+2)
   workflow_dispatch:  # Manual trigger for testing
+    inputs:
+      test_date:
+        description: 'Override date for testing (YYYY-MM-DD)'
+        required: false
+        type: string
 
 jobs:
   send-email:
@@ -18,8 +23,12 @@ jobs:
         with:
           python-version: '3.12'
 
+      - name: Install dependencies
+        run: pip install pyyaml markdown
+
       - name: Send email
         env:
           GMAIL_ADDRESS: ${{ secrets.GMAIL_ADDRESS }}
           GMAIL_APP_PASSWORD: ${{ secrets.GMAIL_APP_PASSWORD }}
+          TEST_DATE: ${{ github.event.inputs.test_date }}
         run: python send_email.py

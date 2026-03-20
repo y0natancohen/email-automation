@@ -1,0 +1,140 @@
+<!DOCTYPE html>
+<html lang="en">
+<head>
+<meta charset="UTF-8">
+<meta name="viewport" content="width=device-width, initial-scale=1.0">
+<style>
+  body {
+    margin: 0;
+    padding: 0;
+    background-color: #fdf6f0;
+    font-family: Georgia, 'Times New Roman', serif;
+    color: #2c2c2c;
+    line-height: 1.7;
+  }
+  .container {
+    max-width: 600px;
+    margin: 0 auto;
+    background-color: #ffffff;
+    border-radius: 12px;
+    overflow: hidden;
+    box-shadow: 0 2px 12px rgba(0,0,0,0.08);
+  }
+  .header {
+    background: linear-gradient(135deg, #e8d5c4, #f0e0d0);
+    padding: 28px 32px;
+    text-align: center;
+  }
+  .header h1 {
+    margin: 0;
+    font-size: 22px;
+    color: #5a3e2b;
+    font-weight: normal;
+    letter-spacing: 0.5px;
+  }
+  .header .week-badge {
+    display: inline-block;
+    background-color: #5a3e2b;
+    color: #fdf6f0;
+    padding: 4px 14px;
+    border-radius: 20px;
+    font-size: 13px;
+    margin-top: 10px;
+    font-family: Arial, sans-serif;
+  }
+  .content {
+    padding: 28px 32px;
+  }
+  .content h1 {
+    font-size: 22px;
+    color: #5a3e2b;
+    margin-top: 0;
+    border-bottom: 2px solid #e8d5c4;
+    padding-bottom: 10px;
+  }
+  .content h2 {
+    font-size: 17px;
+    color: #7a5c3e;
+    margin-top: 28px;
+    margin-bottom: 8px;
+    padding-bottom: 6px;
+    border-bottom: 1px solid #f0e0d0;
+  }
+  .content h3 {
+    font-size: 15px;
+    color: #5a3e2b;
+    margin-top: 18px;
+    margin-bottom: 6px;
+  }
+  .content p {
+    margin: 8px 0;
+    font-size: 15px;
+  }
+  .content ul, .content ol {
+    padding-left: 24px;
+    font-size: 15px;
+  }
+  .content li {
+    margin-bottom: 6px;
+  }
+  .content strong {
+    color: #5a3e2b;
+  }
+  .content em {
+    color: #8a6a4e;
+  }
+  .content blockquote {
+    border-left: 3px solid #e8d5c4;
+    margin: 16px 0;
+    padding: 10px 16px;
+    background-color: #fdf6f0;
+    border-radius: 0 8px 8px 0;
+    font-style: italic;
+    color: #6a4e32;
+  }
+  .qa-box {
+    background-color: #fff8f0;
+    border: 2px dashed #e8d5c4;
+    border-radius: 10px;
+    padding: 16px 20px;
+    margin: 16px 0;
+    text-align: center;
+  }
+  .footer {
+    background-color: #fdf6f0;
+    padding: 20px 32px;
+    text-align: center;
+    font-size: 12px;
+    color: #a08060;
+    font-family: Arial, sans-serif;
+  }
+  .footer a {
+    color: #7a5c3e;
+  }
+  @media only screen and (max-width: 620px) {
+    .container {
+      border-radius: 0;
+    }
+    .header, .content, .footer {
+      padding-left: 20px;
+      padding-right: 20px;
+    }
+  }
+</style>
+</head>
+<body>
+<div class="container">
+  <div class="header">
+    <h1>Daily Baby 👶</h1>
+    <div class="week-badge">{{WEEK_BADGE}}</div>
+  </div>
+  <div class="content">
+    {{CONTENT}}
+  </div>
+  <div class="footer">
+    <p>Daily Baby &mdash; A daily pregnancy companion for soon-to-be parents</p>
+    <p>Week {{WEEK}} &bull; Day {{DAY}}</p>
+  </div>
+</div>
+</body>
+</html>
