@@ -6,26 +6,26 @@ day: 2
 
 # Week 20, Day 2
 
+## 🎉 Fun Fact
+Researchers at the University of Helsinki found that babies regularly exposed to a specific melody in the womb showed neural recognition when the same melody was played after birth — even months later. Babies who weren't exposed showed no such response. Your baby is forming musical memories right now.
+
 ## 👶 Baby Development
-Your baby's hearing is now well-developed enough to clearly hear sounds from outside the womb. Your voice, your partner's voice, music, the dog barking, the doorbell — baby is taking it all in. The auditory cortex is processing these sounds and building recognition patterns. Studies show that newborns can distinguish their parents' voices from strangers' within hours of birth, and this recognition starts here, at 20 weeks. The more you talk, sing, and read to the bump, the more familiar your voice becomes. Baby is also practicing facial expressions and may even smile or frown in response to different stimuli.
+Your baby's hearing is now developed enough to pick up sounds from outside the womb — your voice, music, even the dog barking. The auditory cortex is processing these sounds and building recognition patterns, which is why newborns can distinguish their parents' voices from a stranger's within hours of birth. That recognition starts here, at 20 weeks. Your baby is also practicing facial expressions and may smile or frown in response to different stimuli.
 
 ## 🤰 What Mom Might Be Feeling
-Your partner is likely feeling definite, unmistakable kicks now. She might start to notice patterns — baby is active after meals, quiet in the mornings, or dancing at 11 PM when she's trying to sleep. These patterns are the first glimpse of your baby's personality. She might also feel a sense of relief after the anatomy scan (if it's happened) — knowing that everything looks healthy is a massive weight off the shoulders. Physically, she may notice some shortness of breath as the uterus pushes up on the diaphragm.
+The Mom is likely feeling definite, unmistakable kicks now. She might start to notice patterns — active after meals, quiet in the mornings, a full dance routine at 11 PM. These patterns are the first glimpse of your baby's personality. If the anatomy scan has already happened, there may be a deep sense of relief knowing everything looks healthy. Physically, some shortness of breath is common as the uterus pushes up on the diaphragm.
 
 ## 🤔 Q&A: Yesterday's Answer
-**What is meconium?** Meconium is your baby's first bowel movement — and it's nothing like the poops that come later. It's a dark, greenish-black, tar-like substance made up of everything baby has been swallowing in the womb: amniotic fluid, mucus, skin cells, lanugo hair, and bile. It accumulates in the intestines throughout pregnancy and is typically passed in the first 24-48 hours after birth. The reason it's discussed medically is that if a baby passes meconium before birth (while still in the womb), it can sometimes be inhaled into the lungs. This is called meconium aspiration syndrome and is more common in overdue babies. Doctors monitor for this during labor. But for now, at 20 weeks, meconium is just quietly accumulating and your baby is happily swallowing and processing amniotic fluid with no issues.
-
-## 💪 Exercise & Movement
-**Prenatal Yoga Flow** — try this gentle 10-minute sequence: start in cat-cow (1 minute), move to downward dog (modified with knees bent, hold 30 seconds), step into warrior I (hold 5 breaths each side), move to warrior II (hold 5 breaths each side), then tree pose (hold 5 breaths each side, use a wall for balance). Finish in child's pose (knees wide, belly between them) for 1 minute. This flow builds strength, improves balance, and creates a sense of calm.
+**What is meconium?** Meconium is your baby's first bowel movement, and it's nothing like what comes later. It's a dark, greenish-black, tar-like substance made up of everything your baby has been swallowing in the womb: amniotic fluid, mucus, skin cells, lanugo hair, and bile. It accumulates throughout pregnancy and is typically passed in the first 24-48 hours after birth. If passed before birth, it can sometimes be inhaled into the lungs (meconium aspiration syndrome), which is more common in overdue babies. For now, at 20 weeks, meconium is quietly accumulating while your baby happily processes amniotic fluid.
 
 ## 🍽️ Nutrition Tip
-Potassium helps regulate blood pressure and fluid balance — both important at 20 weeks. Bananas are the obvious source (and fitting for banana week!), but other great options include sweet potatoes, spinach, beans, yogurt, and coconut water. **Quick Potassium Boost**: a banana with a handful of trail mix and a cup of coconut water. Simple, portable, and delivers over 1,000 mg of potassium.
+Potassium helps regulate blood pressure and fluid balance — both especially important at 20 weeks. Bananas are the obvious source (fitting for banana week), but sweet potatoes, spinach, beans, yogurt, and coconut water are all excellent options too. A quick potassium boost: a banana with trail mix and a cup of coconut water. Simple, portable, and delivers over 1,000 mg of potassium.
+
+## 💪 Exercise & Movement
+A gentle prenatal yoga flow works well today. Start in cat-cow for a minute, move to a modified downward dog with knees bent, then step into warrior I and warrior II (five breaths each side), followed by tree pose using a wall for balance. Finish in child's pose with knees wide for a minute. The whole sequence takes about ten minutes and builds strength, balance, and calm.
 
 ## 💡 Tip for Dad
-Now that baby can hear you, establish a daily voice routine. Pick a consistent time — maybe when you first come home from work or right before bed — and spend 2-3 minutes talking directly to the bump. Tell baby about your day, describe what you ate for lunch, talk about the weather. The content doesn't matter; the consistency does. Your voice is becoming part of your baby's world.
+Now that your baby can hear you, establish a daily voice routine. Pick a consistent time — maybe when you get home or right before bed — and spend a few minutes talking directly to the bump. Tell the baby about your day, what you had for lunch, anything at all. The content doesn't matter; the consistency does. Your voice is becoming part of your baby's world.
 
 ## 💬 Conversation Starter
-Now that you're halfway, make a list of things you want to accomplish before baby arrives. Not just nursery and gear — think trips, experiences, couple goals, personal goals. You have about 20 weeks. What's on the list?
-
-## 🎉 Fun Fact
-Researchers at the University of Helsinki found that babies who were regularly exposed to a specific melody in the womb showed neural activity indicating recognition when the melody was played after birth — even months later. The control group (babies who weren't exposed to the melody in utero) showed no such response. Your baby is literally forming musical memories right now.
+Now that you're halfway, make a list of things you want to accomplish before the baby arrives. Not just nursery and gear — think trips, experiences, couple goals, personal goals. You have about 20 weeks. What's on the list?

@@ -7,62 +7,35 @@ day: 1
 # Week 10, Day 1
 
 ## 🌒 This Week at a Glance
-Welcome to week 10 — double digits! This is a landmark week. Your baby is about the size of a strawberry (~1.2 inches, or 3 cm) and weighs around 4 grams. Here's what's unfolding over the next seven days:
-- All vital organs are now formed and beginning to function
-- Those little fingers and toes are separating — no more webbing!
-- Tiny tooth buds are forming beneath the gums
-- Bones and cartilage are developing where soft tissue used to be
-- External ears are taking shape on the sides of the head
-- Your baby can now swallow amniotic fluid
-- If you haven't yet, this is the week you can begin first trimester screening and cell-free DNA testing (NIPT)
+Welcome to week 10 — double digits. This is a landmark week. Your baby is about the size of a strawberry, measuring roughly 3 cm (1.2 inches) and weighing around 4 grams. Over the next several days, tooth buds are forming beneath the gums, bones and cartilage are replacing softer tissue, the outer ears are taking shape, and one of the most remarkable milestones is now complete: the tiny embryonic tail is gone. This is also the week when first-trimester screening and NIPT may begin.
 
-This week marks the transition from "embryo" to "fetus" — a fancy way of saying your baby now looks unmistakably human. The tail? Gone. The webbed fingers? Separating. It's all coming together.
-
-## 👶 Baby Development
-Right now, your baby is roughly the size of a strawberry — and just as sweet. The embryonic tail has fully disappeared, and your little one officially graduated from "embryo" to "fetus" at the end of last week. All major organs — heart, brain, kidneys, liver, lungs — are in place and starting to mature. The heart is beating at a rapid 170-180 beats per minute (about twice your resting rate). Today, those tiny fingers are actively separating as the webbing between them dissolves. Think of it: your baby is growing individual fingers right now.
-
-## 🤰 What Mom Might Be Feeling
-Your partner may be dealing with the classic first-trimester cocktail: nausea (possibly all-day, not just morning), fatigue that feels like she ran a marathon in her sleep, and a heightened sense of smell that makes the kitchen feel like a minefield. Her uterus is now about the size of a grapefruit. She might also notice her waistband getting tighter, even though there's no visible bump yet. Mood swings are real — progesterone and hCG are at peak levels. Some women feel a strange metallic taste in their mouth (dysgeusia). All of this is normal and temporary.
-
-## 🍽️ Nutrition Tip
-**Folate-Rich Lentil Soup (Full Recipe)**
-
-Folate is crucial right now for neural tube development. This soup is packed with it.
-
-**Ingredients:**
-- 1 cup red lentils, rinsed
-- 1 large carrot, diced
-- 1 onion, chopped
-- 2 cloves garlic, minced
-- 1 tbsp olive oil
-- 4 cups vegetable broth
-- 1 tsp cumin
-- Juice of half a lemon
-- Salt and pepper to taste
-
-**Steps:**
-1. Heat olive oil in a pot over medium heat. Sauté onion and garlic for 3 minutes.
-2. Add carrot and cumin, cook for 2 more minutes.
-3. Add lentils and broth. Bring to a boil, then simmer for 20 minutes.
-4. Blend until smooth (or leave chunky). Add lemon juice, salt, and pepper.
-5. Serve warm — makes 4 servings, freezes beautifully.
-
-One cup of cooked lentils provides about 358 micrograms of folate — nearly 90% of the daily recommendation for pregnancy.
-
-## 💪 Exercise & Movement
-A 20-minute walk today is perfect. If your partner is up for it, join her. Walking improves circulation, helps with nausea, and boosts mood. Aim for a moderate pace — she should be able to hold a conversation comfortably. If she's been active before pregnancy, she can generally continue her routine with some modifications. Now is not the time to start intense new programs, but staying active is one of the best things she can do.
-
-## 💡 Tip for Dad
-Today is a great day to download a pregnancy tracking app together. Sit with your partner and go through the weekly updates. It makes the experience more real when you can both visualize what's happening. Also — if she hasn't told her employer yet, respect her timeline. Don't accidentally share the news before she's ready.
-
-## 💬 Conversation Starter
-"When did it first feel real to you — that we're actually having a baby?" Share your honest moments. Was it the positive test? Hearing the heartbeat? Or are you still waiting for it to click? Both answers are completely normal.
+Perhaps the biggest headline: your baby is now officially called a fetus. It's a small change in word, but a major step in development.
 
 ## 🎉 Fun Fact
-Your baby's heart has been beating since around week 5, but this week it's pumping blood to every part of its tiny body. The heart is already divided into four chambers, just like yours. At 170+ beats per minute, it's beating roughly twice as fast as your own heart. You can often hear it on a doppler device at your next prenatal visit.
+Your baby's heart is already divided into four chambers and beating at 170+ beats per minute — about twice as fast as an adult heart. For something so tiny, it's doing an incredible amount of work already.
+
+## 👶 Baby Development
+All the major organs are now formed and beginning to mature, including the heart, brain, kidneys, liver, lungs, and digestive system. The face is becoming more defined, the body is lengthening, and your baby is looking more recognizably human by the day. Even though everything is still tiny, the foundations are very much in place.
+
+## 🤰 What Mom Might Be Feeling
+The Mom may still be deep in the first-trimester fog: nausea, exhaustion, smell sensitivity, bloating, and mood shifts. There isn't much of a visible bump yet, but her uterus is now about the size of a grapefruit, so clothes may already feel a little less comfortable. Some women also notice a metallic taste in their mouth.
+
+## 🍽️ Nutrition Tip
+This is a great week to lean into folate-rich foods, since folate remains essential for early development. A simple lentil soup is an easy win: comforting, filling, and packed with nutrients.
+
+Try this version: saut onion and garlic in olive oil, add diced carrot, cumin, red lentils, and vegetable broth, then simmer until soft and finish with lemon juice. It's simple, gentle on the stomach, and easy to make ahead. One cup of cooked lentils provides a big folate boost, making it a smart pregnancy staple.
+
+## 💪 Exercise & Movement
+A 20-minute walk is perfect for today. Gentle movement can support circulation, lift mood, and sometimes even help with nausea. If the Mom was active before pregnancy, she can generally continue her usual exercise routine with some modifications. The goal is not intensity — just movement that feels good and stays comfortable.
+
+## 💡 Tip for Dad
+Today is a good day to open a pregnancy tracking app or weekly update together. Seeing what's happening this week can make everything feel more real, especially at a stage when so much is changing behind the scenes.
+
+## 💬 Conversation Starter
+When did this start feeling real to you? Was it the positive test, hearing the heartbeat, or has it still not fully landed yet? There's no wrong answer, and comparing notes can be surprisingly meaningful.
 
 ## 🤔 Question of the Day
-Here's a fun one to think about: Your baby's fingers are separating this week, but did you know fingerprints will form later? When do you think those unique fingerprints actually develop — week 13, week 17, or week 23? Take a guess — we'll reveal the answer tomorrow!
+Fingers are separating this week — but fingerprints come later. When do you think those unique fingerprints actually develop: week 13, week 17, or week 23? Take a guess — we'll reveal the answer tomorrow.
 
 ## 👫 Couple Activity
-**The "Open When" Letter:** Each of you write a short letter to the other titled "Open When the Baby Arrives." Seal them in envelopes. Write about what you admire about your partner, what you're excited about, or a promise you want to make as a parent. Tuck them away somewhere safe. You'll read them together in about 30 weeks — and it will be one of the most meaningful things you've ever done.
+Write each other a short "Open When the Baby Arrives" letter. Keep it simple: one thing you admire about your partner, one thing you're excited for, and one promise you want to make as a parent. Seal them and save them for later — they'll mean even more when the day comes.

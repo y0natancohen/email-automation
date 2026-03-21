@@ -7,43 +7,33 @@ day: 2
 # Week 34, Day 2
 
 ## 👶 Baby Development
-Your baby's lungs are producing surfactant — a substance that keeps the air sacs in the lungs from sticking together. This is one of the last major milestones before baby is fully ready for breathing on their own. The brain is also growing rapidly, with the surface developing more grooves and folds, increasing the surface area for all those neural connections.
-
-## 🤰 What Mom Might Be Feeling
-Heartburn might be making a fierce comeback (or never left). As the uterus pushes up against the stomach, acid reflux can be relentless. Your partner might also be noticing more frequent Braxton Hicks — which is perfect timing for today's Q&A answer. She may feel short of breath during simple activities like climbing stairs.
-
-## 🍽️ Nutrition Tip
-For heartburn relief, encourage smaller, more frequent meals rather than three big ones. Avoid lying down right after eating — wait at least 30 minutes. Ginger tea can help settle the stomach, and sleeping slightly propped up on pillows can reduce nighttime reflux. Avoid spicy, fatty, and acidic foods close to bedtime.
-
-## 💪 Exercise & Movement
-**Exercise Focus:** Pelvic floor exercises are your partner's best friend right now. Kegels help strengthen the muscles that support the uterus, bladder, and bowels — all of which are under serious pressure. Here's how: squeeze the muscles used to stop the flow of urine, hold for 5 seconds, release for 5 seconds. Repeat 10 times, three times a day. These same muscles will be important for postpartum recovery too.
-
-Bonus: squats (holding onto a chair for support) can help open the pelvis and prepare for labor. Even 5-10 gentle squats a day make a difference.
-
-## 💡 Tip for Dad
-Learn the signs of preterm labor, not to scare you, but to empower you. If your partner experiences regular contractions (every 10 minutes or more frequently), fluid leaking from the vagina, pelvic pressure that comes and goes, or lower back pain that doesn't go away — call your care provider. At 34 weeks, it's worth being cautious.
-
-## 💬 Conversation Starter
-"Is there anything about labor or delivery that you're nervous about that we haven't talked about yet?" Creating a safe space to share fears — without trying to "fix" them — can be incredibly bonding.
+Your baby's lungs are producing surfactant — the substance that keeps the air sacs from sticking together, and one of the last major milestones before the baby is fully ready to breathe independently. The brain is growing rapidly, its surface developing more grooves and folds that increase the area available for neural connections.
 
 ## 🎉 Fun Fact
-Your baby is now urinating about a pint a day into the amniotic fluid. Sounds odd, but it's completely normal and actually helps maintain the right amount of amniotic fluid. The fluid is constantly recycled — baby swallows it, processes it through the kidneys, and... well, you get the picture.
+Your baby is now urinating about a pint a day into the amniotic fluid. It sounds odd, but it's completely normal and actually helps maintain the right fluid volume. The cycle is continuous: the baby swallows fluid, processes it through the kidneys, and sends it back out — a constant recycling system.
+
+## 🤰 What Mom Might Be Feeling
+Heartburn might be making a fierce comeback as the uterus pushes against the stomach. The Mom may also be noticing more frequent Braxton Hicks contractions, and shortness of breath during simple activities like climbing stairs is common at this stage.
+
+## 🍽️ Nutrition Tip
+For heartburn relief, smaller and more frequent meals work better than three big ones. Avoid lying down right after eating — wait at least 30 minutes. Ginger tea can settle the stomach, and sleeping slightly propped up reduces nighttime reflux. Steer clear of spicy, fatty, and acidic foods close to bedtime.
+
+## 💪 Exercise & Movement
+Pelvic floor exercises are the Mom's best friend right now. Kegels strengthen the muscles that support the uterus, bladder, and bowels — all under serious pressure at this point. The technique: squeeze the muscles used to stop the flow of urine, hold for five seconds, release for five seconds, repeat ten times, three times a day. These same muscles will be important for postpartum recovery.
+
+Add a few gentle supported squats (holding onto a chair) to help open the pelvis. Even five to ten a day makes a difference.
+
+## 💡 Tip for Dad
+Learn the signs of preterm labor — not to scare you, but to empower you. If the Mom experiences regular contractions (every 10 minutes or more frequently), fluid leaking from the vagina, persistent pelvic pressure, or lower back pain that doesn't go away, call your care provider. At 34 weeks, being cautious is always the right call.
+
+## 💬 Conversation Starter
+"Is there anything about labor or delivery that you're nervous about that we haven't talked about yet?" Creating a safe space to share fears — without trying to fix them — can be incredibly bonding.
 
 ## 🤔 Yesterday's Answer
-**Real contractions vs. Braxton Hicks — here's how to tell:**
+Real contractions vs. Braxton Hicks — here's how to tell:
 
-**Braxton Hicks (practice contractions):**
-- Irregular — no consistent pattern
-- Usually painless, just uncomfortable tightness
-- Stop when you change position, walk around, or drink water
-- Usually felt in the front of the abdomen
-- Don't get stronger over time
+Braxton Hicks (practice contractions) are irregular with no consistent pattern, usually painless with just uncomfortable tightness, and they stop when you change position, walk around, or drink water. They're usually felt in the front of the abdomen and don't get stronger over time.
 
-**Real labor contractions:**
-- Come at regular intervals that get closer together
-- Get progressively stronger and longer
-- Don't stop when you move, rest, or hydrate
-- Often start in the back and radiate to the front
-- Accompanied by other signs (water breaking, bloody show, pressure)
+Real labor contractions come at regular intervals that get closer together, get progressively stronger and longer, and don't stop when you move, rest, or hydrate. They often start in the back and radiate to the front, and may be accompanied by other signs like water breaking, bloody show, or intense pressure.
 
-**The 5-1-1 rule:** Head to the hospital when contractions are **5 minutes apart**, lasting **1 minute each**, for at least **1 hour**. Your care provider may have slightly different guidelines, so confirm at your next appointment.
+The 5-1-1 rule: head to the hospital when contractions are 5 minutes apart, lasting 1 minute each, for at least 1 hour. Confirm your provider's specific guidelines at the next appointment.

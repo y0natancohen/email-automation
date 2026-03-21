@@ -6,52 +6,29 @@ day: 3
 
 # Week 11, Day 3
 
+## 🎉 Fun Fact
+Your baby's intestines are growing so rapidly that they temporarily extend into the umbilical cord — there simply isn't enough room in the abdomen yet. This happens to every human during development and is completely normal. Over the next week or two, the intestines will migrate back inside as the body grows to accommodate them.
+
 ## 👶 Baby Development
-Your baby is getting hairy — well, the beginnings of it. Hair follicles are forming across the entire body this week. These follicles will eventually produce lanugo, a fine downy hair that covers the baby in the womb (starting around week 14). Lanugo helps regulate body temperature and keeps the vernix caseosa (a waxy protective coating) stuck to the skin. Most lanugo is shed before birth, but some babies are born with traces of it, especially on the shoulders and back. Meanwhile, your baby's body is straightening out — less curled-up shrimp, more tiny human.
+Hair follicles are forming across the entire body this week. These will eventually produce lanugo — a fine downy hair that covers the baby starting around week 14. Lanugo helps regulate body temperature and keeps the vernix caseosa (a waxy protective coating) anchored to the skin. Most of it sheds before birth, but some babies arrive with traces on the shoulders and back. Meanwhile, your baby's posture is straightening out — less curled-up shrimp, more tiny human.
 
 ## 🤰 What Mom Might Be Feeling
-Heartburn and indigestion may make an appearance this week. Progesterone relaxes the valve between the stomach and esophagus, allowing stomach acid to creep upward. This tends to worsen as pregnancy progresses and the uterus pushes against the stomach. Some tips: eat smaller, more frequent meals; avoid lying down right after eating; skip spicy and acidic foods if they're triggers; and keep the head of the bed slightly elevated. Antacids like Tums are generally safe during pregnancy but check with the doctor about specific brands.
+Heartburn may make an appearance this week. Progesterone relaxes the valve between the stomach and esophagus, letting acid creep upward — and this tends to worsen as pregnancy progresses. Helpful strategies: smaller, more frequent meals; staying upright after eating; avoiding spicy and acidic triggers; and keeping the head of the bed slightly elevated. Antacids like Tums are generally safe, but check with the doctor about specific brands.
 
 ## 🍽️ Nutrition Tip
-**Protein Power Bowl (Full Recipe)**
-
-Protein is essential for your baby's rapid cell growth. This bowl is packed with it.
-
-**Ingredients:**
-- 1 cup cooked quinoa
-- 1/2 cup edamame (shelled)
-- 1/4 avocado, sliced
-- 1 soft-boiled egg (cook for 7 minutes for a jammy yolk)
-- Handful of cherry tomatoes, halved
-- 1 tbsp tahini
-- 1 tbsp soy sauce or tamari
-- Squeeze of lemon
-- Sesame seeds for garnish
-
-**Steps:**
-1. Cook quinoa according to package directions. Let cool slightly.
-2. Arrange quinoa in a bowl. Top with edamame, avocado, egg, and tomatoes.
-3. Whisk tahini, soy sauce, and lemon juice together for the dressing.
-4. Drizzle dressing over the bowl. Sprinkle with sesame seeds.
-5. Eat immediately. Takes 15 minutes total.
-
-This bowl delivers about 25 grams of protein — roughly a third of the daily pregnancy requirement.
+Protein is essential for rapid cell growth right now. A simple power bowl hits the mark: cooked quinoa topped with edamame, avocado, a soft-boiled egg, cherry tomatoes, and a tahini-soy-lemon dressing. Takes about 15 minutes and delivers roughly 25 grams of protein — about a third of the daily pregnancy requirement.
 
 ## 💪 Exercise & Movement
-**Shoulder and Upper Back Release (5 minutes):**
-Sitting or standing, clasp hands behind the back. Gently lift the arms while squeezing shoulder blades together. Hold for 10 seconds. Release. Repeat 5 times. Then, interlace fingers in front of the chest, round the upper back, and push hands forward. Hold 10 seconds. This counteracts the forward-hunching posture that becomes common as breasts grow and the body changes.
+A quick shoulder and upper back release can counteract the forward-hunching posture that becomes common as breasts grow. Clasp hands behind the back, gently lift while squeezing shoulder blades together, and hold for 10 seconds. Then interlace fingers in front, round the upper back, and push hands forward. Five repetitions of each takes under five minutes.
 
 ## 💡 Tip for Dad
-Run an errand she's been putting off. Is there a prescription to pick up? Groceries to grab? A bill to pay? Don't ask "do you need anything?" — she might say no out of politeness or exhaustion. Instead, notice what needs doing and just do it. The magic is in removing items from her mental load without being asked. That's partnership in action.
+Run an errand she's been putting off — a prescription, groceries, a bill. Don't ask "do you need anything?" (she might say no out of politeness or exhaustion). Instead, notice what needs doing and just do it. The magic is in removing items from her mental load without being asked.
 
 ## 💬 Conversation Starter
-"What's one thing from your childhood home — a smell, a sound, a feeling — that you'd love our child to experience?" Maybe it's the smell of challah baking, or the sound of family gathered around a table. These sensory memories run deep.
-
-## 🎉 Fun Fact
-Your baby's intestines are currently growing so rapidly that they temporarily extend into the umbilical cord because there's simply not enough room in the abdomen. This is completely normal and happens to every human during development. Over the next week or two, the intestines will migrate back into the abdominal cavity as the body grows to accommodate them. If you think about it, your baby is temporarily wearing its intestines outside its body — and that's by design.
+What's one thing from your childhood home — a smell, a sound, a feeling — that you'd love your child to experience? Maybe it's challah baking, or the sound of family gathered around a table. Sensory memories run deep.
 
 ## 😴 Sleep Tip
-If your partner is experiencing vivid or bizarre dreams, she's not alone. Pregnancy dreams are famously intense, thanks to hormonal changes and more frequent waking during the night (which means more dream recall). Common themes include water, animals, buildings, and babies — though some are just plain weird. These dreams are normal and harmless. If nightmares are causing anxiety, talking about them can help take away their power. Keep a notepad by the bed — sometimes writing them down defuses the stress.
+If the Mom is experiencing vivid or bizarre dreams, she's not alone. Pregnancy dreams are famously intense, thanks to hormonal changes and more frequent nighttime waking (which means more dream recall). These dreams are normal and harmless. If nightmares are causing anxiety, talking about them can help take away their power.
 
-## 💼 Workplace Pregnancy Tip
-If your partner is experiencing "pregnancy brain" (forgetfulness, difficulty concentrating), it's not imaginary. Research published in the Medical Journal of Australia confirmed that cognitive function can be slightly affected during pregnancy, particularly in the third trimester, but some women notice it earlier. Practical coping strategies: use to-do lists, set phone reminders for important tasks, keep a work notebook for meeting notes, and be forgiving of herself. It's temporary and has nothing to do with competence.
+## 💼 Workplace Tip
+"Pregnancy brain" — forgetfulness, difficulty concentrating — is real, not imagined. Research confirms that cognitive function can be slightly affected during pregnancy. Practical strategies: to-do lists, phone reminders, a work notebook for meeting notes, and self-compassion. It's temporary and has nothing to do with competence.
