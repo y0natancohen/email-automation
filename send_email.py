@@ -51,12 +51,12 @@ def parse_markdown_file(filepath):
     return frontmatter, body
 
 
-def get_pregnancy_day(config):
-    """Calculate current pregnancy week and day based on config start date."""
+def get_pregnancy_day(recipient, override_date=None):
+    """Calculate current pregnancy week and day based on recipient's start date."""
     israel_tz = timezone(timedelta(hours=2))
-    now = datetime.now(israel_tz).date()
-    start_date = datetime.strptime(config["pregnancy_start_date"], "%Y-%m-%d").date()
-    start_week = config["pregnancy_start_week"]
+    now = override_date if override_date else datetime.now(israel_tz).date()
+    start_date = datetime.strptime(recipient["pregnancy_start_date"], "%Y-%m-%d").date()
+    start_week = recipient["pregnancy_start_week"]
 
     days_elapsed = (now - start_date).days
 
@@ -72,7 +72,7 @@ def get_pregnancy_day(config):
     return week, day, now
 
 
-def build_email(config, sender, week, day, today):
+def build_email(recipient_email, sender, week, day, today):
     """Build the email message for the given pregnancy week and day."""
     content_path = Path(f"content/week-{week}/day-{day}.md")
 
@@ -102,7 +102,7 @@ def build_email(config, sender, week, day, today):
     # Build email message
     msg = MIMEMultipart("alternative")
     msg["From"] = f"Daily Baby <{sender}>"
-    msg["To"] = ", ".join(config["recipients"])
+    msg["To"] = recipient_email
     msg["Subject"] = subject
 
     # Plain text fallback
@@ -127,34 +127,28 @@ def main():
 
     # Allow overriding the date for testing (YYYY-MM-DD format)
     test_date = os.environ.get("TEST_DATE")
+    override_date = None
     if test_date:
-        # Override the start date calculation with a specific date
         override_date = datetime.strptime(test_date, "%Y-%m-%d").date()
-        start_date = datetime.strptime(config["pregnancy_start_date"], "%Y-%m-%d").date()
-        start_week = config["pregnancy_start_week"]
-        days_elapsed = (override_date - start_date).days
-        if days_elapsed < 0:
-            print("Test date is before pregnancy start date.")
-            return
-        week = start_week + days_elapsed // 7
-        day = days_elapsed % 7 + 1
-        today = override_date
-    else:
-        week, day, today = get_pregnancy_day(config)
 
-    if week is None:
-        print("No email to send today (outside pregnancy date range).")
-        return
+    for recipient in config["recipients"]:
+        email = recipient["email"]
 
-    print(f"Pregnancy Week {week}, Day {day} ({today})")
+        week, day, today = get_pregnancy_day(recipient, override_date)
 
-    msg = build_email(config, gmail_address, week, day, today)
-    if msg is None:
-        print("No content available for today. Skipping.")
-        return
+        if week is None:
+            print(f"No email to send to {email} today (outside pregnancy date range).")
+            continue
 
-    send_email(msg, gmail_address, gmail_password, config["recipients"])
-    print(f"Email sent to {config['recipients']} — Week {week}, Day {day}")
+        print(f"{email}: Pregnancy Week {week}, Day {day} ({today})")
+
+        msg = build_email(email, gmail_address, week, day, today)
+        if msg is None:
+            print(f"No content available for {email} today. Skipping.")
+            continue
+
+        send_email(msg, gmail_address, gmail_password, [email])
+        print(f"Email sent to {email} — Week {week}, Day {day}")
 
 
 if __name__ == "__main__":

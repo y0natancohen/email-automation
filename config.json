@@ -1,9 +1,16 @@
 {
-  "recipients": [
-    "yonayonatan@gmail.com"
-  ],
   "subject": "Daily Baby",
   "timezone": "Asia/Jerusalem",
-  "pregnancy_start_week": 10,
-  "pregnancy_start_date": "2026-03-19"
+  "recipients": [
+    {
+      "email": "yonayonatan@gmail.com",
+      "pregnancy_start_week": 10,
+      "pregnancy_start_date": "2026-03-19"
+    },
+    {
+      "email": "n.winkler8@gmail.com",
+      "pregnancy_start_week": 10,
+      "pregnancy_start_date": "2026-03-16"
+    }
+  ]
 }
