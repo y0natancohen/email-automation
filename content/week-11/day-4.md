@@ -1,34 +1,37 @@
 ---
-subject: "Week 11, Day 4 — Those Tiny Hands Can Now Open and Close Into Fists ✊"
+subject: "Week 11, Day 5 — Your Baby's Face Is Looking Unmistakably Human 👤"
 week: 11
-day: 4
+day: 5
 ---
 
-# Week 11, Day 4
+# Week 11, Day 5
 
 ## 🎉 Fun Fact
-Your baby can already hiccup, and it's happening regularly. These are caused by sudden contractions of the developing diaphragm — essentially practice for the breathing movements needed after birth. You can't feel them yet, but later in pregnancy, fetal hiccups show up as a rhythmic, repetitive tapping, distinctly different from kicks and rolls.
+Your baby's bone marrow is starting to produce white blood cells — the foundation of the immune system. But newborns are born with very little immune protection of their own. Instead, they rely on antibodies passed from the mother through the placenta during the third trimester and through breast milk after birth. This "borrowed" immunity protects the baby during their most vulnerable first months.
 
-## ✊ Baby Development
-Those tiny fingers can now open wide and close into fists. The movements are still reflexive, but the motor pathways between brain and muscles are forming rapidly. The palms are developing touch sensitivity, and the head now makes up about half the body length, down from two-thirds just a few weeks ago. Proportions are shifting toward something more recognizably baby-like.
+## 👤 Baby Development
+If you could see your baby right now, you'd recognize a human face. The eyes are closer together, ears are nearly in their final position, and the nose has a distinct bridge and tip. The mouth can open and close, and the tongue is fully formed and busy exploring. Your baby weighs about 8 grams — roughly two sheets of paper — but is gaining mass rapidly as bones harden and muscles develop.
 
 ## 🤰 What Mom Might Be Feeling
-The Mom's sense of balance may feel slightly off. The growing uterus is shifting her center of gravity, and hormonal changes are loosening ligaments and joints — especially in the pelvis, in preparation for birth. She may feel more clumsy or unsteady than usual. Supportive shoes become more important now. Many women also report that evenings are the hardest, when fatigue compounds the hormonal shifts.
+The Mom might be in that awkward in-between stage — clothes fitting differently but no obvious bump. The uterus is rising above the pelvic bone, and bloating adds to the effect. Elastic waistbands, belly bands, and the hair-tie-through-the-buttonhole trick can bridge the gap until maternity wear makes sense. Some women also experience increased saliva production (ptyalism), which is annoying but harmless.
 
 ## 🍽️ Nutrition Tip
-Iodine is an unsung hero of pregnancy nutrition — essential for brain development and thyroid function. The pregnancy requirement is 220 micrograms per day. Most people get iodine from iodized salt, dairy, eggs, and fish. Many prenatal vitamins contain it, but not all — check the label. If the Mom mainly uses sea salt or kosher salt for cooking, those typically aren't iodized.
+Choline is often overlooked but critical for brain development. The recommended intake during pregnancy is 450 mg per day, and many prenatal vitamins don't contain enough. Best food sources: eggs (about 150 mg each), chicken, fish, and soybeans. Two eggs at breakfast plus a cup of broccoli gets you well on your way.
 
 ## 💪 Exercise & Movement
-Wall push-ups are a great pregnancy-safe upper body exercise. Stand about arm's length from a wall, hands flat at shoulder height, and bend the elbows to bring the chest toward the wall, then push back. Three sets of 12. Stronger arms and shoulders will be incredibly useful for carrying, feeding, and soothing a newborn.
+The butterfly stretch is a simple way to open the hips and stretch the inner thighs. Sit on the floor with the soles of the feet together, knees out to the sides, and gently press knees toward the floor using the elbows. Hold for 20-30 seconds. Follow with a seated spinal twist for good measure. Both can be done while watching TV.
 
 ## 💡 Tip for Dad
-Write down three questions for the next prenatal appointment. Having questions prepared shows you're engaged. Good ones for this stage: when to schedule first-trimester screening, whether any additional tests make sense given your ages and history, and what warning signs to watch for.
+Take something completely off her plate today — not a shared task, but something that's been her responsibility. Booking an appointment, researching car seats, organizing a closet. Don't offer to help — own it entirely. The mental load of pregnancy planning falls disproportionately on women, and actively taking things over changes that dynamic.
 
-## 🔬 Deep Dive: The Nuchal Translucency (NT) Scan
-The NT scan is typically performed between 11 weeks + 5 days and 13 weeks + 6 days. It measures the fluid-filled space at the back of the baby's neck using ultrasound. Combined with blood work (free beta-hCG and PAPP-A) and maternal age, it gives a risk estimate for chromosomal conditions. This is a screening, not a diagnostic test — a high-risk result means further testing may be offered. For many couples, this ultrasound is also the most detailed look at the baby so far, and it can be deeply emotional.
+## 💡 Yesterday's Q&A Answer
+Yesterday we asked: does fetal heart rate predict the baby's sex? The answer is no. A large study analyzing over 10,000 pregnancies found no significant difference in heart rate between male and female fetuses at any gestational age. Fun to guess, but not reliable science.
 
 ## 💬 Conversation Starter
-What do you think will be the hardest adjustment when the baby comes? And what do you think will come naturally? The goal isn't to have all the answers — it's to know you're both thinking about it.
+Who do you want in the delivery room? Some couples want it to be just the two of them; some want a mother or doula present. Aligning expectations now prevents surprises later.
 
-## 🤔 Question of the Day
-Your baby's heart is beating at around 160-170 beats per minute right now. There's an old wives' tale that higher heart rate means girl, lower means boy. Is there any truth to it? We'll reveal what the research says tomorrow.
+## 🧠 Mental Health Check-In
+You might feel like a spectator in this pregnancy — watching the Mom go through physical changes while you stand on the sidelines. That feeling is common among expectant fathers. But you're a participant every time you attend an appointment, manage a worry, handle logistics, or simply show up. Your role looks different from hers, but it's not less important.
+
+## 💕 Intimacy Note
+Physical touch doesn't always have to lead somewhere. The Mom might crave a long hug, having her hair played with, a foot rub, or just lying together — without it being a prelude to anything. For many pregnant women, the need for non-sexual physical affection increases during the first trimester. Sometimes the most intimate thing you can do is hold her while she falls asleep.

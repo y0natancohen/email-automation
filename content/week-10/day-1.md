@@ -1,41 +1,34 @@
 ---
-subject: "Week 10, Day 1 — Your Baby Just Lost Its Tail! Welcome to Double Digits 🎉"
+subject: "Week 10, Day 2 — Tiny Tooth Buds Are Forming Beneath the Gums 🦷"
 week: 10
-day: 1
+day: 2
 ---
 
-# Week 10, Day 1
+# Week 10, Day 2
 
-## 🌒 This Week at a Glance
-Welcome to week 10 — double digits. This is a landmark week. Your baby is about the size of a strawberry, measuring roughly 3 cm (1.2 inches) and weighing around 4 grams. Over the next several days, tooth buds are forming beneath the gums, bones and cartilage are replacing softer tissue, the outer ears are taking shape, and one of the most remarkable milestones is now complete: the tiny embryonic tail is gone. This is also the week when first-trimester screening and NIPT may begin.
-
-Perhaps the biggest headline: your baby is now officially called a fetus. It's a small change in word, but a major step in development.
+## 🦷 Baby Development
+Today's spotlight: tooth buds. Tiny clusters of cells are forming beneath the gum line — these will eventually become 20 baby teeth, though they won't cut through until around six months after birth. Meanwhile, the outer ears are migrating from near the neck toward their final position on the sides of the head. The head is still large compared to the body, but proportions are starting to even out.
 
 ## 🎉 Fun Fact
-Your baby's heart is already divided into four chambers and beating at 170+ beats per minute — about twice as fast as an adult heart. For something so tiny, it's doing an incredible amount of work already.
-
-## 👶 Baby Development
-All the major organs are now formed and beginning to mature, including the heart, brain, kidneys, liver, lungs, and digestive system. The face is becoming more defined, the body is lengthening, and your baby is looking more recognizably human by the day. Even though everything is still tiny, the foundations are very much in place.
+Your baby is moving almost constantly right now — stretching, kicking, wiggling, even hiccupping. But at just over an inch long, these movements are far too small for the Mom to feel. She won't notice kicks until around weeks 18-22. For now, your little one is doing gymnastics in a space the size of a tennis ball.
 
 ## 🤰 What Mom Might Be Feeling
-The Mom may still be deep in the first-trimester fog: nausea, exhaustion, smell sensitivity, bloating, and mood shifts. There isn't much of a visible bump yet, but her uterus is now about the size of a grapefruit, so clothes may already feel a little less comfortable. Some women also notice a metallic taste in their mouth.
+Fatigue might feel relentless. The Mom's body is building an entirely new organ — the placenta — while growing a human, and that takes enormous energy. Breast tenderness often peaks around now, and visible veins may appear on the chest as blood volume increases. Food aversions tend to be strongest at this stage but usually ease in the coming weeks.
 
 ## 🍽️ Nutrition Tip
-This is a great week to lean into folate-rich foods, since folate remains essential for early development. A simple lentil soup is an easy win: comforting, filling, and packed with nutrients.
-
-Try this version: saut onion and garlic in olive oil, add diced carrot, cumin, red lentils, and vegetable broth, then simmer until soft and finish with lemon juice. It's simple, gentle on the stomach, and easy to make ahead. One cup of cooked lentils provides a big folate boost, making it a smart pregnancy staple.
+If nausea is making big meals impossible, try the "six small meals" approach. Keep crackers, nuts, and dried fruit within reach. Ginger tea or ginger chews can genuinely help — studies back this up. A squeeze of lemon in water first thing in the morning can settle the stomach, and cold foods tend to be easier to tolerate than hot ones since they give off less smell.
 
 ## 💪 Exercise & Movement
-A 20-minute walk is perfect for today. Gentle movement can support circulation, lift mood, and sometimes even help with nausea. If the Mom was active before pregnancy, she can generally continue her usual exercise routine with some modifications. The goal is not intensity — just movement that feels good and stays comfortable.
+A simple 10-minute prenatal stretching routine can make a real difference today — try alternating between cat-cow stretches, gentle side stretches, hip circles, and calf raises. Nothing intense, just enough to ease tension and get the body moving.
+
+## 🏋️ Pelvic Floor Focus
+The pelvic floor supports the uterus, bladder, and bowel — and as the baby grows, these muscles carry more weight. Starting Kegel exercises now helps prevent incontinence and can make delivery easier. The technique: squeeze as though stopping the flow of urine, hold for five seconds, relax for five. Three sets of ten per day, anywhere, anytime.
 
 ## 💡 Tip for Dad
-Today is a good day to open a pregnancy tracking app or weekly update together. Seeing what's happening this week can make everything feel more real, especially at a stage when so much is changing behind the scenes.
+Stock up on ginger ale, crackers, and whatever the Mom's current "safe foods" are. Don't take it personally if she can't eat what you made — food aversions are involuntary. Having her go-to snacks ready shows you're paying attention.
 
 ## 💬 Conversation Starter
-When did this start feeling real to you? Was it the positive test, hearing the heartbeat, or has it still not fully landed yet? There's no wrong answer, and comparing notes can be surprisingly meaningful.
+What's one tradition from your family that you'd love to carry on with your kid? And is there anything you'd do differently?
 
-## 🤔 Question of the Day
-Fingers are separating this week — but fingerprints come later. When do you think those unique fingerprints actually develop: week 13, week 17, or week 23? Take a guess — we'll reveal the answer tomorrow.
-
-## 👫 Couple Activity
-Write each other a short "Open When the Baby Arrives" letter. Keep it simple: one thing you admire about your partner, one thing you're excited for, and one promise you want to make as a parent. Seal them and save them for later — they'll mean even more when the day comes.
+## 💡 Yesterday's Q&A Answer
+Yesterday we asked: when do fingerprints form? The answer is around week 13. The friction ridges on your baby's fingertips will create a pattern that is entirely unique — no one in history has ever had the same fingerprints as your child. Not even identical twins share them.

@@ -1,39 +1,37 @@
 ---
-subject: "Week 27, Day 5 — Your Baby Weighs as Much as a Head of Broccoli! 🥦"
+subject: "Week 27, Day 6 — Slowing Down and Soaking It In 🕯️"
 week: 27
-day: 5
+day: 6
 ---
 
-# Week 27, Day 5
+# Week 27, Day 6
 
 ## 👶 Baby Development
-Your baby now weighs about 2 pounds and is building up body fat to help regulate temperature after birth. The skin is still a bit wrinkled but starting to smooth out as fat deposits increase. The lungs continue producing more surfactant — a critical step toward independent breathing.
+Your baby's immune system is developing steadily. Antibodies are transferring from the Mom through the placenta, building defenses for the outside world. This passive immunity will protect your newborn during the first few months of life until their own immune system kicks in — one of the many remarkable ways the Mom's body is preparing the baby for life on the outside.
 
 ## 🎉 Fun Fact
-Your baby responds to touch. If the Mom presses gently on her belly, the baby might push back or shift position. Try it tonight — place your hand on the belly and press very gently. You might get a little push or kick in response. It's one of the earliest forms of parent-baby interaction.
+Your baby can now tell the difference between daylight and darkness. If the Mom shines a bright light on her belly, the baby might turn toward or away from it. Some researchers suggest this early light sensitivity helps set the baby's circadian rhythm even before birth.
 
 ## 🤰 What Mom Might Be Feeling
-Hormonal changes in the third trimester can bring a rollercoaster of emotions — deeply connected to the baby one moment, overwhelmed by everything that needs to happen before birth the next. Vivid, bizarre dreams are also common, driven by pregnancy hormones plus anxiety about the unknown. Completely normal.
+By Friday, the Mom might be ready for a slower weekend. Third-trimester fatigue is real. She might notice increased pelvic pressure as the baby grows and the weight shifts lower. Hemorrhoids and constipation can also become more prominent — not glamorous, but very common. Plenty of water, fiber-rich foods, and gentle movement all help.
 
 ## 🍽️ Nutrition Tip
-Calcium is crucial now as the baby's bones develop rapidly. If the Mom isn't getting enough, her body will pull it from her own bones. Good sources include yogurt, cheese, fortified orange juice, tofu, and leafy greens like kale. Aim for about 1,000 mg per day — a cup of yogurt with breakfast and some cheese at lunch gets most of the way there.
-
-## 🤔 Weekly Q&A — Answer
-Wednesday's question: When should we start thinking about a birth plan?
-
-Now is a perfect time. A birth plan communicates your preferences to your medical team. Consider including preferred pain management, who you want in the room, preferences about movement during labor, thoughts on interventions, skin-to-skin contact after birth, and feeding preferences. Remember — a birth plan is a wish list, not a contract. Flexibility is important. Start the conversation with the Mom and your healthcare provider in the coming weeks.
+For a nourishing Shabbat meal, try honey-glazed chicken with roasted root vegetables: toss chicken thighs with honey, olive oil, soy sauce, and garlic, then roast alongside cubed sweet potatoes, carrots, and parsnips at 200 C for 40 minutes. The sweet potatoes add a great dose of vitamin A. For something heartier, a slow cooker beef and black bean chili combines iron from beef with plant-based iron from beans — the vitamin C from tomatoes and bell pepper boosts absorption from both sources.
 
 ## 💪 Exercise & Movement
-Squats are a fantastic third-trimester exercise — they strengthen legs and pelvic floor and help prepare the body for labor positions. Try wall squats (lean against a wall, slide down until comfortable, hold for 10 seconds) or supported squats holding a chair for balance. Start with 5-10 reps. Doing them together is more fun and harder than it looks.
+Today, encourage gentle stretching and rest. A short prenatal yoga session — even just 15 minutes — can release tension from the week. Focus on hip openers like modified pigeon pose with a pillow under the hip, which helps create space in the pelvis and eases pelvic pressure.
 
-## 🧠 Mental Health Check-In
-The third trimester can trigger anxiety about birth, parenthood, and all the changes ahead. Check in with each other: "How are you really feeling about everything?" Don't try to fix each other's worries — sometimes just being heard is enough. If anxiety feels overwhelming or persistent, don't hesitate to talk to a professional. Prenatal anxiety is common and very treatable.
+## 💰 Financial Tip
+Start mapping out baby expenses. You don't need everything brand-new — many baby items are used for such a short time that secondhand gear is practically new. Focus your budget on the essentials: a safe car seat (always buy new), a crib with a firm mattress, diapers, and basic clothing. Resist the urge to buy every gadget marketed to new parents — you'll figure out what you actually need after the baby arrives.
 
 ## 💡 Tip for Dad
-Many new dads don't expect the emotional weight of the third trimester. You might find yourself worrying more — about finances, about being a good father, about the birth itself. These feelings are valid and completely normal. If you need to talk, reach out to a friend who's been through it, or consider an online community for expecting dads. You don't have to process everything alone.
+As Shabbat approaches, consider making Friday evenings your dedicated connection time. Put the phones away, light candles, and be fully present together. These quiet evenings as just the two of you are numbered — not in a sad way, but in a "this chapter is beautiful, and a new one is beginning" way.
 
-## 💕 Intimacy Note
-Physical intimacy can look different in the third trimester — and that's okay. The growing belly means some positions might not work anymore. But intimacy isn't just physical. Holding hands, foot rubs, cuddling on the couch, or sitting together in comfortable silence all count. Keep the connection alive in whatever way feels right for both of you.
+## 🧘 Mindfulness Moment
+Before Shabbat tonight, sit quietly together with a hand on the belly and take five deep breaths. With each exhale, imagine sending calm, loving energy to your baby. Stepping out of the busyness of preparation and into this kind of intentional pause is what helps you stay connected to the joy of this experience.
 
 ## 💬 Conversation Starter
-"What do you think our parenting strengths will be? Where do you think we'll complement each other?"
+"What family traditions from our own childhoods do we want to continue? What new traditions should we create?"
+
+## 🕯️ Shabbat Activity
+Over dinner, each of you share your earliest childhood memory. Then share a memory of a moment that made you think "I want to be a parent someday." Finish by each naming one thing you want your child's earliest memories to include.

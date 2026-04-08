@@ -1,37 +1,37 @@
 ---
-subject: "Week 11, Day 6 — Shabbat Shalom: Almost Out of the First Trimester 🕯️"
+subject: "Week 11, Day 7 — One More Week Until the First Trimester Finish Line 🏁"
 week: 11
-day: 6
+day: 7
 ---
 
-# Week 11, Day 6
-
-## 🎉 Fun Fact
-In ultrasounds at this stage, babies are frequently seen grabbing, squeezing, and playing with the umbilical cord — it's one of the only objects in their environment, and they're fascinated by it. Don't worry — the cord is tough and designed to withstand being tugged on.
+# Week 11, Day 7
 
 ## 👶 Baby Development
-Your baby's muscles are getting stronger, and movements are becoming more complex — actual stretches and reaches, not just twitches. The diaphragm is practicing contractions that mimic breathing, though the lungs won't function for many more months. The liver is enormous relative to body size — about 10% of total body weight — because it's currently responsible for producing blood cells, a job that will gradually shift to the bone marrow.
+As week 11 wraps up, your baby's fingers and toes are fully separated and moving independently. The spine is clearly defined with distinct vertebrae, and the skull bones are hardening — though they'll remain separated by soft spots (fontanelles) well after birth. That flexibility allows the head to compress slightly during delivery and accommodates the rapidly growing brain during the first year.
+
+## 🎉 Fun Fact
+Your baby currently has about 4 milliliters of amniotic fluid — less than a teaspoon. By full term, that will increase to nearly a liter. The fluid serves as cushion, temperature regulator, movement medium, and nutrient source. The entire supply is replaced every three hours.
 
 ## 🤰 What Mom Might Be Feeling
-The Mom might notice a slight reduction in nausea this week, though every pregnancy is different and some women deal with it well into the second trimester. She may also be feeling anxious about upcoming screening tests — it's normal to be nervous, and it's okay to acknowledge that anxiety rather than push it away. Skin changes like melasma or darkening moles are common at this stage, driven by increased melanin, and usually fade after delivery.
+The Mom is approaching the end of the first trimester, and the finish line is in sight. She might feel a mix of relief and lingering symptoms — nausea, fatigue, breast tenderness. Emotionally, she might feel protective of the pregnancy, wanting to keep things private until screening results come back, or she might be bursting to tell everyone. Both approaches are valid. Let her lead on the timing.
 
 ## 🍽️ Nutrition Tip
-Constipation continues to be a common complaint. Beyond fiber, magnesium-rich foods can help: dark chocolate (in moderation), avocados, black beans, almonds, and bananas. A warm glass of water with lemon first thing in the morning can stimulate digestion, and prune juice remains the classic remedy — even a small glass genuinely works. Remember that fiber without adequate water can actually worsen things.
+A weekend smoothie covers multiple bases in three minutes: blend frozen mango, half a banana, a handful of spinach, Greek yogurt, almond butter, milk, and a squeeze of honey. You get folate, calcium, protein, and potassium in one glass. Make it together — it tastes like a tropical vacation.
 
 ## 💪 Exercise & Movement
-Take a Shabbat stroll together — 20-30 minutes, no agenda, no destination, no phones if possible. Walking is consistently rated one of the best exercises during pregnancy: gentle, effective, and available to everyone. If the weather cooperates, end at a park bench and sit together for a few minutes.
+Rest and recovery today. If the Mom wants to move, a gentle stretch or short walk is plenty. The body does important work during rest — the placenta is still being built, organs are forming, and energy is being directed toward growth. Sometimes the most productive thing is nothing at all.
 
 ## 💡 Tip for Dad
-This Shabbat, add a quiet moment of intention — whether that's lighting candles or simply pausing to acknowledge the week you've had and the life you're creating. Hold her hands, look at each other. No words necessary. Then eat something good.
+Start thinking about how and when you'll share the pregnancy news more broadly. Many couples wait until after first-trimester screening around weeks 12-13. If you're planning something creative, start brainstorming. But remember: the timeline is a joint decision. If she's not ready, it waits.
 
 ## 💬 Conversation Starter
-What's one thing I've done during this pregnancy that made you feel supported? And what's one thing I could do more of? Listen without defending. Adjust. Grow.
+Fast-forward to when your child is five. What does a Sunday look like? Paint the picture together: breakfast, activities, family time, bedtime routine. This kind of future-casting helps align your visions of family life.
 
-## 💰 Financial Tip
-Start looking into maternity and baby gear secondhand. Strollers, cribs, high chairs, and baby clothes are used for such a short time that secondhand items are often in excellent condition. Facebook groups, Yad2, and local parents' WhatsApp groups are great resources in Israel. One important exception: always buy a new car seat — secondhand seats may have been in accidents, and they have expiration dates.
+## 🍼 After-Birth Preview: Newborn Sleep
+A heads-up for later: newborns sleep 14-17 hours per day but never more than 2-4 hours at a stretch. Their stomachs are tiny and need frequent feeding. By 3-4 months, many babies start sleeping longer stretches. By 6 months, some sleep "through the night" — which in baby terms means 5-6 hours. Setting realistic expectations now reduces frustration later.
 
-## 🧘 Mindfulness Moment
-Try a five-minute body scan together. Lie down or sit comfortably, close your eyes, and slowly move attention from the top of the head downward — forehead, jaw, neck, shoulders, chest, belly, hips, legs, feet. At each spot, notice tension and consciously soften it. When you reach the belly, spend an extra moment there.
+## 🙏 Rest & Gratitude
+You've completed 11 weeks. Next week is the end of the first trimester — a major milestone. The miscarriage risk drops significantly after week 12, which often brings a huge wave of relief. Take a moment to appreciate how far you've come.
 
-## 🕯️ Shabbat Couple Activity
-The Name Game, round one: each of you secretly writes down five baby names. At dinner or dessert, take turns revealing one at a time. No immediate vetoes — just listen and let each name sit. You don't need to agree tonight. This is the opening round of what might be one of the most fun (and sometimes heated) conversations of the whole pregnancy.
+## 🔮 Next Week Preview
+Week 12 brings your baby to the size of a lime. Reflexes like sucking and swallowing are developing, kidneys are producing urine, and fingernails are starting to form. The nuchal translucency scan typically happens this week, and reaching week 12 means the miscarriage risk drops dramatically.

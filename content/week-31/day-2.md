@@ -1,48 +1,41 @@
 ---
-subject: "Week 31, Day 2 — REM Sleep and Growing Dreams 💭"
+subject: "Week 31, Day 3 — Turning Heads (Literally!) 🔄"
 week: 31
-day: 2
+day: 3
 ---
 
-# Week 31, Day 2
+# Week 31, Day 3
 
 ## 👶 Baby Development
-Rapid eye movement (REM) sleep is increasing significantly this week. During REM sleep, the brain is extremely active — processing, organizing, and consolidating all the sensory experiences of the day. Some researchers believe REM sleep in the womb plays a crucial role in brain development itself, helping to build and strengthen neural connections. Your baby spends about 50% of their sleep time in REM (compared to about 20% in adults). Those little eyes are darting back and forth behind closed lids, dreaming of... well, we'll never know exactly, but it's beautiful to imagine.
+Your baby can now turn their head from side to side! This shows impressive neck muscle development and coordination. The head-turning reflex is partly driven by sound — your baby may turn toward a familiar voice or away from a loud noise. This reflex will be important after birth, helping the baby find the breast and turn away from things that are overwhelming. The neck muscles are also building strength that will eventually (months from now) support the baby holding their head up independently.
 
 ## 🤰 What Mom Might Be Feeling
-Your partner's joints are becoming looser thanks to the hormone relaxin, which prepares the pelvis for birth. While this is helpful for delivery, it can cause instability in other joints too — she might feel wobbly in the ankles or notice her hips aching after walking. Supportive shoes become really important now (sorry, high heels). A maternity support belt can also help stabilize the pelvis and reduce discomfort during activity.
+Sleep is probably a significant struggle now. Between finding a comfortable position, frequent bathroom trips, leg cramps, and a busy baby who loves to party at midnight, your partner might feel like she hasn't had a full night's sleep in weeks (because she probably hasn't). Daytime naps — even short 20-minute power naps — can make a real difference. If she can, encourage her to nap when the opportunity arises, without feeling guilty about it.
 
 ## 🍽️ Nutrition Tip
-Folate doesn't stop being important after the first trimester! It continues to support the baby's rapid cell division and growth. Great sources: dark leafy greens (spinach, kale, arugula), asparagus, brussels sprouts, lentils, and fortified cereals. A big salad with spinach, lentils, and avocado covers multiple nutrient bases in one meal. And yes, your partner should still be taking her prenatal vitamin — it's the safety net that catches any gaps.
+B vitamins are crucial for energy production, which is something your partner needs plenty of right now. B-12 (found in meat, fish, eggs, and dairy) and B-6 (found in poultry, fish, potatoes, and bananas) are especially important during pregnancy. A simple afternoon snack: a banana with a handful of cashews provides B-6, magnesium, and healthy fats — a natural energy combination that's better than any caffeine hit.
 
 ## 💪 Exercise & Movement
-**Third Trimester Strength: Lower Body Focus**
-Strong legs will serve your partner well during labor. Here's a safe routine:
-- Sumo squats (wide stance, toes pointing outward): 10 reps. Use a chair behind for safety.
-- Side-lying leg lifts: 15 per side
-- Calf raises (holding onto a wall for balance): 15 reps
-- Bridge pose: 10 reps, holding the top position for 5 seconds each
+**Gentle Neck and Shoulder Release:**
+Tension tends to accumulate in the neck and shoulders during pregnancy (especially if your partner is sleeping in new positions). Try these together:
+- Neck rolls: slowly roll the head in a circle, 5 times each direction
+- Shoulder shrugs: raise shoulders to ears, hold 3 seconds, drop. Repeat 10 times.
+- Neck stretches: gently tilt ear toward shoulder, hold 15 seconds each side
+- Cross-body shoulder stretch: pull one arm across the body, hold 15 seconds each side
 
-These exercises also help with circulation and can reduce leg cramps.
+These can be done anywhere, anytime, and provide immediate relief.
 
 ## 💡 Tip for Dad
-Learn the signs of preterm labor (we'll cover this in today's Q&A answer below), and know what to do if they appear. This isn't about being anxious — it's about being prepared. Most pregnancies go to term without incident, but knowing what to watch for means you can respond calmly and quickly if needed. Being informed is one of the most powerful things you can do as a partner.
+Consider writing a letter to your partner — not a text, not a message, but a handwritten letter. Tell her what you admire about how she's handled this pregnancy. Tell her what kind of mother you think she'll be. Tell her that you see the sacrifices she's making and you appreciate them. Keep it real, keep it personal, and give it to her when she needs it most (or now — now works too).
 
 ## 💬 Conversation Starter
-"What's one thing you want to teach our child that you didn't learn until you were an adult?"
+"What's one household routine we should establish before the baby comes? Something that makes our life easier and more organized?"
 
 ## 🎉 Fun Fact
-Your baby can now distinguish between different voices and even different languages! Research shows that newborns prefer the language they heard most in the womb and can distinguish it from other languages within hours of birth. If you and your partner speak different languages at home, your baby is already building the neural foundations for bilingualism.
+Your baby's lungs are now mature enough to produce surfactant consistently, but they're still not quite ready for air. Surfactant production increases dramatically between now and week 36. If your baby were born today, they would likely need some breathing support but would have excellent survival odds (over 95% with neonatal care). Every additional day in the womb makes breathing easier.
 
-## 🤔 Weekly Q&A — Answer
-**Yesterday's question:** What are the signs of preterm labor, and when should we call the doctor?
+## 🛏️ Sleep Tip
+White noise machines aren't just for babies — they can help pregnant women sleep better too. The consistent background sound masks the random noises (traffic, partner's breathing, house creaks) that can wake someone from light sleep. There are also white noise apps that are free and work perfectly. Set the volume low enough that you can still hear an alarm or important sounds, but loud enough to create a consistent sound blanket. Bonus: you can use the same white noise after the baby arrives — it mimics the constant sound environment of the womb and can be incredibly soothing for newborns.
 
-**Answer:** Preterm labor (before 37 weeks) has specific warning signs. Call your doctor or go to the hospital if your partner experiences:
-- **Regular contractions** (every 10 minutes or more frequently) that don't stop with rest or hydration
-- **Change in vaginal discharge** — watery, bloody, or mucus-like discharge that's different from normal
-- **Pelvic pressure** — a feeling that the baby is pushing down
-- **Lower back pain** — constant or rhythmic, different from her usual back pain
-- **Abdominal cramps** — with or without diarrhea
-- **Water breaking** — a gush or steady trickle of fluid
-
-If any of these happen, don't wait to see if they go away. Call your healthcare provider immediately. Early intervention can often stop or slow preterm labor. Most importantly: trust your instincts. If something feels wrong, it's always better to call and be told everything is fine than to wait.
+## 💼 Workplace Tip
+If your partner is planning to take maternity leave soon, encourage her to document her current projects and processes. A clear handover document reduces stress for everyone — her, her colleagues, and her manager. It also makes returning to work easier because she'll have her own notes to reference. For you: if you're planning paternity leave, start the same process. Clear documentation = smooth transitions = less anxiety during a time when your focus should be on your family.

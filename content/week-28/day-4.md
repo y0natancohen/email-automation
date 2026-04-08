@@ -1,34 +1,39 @@
 ---
-subject: "Week 28, Day 4 — Your Baby Is Dreaming Big (Literally!) 💭"
+subject: "Week 28, Day 5 — Baby Might Be Getting Into Position 🔄"
 week: 28
-day: 4
+day: 5
 ---
 
-# Week 28, Day 4
+# Week 28, Day 5
 
 ## 👶 Baby Development
-REM sleep is now a significant part of your baby's day, with the brain processing and organizing all the sensory input it's been receiving. The brain is also starting to control body temperature regulation — a skill that will be critical after birth. Meanwhile, antibodies continue crossing from the Mom via the placenta, building up an immune toolkit for the first months of life.
+Some babies begin shifting into a head-down position around this time, though many won't settle into their final birth position for several more weeks. There's still room to somersault, flip, and rotate, so don't worry if the baby is currently breech or transverse. Fat layers continue building, preparing for temperature regulation outside the womb.
 
 ## 🎉 Fun Fact
-Your baby may already have a head of hair — or they may be completely bald. Hair growth in the womb varies enormously, and the color at birth often changes in the first year. One of life's wonderful surprises.
+Your baby's adrenal glands are now producing cortisol, which helps the lungs mature. It's a brilliant design: the baby's own body is preparing itself for breathing air. Each day in the womb means more surfactant production, making that first breath easier.
+
+## 🤔 Weekly Q&A — Answer
+Wednesday's question: Is it normal for the baby to have hiccups frequently?
+
+Absolutely normal. Fetal hiccups are caused by the diaphragm contracting as it practices breathing movements. They can happen several times a day and are a sign of healthy development. The Mom will feel them as rhythmic, repetitive tapping — very different from kicks or rolls. They usually last a few minutes and stop on their own.
 
 ## 🤰 What Mom Might Be Feeling
-The Mom may notice her breathing feels slightly more labored, especially when climbing stairs or lying down. The growing uterus is pushing against the diaphragm, reducing lung capacity by up to 20%. It's uncomfortable but not harmful — the body compensates by making each breath more efficient, so the baby is getting plenty of oxygen. If shortness of breath is severe or sudden, it's worth checking with the doctor.
+If the Mom is Rh-negative and the baby might be Rh-positive, she may receive a RhoGAM injection around now to prevent complications in future pregnancies. It's a quick, routine step. Beyond that, increased back pain is common at this stage — a maternity support belt can help distribute the weight more evenly.
 
 ## 🍽️ Nutrition Tip
-No-bake energy bites are perfect for combating that third-trimester dip: mix rolled oats, peanut butter, honey, dark chocolate chips, ground flaxseed, and vanilla, then roll into balls and refrigerate. For a calcium-rich dinner, try sesame-ginger tofu and bok choy: pan-fry cubed firm tofu in sesame oil until golden, add halved bok choy, then toss with a sauce of soy sauce, rice vinegar, maple syrup, ginger, and garlic. Half a block of calcium-set tofu provides about 50% of daily calcium needs.
-
-## 🌍 Antibodies and Your Baby's First Immunity
-During the third trimester, IgG antibodies cross the placenta, giving your baby passive immunity against diseases the Mom has been vaccinated against or has fought off naturally. This protection lasts about six months after birth — which is why infant vaccinations start around two months, building up the baby's own immunity while the borrowed antibodies are still at work. If the Mom gets the Tdap vaccine during weeks 27-36, those specific antibodies transfer to the baby too, providing protection during the vulnerable first weeks.
+Protein needs are higher in the third trimester — about 75-100 grams per day. Great sources beyond meat: Greek yogurt (15g per cup), lentils (18g per cup cooked), eggs (6g each), chickpeas (15g per cup), and cottage cheese (14g per half cup). A chickpea salad with an egg on top is an easy way to hit 20+ grams in one meal.
 
 ## 💪 Exercise & Movement
-Hip-opening poses help prepare the pelvis for birth. Try butterfly pose (soles of feet together, gently pressing knees toward the floor), wide-legged seated forward fold, and a deep squat hold using a doorframe or partner for support. Hold each for 30-60 seconds and breathe deeply.
+The pelvic tilt is excellent for back pain relief. On hands and knees, inhale and let the belly drop slightly, then exhale, tuck the pelvis under and round the back. Repeat 10 times slowly. This gently mobilizes the spine, strengthens supporting core muscles, and can help encourage the baby into an optimal position.
+
+## 🧠 Mental Health Check-In
+Let's talk about "imposter syndrome" as a parent-to-be. That voice that says "Am I really ready for this?" — almost every first-time parent hears it. The fact that you're worried about being a good parent is itself evidence that you'll be one. You're going to make mistakes — every parent does — and you'll learn from them. Perfection isn't the goal. Love, presence, and effort are.
 
 ## 💡 Tip for Dad
-Start assembling a "go bag" for yourself. Think: phone charger, snacks, comfortable clothes, toothbrush, deodorant, and maybe a book or headphones for quiet moments. Having it ready early means one less thing to think about when the day arrives.
+Have a candid conversation about the birth plan this week — not a formal document yet, just a talk. How does the Mom feel about pain medication? Does she want to try natural pain management first? Who does she want in the room? Listen more than you talk. This is about understanding her vision so you can support it.
+
+## 💕 Intimacy Note
+The third trimester often brings a shift in desire. The Mom might feel too uncomfortable, too tired, or simply not in the mood — and that's completely okay. Don't take it personally. Try a foot massage tonight with some lotion. It's nurturing, helps with swelling, and communicates love without any pressure.
 
 ## 💬 Conversation Starter
-"Have we decided on a name yet? If not, what are the top contenders? Let's each share our current favorite and why."
-
-## 🤔 Weekly Q&A
-Is it normal for the baby to have hiccups frequently, and should we be worried? Answer coming Thursday!
+"What kind of dad do you think I'll be? What kind of mom do you think you'll be? Let's be honest and encouraging."

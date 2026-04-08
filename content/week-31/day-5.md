@@ -1,56 +1,50 @@
 ---
-subject: "Week 31, Day 5 — Lungs Still Cooking (And That's Okay!) 🫁"
+subject: "Week 31, Day 6 — Nesting, Resting, and Shabbat 🕯️"
 week: 31
-day: 5
+day: 6
 ---
 
-# Week 31, Day 5
+# Week 31, Day 6
 
 ## 👶 Baby Development
-The lungs are one of the last organs to fully mature, and for good reason — they don't need to function until birth. Right now, your baby's lungs are producing increasing amounts of surfactant (the substance that keeps air sacs from collapsing) and the blood vessels within the lungs are developing to prepare for oxygen exchange. The baby practices "breathing" by inhaling and exhaling amniotic fluid, which strengthens the diaphragm and prepares the respiratory muscles. By about week 36, the lungs will be considered fully mature.
+Your baby's nervous system is mature enough to control more body functions now. The pupils can dilate and constrict in response to light, body temperature is being regulated, and the digestive system is practicing its rhythmic muscle contractions (peristalsis). The baby's skin is becoming smoother as more fat accumulates, and the vernix caseosa (the waxy protective coating) is starting to thin in some areas. Your baby is really starting to look like a newborn.
 
 ## 🤰 What Mom Might Be Feeling
-Your partner might be experiencing Braxton Hicks contractions more regularly now. Some women have them several times a day in the third trimester. While they're usually painless, they can be uncomfortable — a tightening sensation that makes the belly feel like a basketball for 30-60 seconds. Dehydration is a common trigger, so staying hydrated is key. If contractions become regular, painful, or are accompanied by other symptoms (bleeding, water breaking, back pain), that's different — call the doctor.
+The nesting instinct might be in full swing. Your partner may have a sudden, irresistible urge to clean the house from top to bottom, organize closets, or set up the nursery — even at 11 PM. This is a real biological phenomenon driven by hormones, and it's actually the body's way of preparing for the baby. Let her nest if she has the energy, but make sure she's not overdoing it physically. Climbing ladders, lifting heavy furniture, or using harsh cleaning chemicals should be avoided. Offer to be the muscle while she directs.
 
 ## 🍽️ Nutrition Tip
-Zinc supports immune function and cell growth — both important for your baby right now. Good sources: beef, pumpkin seeds, chickpeas, yogurt, and dark chocolate (in moderation). A handful of pumpkin seeds is an easy, zinc-rich snack. Sprinkle them on salads, oatmeal, or yogurt. They also provide magnesium and iron, making them a triple-threat snack.
+**Easy Shabbat Side: Roasted Cauliflower with Tahini**
+- 1 large cauliflower, cut into florets
+- 2 tablespoons olive oil
+- 1 teaspoon cumin, 1/2 teaspoon turmeric
+- Salt and pepper
+- Roast at 425°F/220°C for 25-30 minutes until golden
+
+Drizzle with tahini sauce (tahini + lemon juice + garlic + water to thin) and sprinkle with pomegranate seeds and fresh parsley. Beautiful, delicious, and full of vitamins C and K, folate, and fiber.
 
 ## 💪 Exercise & Movement
-Today, try a "labor rehearsal" position: hands and knees. This position:
-- Takes pressure off the back
-- Encourages the baby into an optimal position (head down, facing the spine)
-- Is a common and effective labor position
-- Allows gentle rocking, which can help manage contraction pain
-
-Spend 5-10 minutes on hands and knees today (maybe while watching TV or talking). Rock gently side to side or make slow circles with the hips. This position is one of the most underrated comfort tools in pregnancy and labor.
+A gentle Shabbat walk is a lovely tradition. Today, focus less on exercise and more on being present. Walk slowly, hold hands, and talk about the week. If your partner is experiencing pelvic pain, keep the walk short and flat. If she's feeling energetic, a slightly longer route is fine. The goal is movement that feels good, not movement that feels like a workout.
 
 ## 💡 Tip for Dad
-Here's an important conversation to have: pain management during labor. Your partner has options, and it's helpful to understand them together:
-- **Epidural:** Regional anesthesia that numbs the lower body. Very effective for pain relief. Given by an anesthesiologist.
-- **Gas and air (Entonox):** Inhaled pain relief. Takes the edge off. Self-administered.
-- **Natural techniques:** Movement, breathing, water (bath/shower), massage, heat/cold packs, birthing ball.
-- **Combination approach:** Many women use natural techniques early and add medical options as labor progresses.
-
-The key message: there's no "right" choice. Whatever helps your partner cope is the right approach. And preferences may change during labor — that's completely normal. Your role is to support whatever she needs in the moment.
+This Shabbat, do something that has nothing to do with the baby. It's easy to let every conversation, every plan, and every thought revolve around the impending arrival. But you and your partner are still individuals and a couple, not just parents-to-be. Watch a movie together, talk about something completely unrelated, play a game, or just sit together in comfortable silence. Maintaining your identity as a couple will serve you well when the baby arrives and everything feels baby-focused.
 
 ## 💬 Conversation Starter
-"When the baby cries at 3 AM and we're both exhausted, what's the phrase we should say to each other to keep us going?"
+"Outside of parenting, what's something you want to accomplish or experience in the next year? Let's remember that we have goals and dreams beyond becoming parents."
 
 ## 🎉 Fun Fact
-Your baby is now about the size and weight of a coconut (3.3 pounds). But here's what's amazing: despite being relatively small, your baby's brain has about 100 billion neurons — the same number as an adult human brain. The difference is in the connections between those neurons, which will continue to develop rapidly for years after birth. By age 3, a child's brain will have formed about 1,000 trillion synaptic connections. Your love and interaction after birth fuel this incredible growth.
+At 31 weeks, your baby has fully developed fingernails that extend past the fingertips. Some babies even scratch themselves in the womb! After birth, you'll notice tiny scratch marks on their face from their sharp little nails. Don't worry — these heal incredibly fast. Baby mittens (or just socks on the hands) help in the first days, and you can carefully file the nails with a baby-specific emery board while the baby is asleep.
 
-## 🤔 Weekly Q&A — Answer
-**Wednesday's question:** How do we know if the baby is in the right position? What if they're breech?
+## 💰 Financial Tip
+Start thinking about childcare — even if you don't need it immediately. In Israel, childcare options include:
+- **Mishpachton (family daycare):** A caregiver watches a small group of children in their home. Often available from around 3 months.
+- **Ma'on (daycare center):** Larger group settings, usually from around 6 months.
+- **Private nanny (metapelet):** One-on-one care at home.
+- **Family help:** Grandparents or other family members.
 
-**Answer:** The ideal position for birth is head-down, facing the mother's spine (called "occiput anterior"). Your healthcare provider checks the baby's position at routine appointments by feeling the belly (called Leopold's maneuvers) or via ultrasound. At 31 weeks, many babies haven't settled into their final position — there's still time. If the baby is breech (head-up) after 36 weeks, your doctor might suggest:
-- **ECV (External Cephalic Version):** A procedure where the doctor manually turns the baby by applying pressure on the belly. Success rate is about 50-60%.
-- **Optimal fetal positioning exercises:** Hands-and-knees positions, pelvic tilts, and swimming can encourage the baby to turn.
-- **Planned cesarean:** If the baby remains breech, a C-section is the safest delivery method in most cases.
+Each has different costs, availability, and waiting lists. Research your neighborhood options now and get on waiting lists if needed — popular daycare spots fill up months in advance. This is one of those tasks where being early really pays off.
 
-Don't worry about position right now — focus on it after week 34 if the baby is still breech. Most babies naturally flip to head-down on their own.
+## 🧘 Mindfulness Moment
+As you light Shabbat candles tonight, try this intention: each of you silently set an intention for the week ahead. Not a task or a goal — an intention. Something like: "I intend to be more patient with myself this week" or "I intend to notice the small beautiful moments." Hold that intention in your mind as the flames flicker. Intentions are different from goals — they're about how you want to be, not what you want to do. And how you want to be as a parent starts with how you're being right now.
 
-## 🧠 Mental Health Check-In
-As the due date approaches, it's normal for anxiety to increase. For some women, this manifests as intrusive thoughts — unwanted, scary thoughts about something bad happening to the baby. These thoughts are very common and are NOT a reflection of reality or your partner's ability as a mother. They're the brain's way of processing a huge life change. If these thoughts are persistent, distressing, or interfering with daily life, encourage your partner to talk to her doctor. Prenatal anxiety is very treatable, and there's no shame in asking for help.
-
-## 💕 Intimacy Corner
-Let's be real: in the third trimester, sometimes the most intimate thing you can do is handle the mental load. Take something off your partner's plate completely — not because she asked, but because you noticed. Maybe it's researching pediatricians, maybe it's organizing the baby's clothes, maybe it's handling the grocery shopping for the week. When she realizes she doesn't have to think about that thing anymore, the relief she feels is a form of love. And in these final weeks, that kind of support can feel more meaningful than any grand romantic gesture.
+## 🕯️ Shabbat Activity
+**Timeline Together:** Draw a simple timeline on a piece of paper, from now to 3 months after the due date. Together, mark the major milestones and tasks: when the hospital bag should be packed, when maternity/paternity leave starts, the due date, potential visitors, childcare research deadlines, and any other important dates. Seeing it all laid out visually can make the timeline feel more manageable and help you prioritize. Keep it on the fridge as a visual reminder.

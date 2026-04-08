@@ -1,40 +1,39 @@
 ---
-subject: "Week 38, Day 5 — The Magic of Skin-to-Skin (For Both Parents!) 🤱"
+subject: "Week 38, Day 6 — The Last Shabbat Before Everything Changes 🕯️"
 week: 38
-day: 5
+day: 6
 ---
 
-# Week 38, Day 5
+# Week 38, Day 6
 
 ## 🎉 Fun Fact
-During skin-to-skin contact, a newborn placed on the mother's chest will actually crawl toward the breast using an instinct called the "breast crawl." If left undisturbed, most newborns can find the breast and latch on their own within the first hour. The nipple's darker pigmentation and Montgomery glands — which emit a scent similar to amniotic fluid — guide the baby. Nature's GPS system.
+Babies are born with a natural preference for their mother's voice over all others, and for the language they heard most in the womb. Newborns will actually change their sucking rhythm on a pacifier to hear a recording of their mother's language versus a foreign one. Your baby is already wired for the world they're being born into.
 
 ## 👶 Baby Development
-Your baby's brain now has billions of neurons connected by trillions of synapses, and it will double in size in the first year after birth. Right now, baby is putting the finishing touches on the suck-swallow-breathe sequence — a coordination that has to work flawlessly from the first feed. Baby is also continuing to practice breathing amniotic fluid, which now contains more of the baby's own cells and less vernix.
+Your baby is putting the finishing touches on their entrance. The meconium is fully formed, the lungs have adequate surfactant, the immune system has received its full complement of maternal antibodies, the fat stores are robust, and the reflexes are sharp. Baby is, in every meaningful way, ready for the world — just picking their moment.
 
 ## 🤰 What Mom Might Be Feeling
-The Mom might notice a change in vaginal discharge — thicker, more mucus-like, and possibly tinged with pink or brown. This could be the mucus plug coming away, a normal pre-labor sign. Lower back aching that comes and goes could be an early sign the body is warming up. Between waves of anxiety, she might feel a strange calm settling in. Her body knows what it's doing, even when her mind is uncertain.
+The Mom might be feeling "over it" — and that's completely valid. Months of accumulated discomfort — disrupted sleep, constant pressure, heartburn, swelling, back pain — can make these final days feel endless. She might oscillate between wanting labor to start immediately and feeling terrified of it. She might also feel strangely emotional about the pregnancy ending — for all its challenges, growing a life inside her body has been a profound experience. Hold space for all of it.
 
 ## 🍽️ Nutrition Tip
-Now is a good time to stock postpartum recovery foods. Bone broth for healing and hydration, oatmeal for easy warmth and milk supply, salmon for anti-inflammatory omega-3s, dark leafy greens for iron, eggs for easy protein, sweet potatoes for energy, berries for vitamin C, nuts and nut butters for one-handed snacking, and dates for iron and natural sugars. Having these in the house before baby arrives means nutritious meals are always possible, even on zero-sleep days.
+A quick postpartum recovery broth to make now: heat bone broth with sliced ginger and smashed garlic for ten minutes, then stir in miso paste off the heat (don't boil the miso — it kills beneficial bacteria), add a handful of spinach and a squeeze of lemon. Warming, healing, and packed with nutrients. Make a big batch and freeze in portions.
+
+For a heartier freezer option, a baked ziti works beautifully. Mix ricotta, egg, mozzarella, parmesan, garlic powder, and basil with cooked pasta and chopped spinach, layer in a baking dish with marinara, and top with more cheese. Cover tightly and freeze unbaked — it goes straight from freezer to oven when you need it. It delivers protein, calcium, and iron, and it's the kind of meal that makes you feel taken care of on two hours of sleep.
 
 ## 💪 Exercise & Movement
-Visualization is today's exercise. Close your eyes and picture a positive birth experience: the Mom breathing through contractions, you by her side, and then the moment baby is placed on her chest. Visualization reduces anxiety and improves outcomes in high-stress situations. Athletes do it before competitions. You can do it before the biggest moment of your life.
+Restorative rest today. A warm bath (not hot), gentle stretching, deep breathing, and as much sleep as possible. If the Mom wants to walk, keep it short and close to home. The body is doing its final preparations, and rest supports that process.
 
 ## 💡 Tip for Dad
-Skin-to-skin contact means placing baby — wearing only a diaper — directly against a parent's bare chest, covered with a warm blanket. The science behind it is powerful: it regulates baby's heart rate, breathing, and temperature, stabilizes blood sugar, reduces stress hormones in both baby and parent, and releases oxytocin that strengthens bonding.
-
-The first hour after birth is prime time for uninterrupted skin-to-skin with mom. Routine procedures can often wait — advocate for this with your birth team. And this isn't just a mom thing. When you hold your baby against your bare chest, the same hormonal and bonding benefits apply. Your body temperature adjusts to warm the baby, and your heartbeat calms them. Aim for at least an hour per day in the first weeks. It's one of the most productive things you can do as a new parent while appearing to do absolutely nothing.
+Set up a postpartum supply station today in the room where the Mom will spend the most time. Stock it with water bottles (pre-filled), healthy snacks, a long phone charger cord, lip balm, nipple cream and breast pads if breastfeeding, burp cloths, tissues, remote control, a book or tablet, a peri bottle, extra-large postpartum pads, and any prescribed pain medication. When she's settled in with the baby at 3 AM, everything she needs should be within arm's reach.
 
 ## 💬 Conversation Starter
-"When I hold our baby for the first time, do you think I'll cry?" This lighthearted question often leads to a beautiful, vulnerable conversation about emotions and expectations.
+"What's the first meal you want after the baby is born?" For many new moms, this is surprisingly emotional. After months of restrictions, nausea, and heartburn, the idea of eating freely again is genuinely exciting. Plan to bring her something special.
 
-## 🧠 Mental Health Check
-With birth days (or even hours) away, anxiety can spike. Here's a grounding technique for when it hits — the 5-4-3-2-1 method: name five things you can see, four you can touch, three you can hear, two you can smell, and one you can taste. It pulls you out of spiraling thoughts and into the present moment in about 60 seconds. Practice it now, teach it to the Mom, and use it in the delivery room if either of you feels overwhelmed.
+## 💰 Financial Tip
+Make sure you know how to add baby to your insurance — usually this must be done within 30 days of birth. Understand your deductible and out-of-pocket maximum for delivery, keep all hospital bills organized (errors are common), check whether your insurance covers a breast pump, and know that baby is typically covered under the Mom's plan for the first 30 days. Set a phone reminder for day two to start the paperwork so it doesn't slip through the cracks.
 
-It's okay to be scared. Being scared means you understand the magnitude of what's happening. Courage isn't the absence of fear — it's showing up despite it.
+## 🧘 Mindfulness Moment
+This might be your last Shabbat as a couple — next week, you might be a family of three. Light the candles slowly. Look at your partner. The person lighting these candles next Shabbat may be a father. Let that sink in.
 
-## 💕 Intimacy
-The last days before baby arrives can feel heavy with anticipation. Tonight, try this: lie in bed facing each other. Take turns saying one thing you love about the other person — not as a parent-to-be, but as a human being. Three rounds each. No phones. Just presence.
-
-You're about to become parents, but you were partners first. That connection is the bedrock everything else is built on.
+## 🕯️ Shabbat Activity
+Whether you're religious, spiritual, or neither — consider creating a moment of intention together tonight. Hold hands and each share a promise: patience when exhausted, willingness to ask for help, assuming the best about each other even on the worst days, and facing whatever comes together. These aren't wedding vows — they're parenting vows. And they matter just as much.

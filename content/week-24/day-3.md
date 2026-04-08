@@ -1,34 +1,35 @@
 ---
-subject: "Week 24, Day 3 — Brain Folds, Big Growth & Getting Ready 🧠"
+subject: "Week 24, Day 4 — A Fully Formed Face & the Glucose Test Window 🩺"
 week: 24
-day: 3
+day: 4
 ---
 
-# Week 24, Day 3
+# Week 24, Day 4
 
 ## 🎉 Fun Fact
-The human brain has about 86 billion neurons. At 24 weeks, your baby's brain is producing neurons at a rate of about 250,000 per minute. By birth, the brain will have all the neurons it will ever have — learning and development afterward is about strengthening connections, not creating new ones. The architecture being built right now is the foundation for everything your child will ever think, feel, and do.
+Your baby gets hiccups in the womb, and it's actually a sign of healthy development. Hiccups occur when the diaphragm contracts involuntarily — the same muscle your baby will use for breathing. Fetal hiccups help strengthen the diaphragm and prepare the breathing muscles for life outside. They can last a few minutes to half an hour, and the Mom will feel them as a repetitive, rhythmic movement — different from kicks or rolls.
 
 ## 👶 Baby Development
-Your baby's brain is undergoing one of its most dramatic transformations. The surface, previously smooth, is developing folds and grooves (sulci and gyri) that dramatically increase its surface area for more neural connections and more complex processing. The cerebral cortex — responsible for thinking, memory, and consciousness — is becoming more defined. The brain is growing so fast that the head is still the largest part of the body.
+Your baby's face is now fully formed — every feature in its final position. If you could see them right now (3D/4D ultrasound can give a pretty good look), you'd recognize the face you'll see at birth. The skin is still thin but getting less translucent as fat deposits begin to accumulate. The lungs are developing their branching bronchial tree, creating the intricate airways that will enable breathing, with each branch ending in tiny air sacs that are practicing for their future role in gas exchange.
 
 ## 🤰 What Mom Might Be Feeling
-At 24 weeks, the Mom might be dealing with leg cramps, especially at night. These painful calf spasms can wake her from sleep — caused by the extra weight, circulation changes, and possibly low magnesium or calcium. Stretching the calves before bed and staying hydrated helps. When a cramp strikes, straightening the leg and flexing the foot (pulling toes toward the shin) usually relieves it quickly.
+The glucose screening test window is now open (24-28 weeks). The Mom might be feeling some anxiety about the test — nobody loves drinking super-sweet liquid on demand. Physically, the baby's movements are becoming more forceful. What were once gentle flutters are now definite kicks and punches. The baby might also get hiccups, which feel like rhythmic, repetitive taps and are completely normal.
 
 ## 🍽️ Nutrition Tip
-If the glucose screening is coming up soon, there's no need for a special preparation diet. But eating balanced meals in the days before helps the Mom feel her best. Avoid a huge sugary breakfast right before the test — a light, protein-rich breakfast a couple of hours before is usually a good approach. Ask the doctor's office for specific instructions, as some require fasting and others don't.
+Iron needs increase significantly in the second half of pregnancy. A steak and citrus salad hits the mark well: grill a lean steak and slice it thinly over mixed greens with orange segments, thinly sliced red onion, walnuts, and crumbled goat cheese. Dress with olive oil, orange juice, and balsamic vinegar. Red meat is the most bioavailable iron source, and the vitamin C from the citrus enhances absorption.
 
 ## 💪 Exercise & Movement
-Calf stretches for cramp prevention: stand facing a wall, step one foot back about two feet keeping it flat, lean in until you feel the stretch in the back calf. Hold 30 seconds, switch sides, repeat three times each. Before bed, try sitting with legs extended and looping a towel around the feet, gently pulling toward you. Doing these before sleep significantly reduces nighttime cramps.
+If the Mom has a light resistance band, these exercises are safe and effective: seated rows (band around feet, pull toward belly, 15 reps), standing bicep curls (step on band, curl handles up, 12 each arm), lateral band walks (band around ankles, step side to side, 10 each direction), and shoulder presses (stand on band, press overhead, 10 reps). Light resistance training maintains muscle tone and supports joints.
 
 ## 💡 Tip for Dad
-Learn infant CPR. Find a local course — Magen David Adom, hospitals, and community centers often offer them — and sign up before the baby arrives. It takes just a few hours, and the confidence of knowing what to do in an emergency is invaluable. Many courses also cover infant choking, which is much more common than you'd think once babies start solids. Take the course together.
+If a 3D or 4D ultrasound interests you, now through about week 30 is the best window. The baby is big enough to see clearly but hasn't yet gotten so large that they're cramped against the uterine wall. These aren't medically necessary — they're purely for the experience. But seeing your baby yawn, suck their thumb, or even smile is something you won't forget.
 
 ## 💬 Conversation Starter
-"We should take an infant CPR course. When should we schedule it? And what other classes should we take before the baby arrives?"
+"What do you think our baby looks like right now? Whose features do you think they'll have?"
 
-## 🛏️ Sleep Tip
-If nighttime cramps are disrupting sleep, keep sheets and blankets loose at the foot of the bed — tight sheets can force toes into a pointed position that triggers calf cramps. A warm compress on the calves before bed can relax the muscles, and some women find a magnesium spray helpful (check with the doctor first).
+## 🌍 The Glucose Test Around the World
+The glucose screening test is standard in most developed countries, but how it's done varies. In Israel and the US, the most common approach is a one-hour glucose challenge followed by a three-hour test if elevated. In the UK and Australia, many providers use a two-hour test as the primary screen. The reason it matters: uncontrolled high blood sugar can cause the baby to grow larger than normal, complicating delivery. The good news: when detected and managed, outcomes are excellent. It's one of the most manageable pregnancy complications.
 
-## 💼 Workplace Tip
-As the pregnancy becomes more visible, you might field intrusive questions or unsolicited advice. A friendly but firm "Thanks, we've got it covered with our doctor" shuts down unwanted medical opinions. And "We're keeping some things private for now" handles questions about names, birth plans, or other family decisions. Practice your polite deflections now — you'll use them even more once the baby arrives.
+## 🤔 Q&A: Question of the Day
+**We've been hearing about cord blood banking. What is it, is it worth it, and what are our options in Israel?**
+Answer coming Thursday!

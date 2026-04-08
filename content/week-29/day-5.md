@@ -1,39 +1,37 @@
 ---
-subject: "Week 29, Day 5 — Growing, Rolling, and Getting Ready 🌊"
+subject: "Week 29, Day 6 — Breathe In, Breathe Out 🕯️"
 week: 29
-day: 5
+day: 6
 ---
 
-# Week 29, Day 5
+# Week 29, Day 6
 
 ## 👶 Baby Development
-Your baby is continuing to put on weight steadily. Fat stores are building under the skin, smoothing out the wrinkled appearance and preparing for temperature regulation outside the womb. The lungs are maturing — still needing several more weeks, but making real progress. Movements should still be consistent, and this is a good time to establish a kick-counting routine if you haven't already.
+Your baby's lungs are making steady progress. The bronchial tubes are branching into smaller airways, and the air sacs are multiplying while surfactant production increases. Your baby is also swallowing more amniotic fluid, which helps the digestive system practice and contributes to the formation of meconium — the baby's first bowel movement after birth.
 
 ## 🎉 Fun Fact
-Your baby can distinguish your voice from other voices — and prefers it. Studies show that babies' heart rates slow down (a sign of calm) when they hear their mother's voice and respond with increased alertness to their father's voice. You're both already building a relationship, one conversation at a time.
-
-## 🤔 Weekly Q&A — Answer
-Wednesday's question: What's the difference between a midwife-led birth and a doctor-led birth?
-
-Both are safe options for healthy, low-risk pregnancies. A midwife (miyaledet in Hebrew) specializes in natural birth, tends to use fewer interventions, and provides more continuous one-on-one support during labor. An obstetrician is a medical doctor who handles high-risk situations and surgical deliveries. In Israel, most hospital births involve both — a midwife manages the labor process while an obstetrician is available if complications arise. Some women also choose a doula, a trained birth companion who provides continuous emotional and physical support. Talk to your healthcare provider about what combination feels right.
+Your baby has been drinking about a liter of amniotic fluid per day. This fluid is actually mostly composed of the baby's own urine — the baby swallows it, it passes through the digestive system, and the kidneys filter it back out. It sounds unappealing, but this recycling process is essential for kidney development and helps maintain the right amount of fluid in the amniotic sac.
 
 ## 🤰 What Mom Might Be Feeling
-Swollen feet and ankles are probably a regular thing now, especially by the end of the day. The Mom might also feel like the baby is sitting right on her bladder. Frequent urination is back with a vengeance. Some women also experience occasional nosebleeds or bleeding gums due to increased blood volume and hormonal changes that make blood vessels more fragile — usually harmless but can be surprising.
+Braxton Hicks contractions may be more frequent now, especially after being active, after sex, or when dehydrated. They're the uterus's way of toning and preparing for labor. The Mom might also notice increased breast tenderness and perhaps some colostrum leaking — the thick, yellowish "first milk." This is normal and means her body is preparing to feed the baby.
 
 ## 🍽️ Nutrition Tip
-Potassium helps combat water retention and swelling. Bananas are the famous source, but sweet potatoes, tomatoes, spinach, yogurt, and avocados all pack a potassium punch. A smoothie made with yogurt, banana, spinach, and a drizzle of honey is a delicious way to get multiple nutrients in one glass.
+A Shabbat one-pot winner: lemon herb chicken with potatoes. Toss bone-in chicken pieces, halved baby potatoes, lemon slices, fresh rosemary and thyme, whole garlic cloves, olive oil, salt, and pepper into a baking dish. Roast at 200 C for 45 minutes. Minimal prep, maximum flavor — the potatoes cook in the chicken juices and the lemon keeps everything bright. Pair with a green salad.
 
 ## 💪 Exercise & Movement
-Ankle pumps and foot exercises can help reduce swelling: point and flex the feet 10 times each, rotate the ankles in circles both directions, and elevate feet above heart level for 15-20 minutes when possible. These can be done while sitting at a desk, watching TV, or lying in bed — simple but effective for circulation and fluid drainage.
+Today is about gentle movement and rest. A short walk followed by some stretching is perfect, or a few minutes of prenatal yoga focusing on child's pose (modified), gentle seated twists, and legs-up-the-wall for swelling relief. Listen to the body's signals — some days, doing nothing is exactly what's needed.
 
-## 🧠 Mental Health Check-In
-Dads can experience prenatal anxiety too. If you're lying awake worrying about finances, the baby's health, or whether you'll be a good father, you're not alone. Research shows that up to 10% of expectant fathers experience significant anxiety during pregnancy. It's not a competition with the Mom's experience — your feelings matter too. Talk to someone: a friend, a family member, or a therapist.
+## 💰 Financial Tip
+Look into Bituach Leumi benefits for new parents. You may be entitled to a one-time birth grant (ma'anak leida), and the Mom may be eligible for maternity leave payments. The paperwork is easier to handle now while you're not sleep-deprived. Some benefits need to be applied for within a specific window after birth, so knowing the timeline now saves headaches later.
 
 ## 💡 Tip for Dad
-Start thinking about what to pack in the Mom's hospital bag. You don't need to pack it yet, but making a list now means nothing gets forgotten in the rush. Essential categories: documents, comfortable clothing, toiletries, items for labor (lip balm, hair ties), items for after birth (nursing bra, going-home outfit), and baby items (going-home outfit, car seat). We'll go into more detail in coming weeks.
+Tonight, take care of Shabbat dinner — whatever that looks like in your home. If you cook, cook. If you order, order. The point is that the Mom doesn't have to think about it. Third-trimester fatigue is real, and Fridays can feel especially long.
 
-## 💕 Intimacy Note
-A beautiful third-trimester intimacy practice: partner massage. Set up a comfortable space with dim lighting and calming music. Use a pregnancy-safe oil and focus on the feet, calves, lower back, and shoulders. Avoid deep pressure on the belly. This kind of loving, intentional touch releases oxytocin for both of you and helps the Mom's body feel cared for during a time when it might feel unfamiliar.
+## 🧘 Mindfulness Moment
+As Shabbat begins, sit facing each other, hold hands, and take 10 synchronized breaths — in for 4 counts, hold for 2, out for 6. There's something powerful about breathing in rhythm with your partner. After 10 breaths, sit in silence for a moment and feel the baby move between you. This is your family, right now.
 
 ## 💬 Conversation Starter
-"How should we divide nighttime baby duties? Let's brainstorm some realistic options."
+"What's the most unexpected emotion you've felt during this pregnancy? Something that caught you off guard?"
+
+## 🕯️ Shabbat Activity
+Start a wish jar. Get any container and some slips of paper. Each of you write down wishes for your baby — anything from big dreams to small everyday joys. Fold them up and add to the jar. Keep adding over the coming weeks and open it on a special occasion — maybe the baby's first birthday.

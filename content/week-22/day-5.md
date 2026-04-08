@@ -1,37 +1,37 @@
 ---
-subject: "Week 22, Day 5 — Strong Grip, Stronger Bond 💕"
+subject: "Week 22, Day 6 — Shabbat Shalom with Your Papaya-Sized Baby 🕯️"
 week: 22
-day: 5
+day: 6
 ---
 
-# Week 22, Day 5
-
-## 🎉 Fun Fact
-The grasping reflex your baby is developing is so strong that a newborn can theoretically support their own body weight by gripping. This is thought to be an evolutionary holdover from when primate infants needed to cling to their mothers. The reflex is active at birth and usually fades by about six months as voluntary grasping takes over.
+# Week 22, Day 6
 
 ## 👶 Baby Development
-Your baby's muscles and joints are working together beautifully now. Those tiny fingers can wrap around the umbilical cord, make a fist, flex toes, and suck a thumb — practicing the grasping reflex they'll use right after birth. The brain is rapidly forming new neural connections to coordinate all these increasingly purposeful movements.
+As you enter Shabbat, your baby is nestled comfortably at about 15 ounces and 11 inches. The skin is becoming more opaque as layers develop, though blood vessels still show through with a reddish tint. Hair is growing on the head — bright white for now, since melanin production kicks in later. Your baby continues to swallow amniotic fluid, with the kidneys producing urine that cycles back into the fluid. A beautifully efficient system.
+
+## 🎉 Fun Fact
+Your baby's hair is currently white because it lacks melanin. Some babies are born with a full head of dark hair; others arrive nearly bald. And the hair your baby is born with often falls out and grows back a completely different color or texture. You truly won't know what you're getting until it grows in.
 
 ## 🤰 What Mom Might Be Feeling
-The Mom might notice that the baby has active and quiet periods throughout the day, and she's learning the pattern. Many babies are most active in the evening when she's resting — the rocking motion of walking tends to lull them during the day. She might also experience some breathlessness, especially when climbing stairs, as the growing uterus pushes the diaphragm upward. Taking things a bit slower is perfectly fine.
-
-## 🤔 Q&A: Yesterday's Answer
-**Is a birth plan worth it?** Absolutely — but think of it as "birth preferences" rather than a rigid plan. Birth is unpredictable, and flexibility matters. A birth preferences document helps you think through your options and communicate wishes to the medical team. Key areas to cover: environment (lighting, music, who's in the room), pain management approach, freedom to move during labor, preferences about interventions, immediate post-birth wishes (skin-to-skin, delayed cord clamping), and what happens if a cesarean is needed. Write it together and share it with your doctor or midwife for feedback.
+Friday can bring a wave of relief as the workweek ends. The Mom's body has been working overtime — growing a baby while managing daily life and all the physical changes. She might be extra tired today. The uterus is now about an inch above the belly button and probably visible through most clothing. Comfort is key this week.
 
 ## 🍽️ Nutrition Tip
-Zinc supports cell growth and immune function, both critical right now. Great sources include pumpkin seeds, beef, lentils, quinoa, and cashews. A quick power snack: trail mix of pumpkin seeds, cashews, dark chocolate chips, and dried cranberries. Keep a bag in the car and one at work — easy nutrition on the go.
+A simple Shabbat dinner that delivers: season chicken thighs with paprika, garlic powder, cumin, and salt. Place in a baking dish on a bed of sliced onions, zucchini, sweet potato chunks, and cherry tomatoes. Drizzle with olive oil and roast at 200 C for 40 minutes. The chicken provides protein and iron, the vegetables roast in the juices for maximum flavor. One pan, minimal cleanup — perfect for Erev Shabbat.
 
 ## 💪 Exercise & Movement
-The seated figure-4 stretch targets the piriformis and outer hip — areas that get tight during pregnancy and can contribute to sciatica-like pain. Sit in a chair with feet flat, cross one ankle over the opposite knee, and gently press the raised knee down while keeping the back straight. Hold 30 seconds per side, breathing deeply. Repeat a few times a day, especially after long sitting periods.
+Legs Up the Wall is a pregnancy-safe inversion that relieves swollen feet and legs. Sit sideways next to a wall, swing legs up as you lie back, scoot hips close to the wall, and rest with arms by your sides for five to ten minutes. It reduces swelling, relieves lower back tension, and calms the nervous system. A perfect Friday afternoon reset.
 
 ## 💡 Tip for Dad
-Take five minutes today to really feel the baby move. Not a quick hand-on-belly, but actually sit down, get comfortable, and wait. Talk to the baby while you do — the lower frequency of your voice travels well through amniotic fluid. When you feel that kick against your palm, it changes something in you. It makes it real in a way nothing else does.
+Make Friday evenings easier by taking on dinner prep, table setting, and cleanup. Even if you normally share these duties, the end of the week hits harder during pregnancy. This isn't about keeping score — it's about noticing where you can lighten the load and just doing it.
 
 ## 💬 Conversation Starter
-"What do you think our baby is doing in there right now? Let's watch the belly and narrate."
+"What Shabbat or weekend tradition do you want to start for our family? Something our kids will remember and look forward to?"
 
-## 🧠 Mental Health Check-In
-Here's something nobody talks about enough: the anticipatory grief of your old life. Becoming a parent means some things change permanently — spontaneous travel, late nights out, lazy weekends. It's okay to feel a little sad about that even while being excited about the baby. These feelings aren't a sign you're not ready. They're a sign you're human, processing a major life transition honestly.
+## 💰 Gear Tip: The Car Seat
+It's not too early to start researching car seats. In Israel, one is required by law from birth — you cannot take the baby home without one. Group 0+ seats are rear-facing and suitable from birth to about 13 kg. ISOFIX base systems are easiest to install correctly. Avoid second-hand unless you know the full history, and practice installing before the baby arrives.
 
-## 💕 Intimacy & Connection
-Physical touch becomes even more important during pregnancy, and it doesn't have to be sexual. Try sitting behind the Mom, letting her lean back against you, and just breathing together with your hands on her belly. This kind of quiet, present closeness creates a sense of safety for all three of you. If sexual intimacy feels right, enjoy it — the second trimester often brings renewed desire. If not, closeness is closeness, and it all counts.
+## 🧘 Mindfulness Moment
+Before Shabbat begins, try a two-minute grounding exercise: each place one hand on the belly, close your eyes, and take three deep breaths together. On each inhale, silently name something you're looking forward to. On each exhale, release one worry from the week. Open your eyes, make eye contact, and say one kind thing to each other.
+
+## 🕯️ Shabbat Activity
+After dinner, take a slow walk together and share childhood Shabbat memories. What did Shabbat look like in your family? What did you love about it? What would you change? This naturally leads to imagining what Shabbat will look like for your growing family. If you don't have childhood traditions, this is your chance to create them from scratch — which is its own kind of beautiful.

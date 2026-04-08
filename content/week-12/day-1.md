@@ -1,39 +1,31 @@
 ---
-subject: "Week 12, Day 1 — Welcome to the Final Week of the First Trimester! 🍋"
+subject: "Week 12, Day 2 — Fingernails Are Starting to Grow! 💅"
 week: 12
-day: 1
+day: 2
 ---
 
-# Week 12, Day 1
+# Week 12, Day 2
 
-## 🌒 This Week at a Glance
-This is it — week 12, the grand finale of the first trimester. Your baby is now the size of a lime, measuring roughly 5.4 cm (2.1 inches) and weighing about 14 grams. Reflexes like sucking and swallowing are coming online, the kidneys are producing urine, fingernails are beginning to form, and the intestines are migrating from the umbilical cord back into the abdomen. The nuchal translucency (NT) scan is usually performed this week. And perhaps the most reassuring milestone: after this week, the miscarriage risk drops from about 1-5% to less than 1%.
-
-For many couples, reaching week 12 feels like exhaling for the first time.
+## 💅 Baby Development
+Tiny fingernails are beginning to form on your baby's fingertips — they'll grow slowly throughout the pregnancy, and some babies are born with nails long enough to need trimming right away. Toenails will follow a bit later. Meanwhile, the bone marrow is now producing white blood cells, the soldiers of the immune system. The pituitary gland at the base of the brain is beginning to produce hormones, adding another layer of complexity to this rapidly developing little person.
 
 ## 🎉 Fun Fact
-Your baby can now yawn — not from tiredness, but as a reflex that exercises the jaw muscles and increases blood flow to the brain. Babies at this stage are also making sucking motions, sometimes bringing a thumb to their mouth. Thumb-sucking in the womb is considered a sign of healthy neurological development.
-
-## 👶 Baby Development
-Your baby now has reflexes. The sucking reflex is developing, meaning the lips and mouth are becoming more coordinated — essential for feeding from day one. The digestive system is practicing too: the intestines, which had been looping into the umbilical cord, are migrating back into the abdominal cavity as the body has grown large enough to contain them. The kidneys are fully functional, producing urine that becomes part of the amniotic fluid.
+A newborn has about 270-300 bones, while an adult has only 206. The extra bones don't disappear — they fuse together as the child grows. The skull, for example, starts as several separate plates connected by soft spots (fontanelles), which gradually fuse over the first 18 months. This flexibility allows the skull to compress slightly during birth and the brain to grow rapidly in the first year.
 
 ## 🤰 What Mom Might Be Feeling
-Hope. Relief. Still nauseous, maybe, but with a light at the end of the tunnel. Many women find that nausea starts to ease around this week. The Mom's uterus is rising above the pubic bone, which means the doctor might be able to find the heartbeat with a handheld doppler at the next visit. Her appetite might be starting to return — and when it does, the cravings can be intense and specific.
+If the Mom has her NT scan this week, she might be feeling a mix of excitement and anxiety — completely normal, even when everything is going perfectly. Physically, she might notice that her belly is developing a very slight curve below the belly button. Varicose veins can start to appear, especially in the legs, due to increased blood volume and pressure from the growing uterus. Support stockings and elevating the legs when sitting can help.
 
 ## 🍽️ Nutrition Tip
-A Mediterranean salmon bowl is a great way to get omega-3s and protein in one satisfying meal. Season a salmon fillet with olive oil, lemon, salt, and pepper, then bake or pan-sear. Serve over brown rice or bulgur with cucumber, cherry tomatoes, kalamata olives, a generous dollop of hummus, and fresh herbs. Salmon is one of the best sources of DHA for brain development, and it's low in mercury.
+Zinc is important for cell division, which is happening at an astronomical rate right now. Good sources include beef, pumpkin seeds, chickpeas, yogurt, and cashews. A handful of pumpkin seeds makes an excellent snack — they provide zinc, magnesium, iron, and healthy fats. Sprinkle them on salads, soups, or yogurt. The pregnancy RDA for zinc is 11 mg/day.
 
 ## 💪 Exercise & Movement
-Today, try a 20-minute brisk walk. If the Mom's energy is starting to return, this is a great week to establish a regular walking routine. The goal during pregnancy isn't peak fitness — it's consistent, moderate activity. Walking for 30 minutes most days is associated with reduced risk of gestational diabetes, healthier weight gain, better mood, and easier labor.
+A prenatal strength circuit can build total-body strength in about 20 minutes. Try wall sits, modified push-ups, sumo squats (wide stance, toes turned out), calf raises, and bird dogs (on all fours, extending opposite arm and leg). Do each for 45 seconds with 15-second rest, repeat twice. Always skip any exercise that causes pain or discomfort.
+
+## 🏋️ Diastasis Recti Prevention
+As the belly grows, the two sides of the rectus abdominis can separate — this is called diastasis recti, and it affects about two-thirds of pregnant women. Reduce the severity by avoiding traditional crunches during pregnancy, strengthening the deep core with pelvic tilts and bird dogs, rolling to the side when getting up from lying down, and being mindful of posture. These habits support recovery postpartum.
 
 ## 💡 Tip for Dad
-If the NT scan is scheduled this week, be there. Clear your calendar, rearrange meetings, do whatever you need to do. This is one of the most significant appointments of the pregnancy — you'll see your baby in detail, possibly waving or kicking on the screen. Ask the sonographer to explain what you're seeing.
+After the NT scan (or any medical appointment), don't just ask "how did it go?" Sit down together and process the experience. What did the doctor say? How did it feel to see the baby? What questions came up? These conversations deepen your connection to the pregnancy. If results come with any flagged concerns, discuss how you feel and what steps come next, together.
 
 ## 💬 Conversation Starter
-After you get through this week's screening, are you ready to tell people? Who do you tell first, and how? Planning the announcement together can be genuinely fun.
-
-## 🤔 Question of the Day
-Your baby's bones are hardening, but a newborn's skeleton is quite different from an adult's. How many bones does a newborn have compared to an adult? (Hint: it's not the same number.) Answer coming tomorrow.
-
-## 👫 Couple Activity
-Create a "Time Capsule" for your baby. Get a box or envelope and start collecting items: today's headlines, a note about what music you're listening to, what shows you're watching, and a short letter to your future child about this moment in time. Add to it throughout the pregnancy. Open it together on your child's 18th birthday.
+What do you think your baby looks like right now? Pull up a week-12 fetal development image online and look together. Your baby has a face, fingers, toes, and is actively moving. It makes the abstract concrete.

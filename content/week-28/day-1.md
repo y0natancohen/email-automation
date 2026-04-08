@@ -1,37 +1,33 @@
 ---
-subject: "Week 28, Day 1 — Your Baby Has Eyelashes! 👁️"
+subject: "Week 28, Day 2 — Billions of Neurons Are Building a Mind 🧠"
 week: 28
-day: 1
+day: 2
 ---
 
-# Week 28, Day 1
-
-## 🌒 This Week at a Glance
-Welcome to week 28. Your baby is about 14.8 inches long and weighs around 2.2 pounds. Tiny eyelashes are now in place, framing eyes that can sense light filtering through the womb. The brain is building billions of neurons, REM sleep is increasing, and antibodies are transferring from the Mom to build up the baby's immune system. Some babies begin positioning head-down this week, though there's still plenty of room to move around. If the Mom is Rh-negative, this is typically when the RhoGAM shot is given.
-
-## 🎉 Fun Fact
-Your baby is dreaming. REM sleep is well established by week 28, and while we can't know exactly what babies dream about, researchers believe they're processing their sensory world — sounds, movements, and the feeling of being held in warm amniotic fluid. A cozy preview of consciousness.
+# Week 28, Day 2
 
 ## 👶 Baby Development
-Those delicate eyelashes frame eyes that can open, close, and detect changes in light. The brain is in overdrive, building billions of neurons and forming the neural networks that will allow your baby to think, feel, and learn. Shine a flashlight near the Mom's belly and your baby might respond by turning toward or away from it.
+Your baby's brain is producing billions of neurons at a breathtaking pace, forming synapses that will be the foundation for everything from breathing to laughing to learning a language. The brain's surface is developing more folds and grooves, increasing the surface area for complex processing. Your baby is literally getting smarter every day.
+
+## 🎉 Fun Fact
+Your baby can distinguish between sweet and bitter tastes in the amniotic fluid. When the fluid is sweeter, babies swallow more; when it's bitter, they swallow less. Your little one already has preferences.
+
+## 🤔 Weekly Q&A — Answer
+Yesterday's question: What is kick counting, and when should we start?
+
+Kick counting is a simple way to monitor your baby's well-being. Starting around week 28, the Mom can begin tracking how long it takes to feel 10 movements — kicks, rolls, jabs, anything counts. Pick a time when the baby is usually active, lie on the left side, and count. Most babies reach 10 movements within 30 minutes to 2 hours. The goal isn't a specific number, but learning the baby's normal pattern. If movements feel significantly decreased, contact your healthcare provider.
 
 ## 🤰 What Mom Might Be Feeling
-The Mom may notice her belly has "popped" even more — growth can feel rapid in the third trimester. Braxton Hicks contractions may increase, especially after physical activity or if she's dehydrated. Varicose veins may become more noticeable, and round ligament pain — sharp twinges on the sides of the belly — can happen with sudden movements. Moving slowly when changing positions helps.
+Heartburn might be ramping up as the growing uterus pushes the stomach upward. The Mom might also notice more pronounced swelling in her hands and feet, especially by the end of the day. If swelling is sudden or severe — particularly in the face — it's worth a call to the doctor, as this can be a sign of preeclampsia. Normal swelling, though, is just an annoying part of the third trimester that eases with rest and elevation.
 
 ## 🍽️ Nutrition Tip
-Vitamin C is essential for iron absorption and immune support. Red bell pepper strips with hummus make a simple snack — red bell peppers have almost three times more vitamin C than oranges. For a more substantial meal, try a broccoli and white bean frittata: sauté broccoli in olive oil, add drained white beans and sun-dried tomatoes, pour whisked eggs over everything, top with mozzarella, and bake until set. Each serving delivers roughly 20g of protein and a significant dose of calcium.
+To combat heartburn: smaller, more frequent meals work better than three large ones. Avoiding spicy, fatty, and acidic foods before bed helps, and the last meal should be at least two hours before lying down. Ginger tea (not ginger ale, which is mostly sugar) can soothe the stomach, and elevating the head of the bed slightly reduces nighttime reflux.
 
 ## 💪 Exercise & Movement
-If the Mom enjoys swimming, the third trimester is the best time to take advantage of it. The buoyancy relieves pressure on joints and the spine, reduces swelling, and provides a full-body workout without impact. Many community pools offer aqua-natal classes specifically designed for pregnant women.
+Carrying a baby requires upper body strength. A simple routine: wall push-ups, seated bicep curls with light weights, shoulder blade squeezes, and seated cat-cow for the spine. These exercises also help with posture, which takes a hit during pregnancy. Three sets of 10 reps for each is a solid session.
 
 ## 💡 Tip for Dad
-If the glucose tolerance test hasn't happened already, it may be coming up soon — the standard window is weeks 24-28. The Mom will need to drink a very sweet glucose solution and then wait an hour for blood work. Offer to go with her — the waiting room can feel long and the drink can cause nausea. Bring a book and some snacks for after the test.
+Start thinking about your support role during labor. You'll be her advocate (communicating her wishes to the medical team), her comfort provider (cold cloths, back rubs, encouragement), and her anchor (a calm, steady presence when things feel intense). You don't need all the answers — you just need to be fully present.
 
 ## 💬 Conversation Starter
-"What's something about pregnancy that has surprised you the most — something you didn't expect?"
-
-## 🤔 Question of the Week
-What is kick counting, and when should we start doing it? Answer coming tomorrow!
-
-## 👫 Couple Activity
-Each of you sit down separately and write a short letter to your baby — what you're feeling right now, what you hope for them, what you want them to know about this time in your lives. Seal them in envelopes, date them, and save them. This costs nothing but becomes priceless.
+"Have we talked about pain management preferences for labor? Let's explore the options together — epidural, natural techniques, or keeping options open."

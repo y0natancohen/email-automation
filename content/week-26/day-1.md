@@ -1,39 +1,36 @@
 ---
-subject: "Week 26, Day 1 — Your Baby Opens Their Eyes for the First Time! 👁️"
+subject: "Week 26, Day 2 — Your Baby Can See, and Now They're Learning to Breathe 🫁👀"
 week: 26
-day: 1
+day: 2
 ---
 
-# Week 26, Day 1
-
-## 🌒 This Week at a Glance
-Welcome to week 26 — the final week of the second trimester. Your baby is about 14 inches long and weighs roughly 1.7 pounds, about the size of a zucchini. And this week brings one of the most magical milestones of the entire pregnancy: your baby is opening their eyes for the first time.
-
-After months of development behind fused eyelids, your baby can now blink, look around in the dim glow of the womb, and begin processing visual information. Brain wave activity for both hearing and sight is now detectable — scientists can literally measure your baby thinking. The lungs are practicing breathing by inhaling amniotic fluid, and the immune system is starting to build, preparing for the world outside.
-
-## 🎉 Fun Fact
-The womb isn't completely dark. When the Mom is in bright sunlight or has a light near her belly, a warm reddish glow permeates the uterus — similar to what you see when you close your eyes and face a bright light. This soft illumination helps the eyes calibrate and the visual cortex begin processing input. Your baby is experiencing the world's gentlest light show.
+# Week 26, Day 2
 
 ## 👶 Baby Development
-Your baby's eyelids have been fused shut since about week 11, allowing the delicate eye structures to develop safely. Now, at 26 weeks, the eyelids separate and the retina is developing its light-sensitive layers while the optic nerve transmits signals to the brain. The iris doesn't have its final color yet — that's determined by melanin, which fills in later — but the basic eye structure is complete. If someone shines a flashlight near the belly, the baby might turn toward or away from the light.
+Yesterday your baby opened their eyes for the first time — and today another critical system is ramping up. The lungs are producing surfactant, a slippery substance that coats the inside of the air sacs and will prevent them from collapsing with each breath. Without it, every breath would be like inflating a brand-new balloon. Your baby is also practicing breathing movements, inhaling and exhaling amniotic fluid to train the muscles and reflexes that will kick in the moment they meet oxygen.
+
+## 🎉 Fun Fact
+Surfactant wasn't well understood until the 1950s. Before that, premature babies often died because their lungs couldn't stay inflated. In 1990, artificial surfactant therapy was approved for clinical use and has since saved hundreds of thousands of lives — one of the most important advances in neonatal medicine. Your baby is manufacturing this life-saving substance right now, one microscopic air sac at a time.
+
+## 💡 Yesterday's Q&A Answer
+Yesterday we asked: what are the biggest changes in the third trimester?
+
+The third trimester (weeks 27-40) brings the return of fatigue as the body works harder to support a rapidly growing baby. Braxton Hicks contractions become more frequent and noticeable — though unlike real labor, they're irregular and stop with rest or hydration. Your baby will roughly triple or quadruple in weight over the next 14 weeks, which means significant belly growth affecting mobility, sleep, and comfort. Doctor visits shift to every two weeks around week 28, then weekly from week 36. New symptoms like shortness of breath, heartburn, and frequent urination are common as the baby takes up more space. The second trimester was the honeymoon. The third trimester is the final climb — harder, but closer to the summit.
 
 ## 🤰 What Mom Might Be Feeling
-The Mom's belly is prominently visible now, and she might be fielding comments from strangers — welcome and otherwise. Braxton Hicks contractions may be more frequent, especially in the evenings, and back pain and pelvic pressure are common companions. She might feel the baby hiccup several times a day. Emotionally, the approaching third trimester can bring a surge of nesting energy — a sudden urge to organize, prepare, and get everything ready.
+With only days left in the second trimester, the Mom's body is ramping up for the final stretch. She might notice her belly feels tighter in the evenings as Braxton Hicks contractions become more frequent. Feet and ankles may swell more noticeably after standing, and shortness of breath can increase as the uterus pushes upward against the diaphragm. The nesting instinct may be kicking in — a sudden, intense urge to organize and deep-clean everything. This is perfectly normal and actually useful.
 
 ## 🍽️ Nutrition Tip
-Your baby's immune system is developing this week, and vitamin-rich foods can help support it. A quick chicken and vegetable stir-fry is an easy win: sauté sliced chicken in sesame oil, toss in broccoli, bell pepper, and carrot with garlic and ginger, then finish with soy sauce and a drizzle of honey. Broccoli and bell pepper deliver vitamin C, ginger and garlic have natural immune-supporting properties, and the chicken provides protein and zinc.
+Surfactant production requires healthy fats. Support it with foods rich in essential fatty acids: avocados, walnuts, chia seeds, flaxseed, and fatty fish like salmon. A simple snack idea: a handful of walnuts mixed with dried cranberries and a few squares of dark chocolate. These healthy fats also support the baby's rapidly developing brain, which is forming new neural connections at an astonishing rate this week.
 
 ## 💪 Exercise & Movement
-The deep squat is one of the most beneficial positions for preparing for birth. Stand facing a sturdy counter, feet wider than hip-width with toes turned out. Hold the counter and lower into a deep squat, keeping heels on the floor and back straight. Hold for 30 seconds, breathing deeply, then stand slowly. Repeat five times. This opens the pelvis, stretches the pelvic floor, and many birthing professionals recommend spending time in this position daily.
+If you have access to a pool, water exercise is one of the best options heading into the third trimester. The buoyancy supports the belly and relieves joint pressure, while water resistance provides gentle full-body strengthening. Walk laps in the shallow end for 10 minutes, do gentle flutter kicks at the pool edge, and finish with a few minutes floating on a pool noodle. No pool? A warm bath with gentle leg stretches provides similar joint relief.
+
+## 🏋️ Pelvic Floor Focus
+As the third trimester approaches, pelvic floor strength becomes increasingly important. A simple daily Kegel routine — quick contractions for 2 seconds on and off, sustained holds for 10 seconds, and gradual "elevator" contractions that build intensity — can pay enormous dividends during labor and recovery. The Mom can do these anywhere, anytime, and nobody can tell.
 
 ## 💡 Tip for Dad
-Your baby can detect light now. Tonight, try this: in a dark room, gently hold a flashlight against the Mom's belly through a thin cloth. Move it slowly. Your baby might respond by moving toward or away from the light. Don't worry if nothing happens — the response varies. But if you see or feel movement, you just had your first visual interaction with your child.
+Your baby's lungs are producing surfactant today — the substance that will let them breathe. Tonight, lie next to the Mom and take 10 slow, deep breaths together: in through the nose for 4 counts, out through the mouth for 6. While you breathe effortlessly, your baby is rehearsing these same movements with amniotic fluid, building the strength to do what you do without thinking.
 
 ## 💬 Conversation Starter
-"Our baby can see light now. What's the first truly beautiful thing you want them to see after they're born?"
-
-## 🤔 Question of the Day
-The third trimester starts next week. What are the biggest changes to prepare for, and what makes it different from the second trimester? Answer coming Tuesday!
-
-## 👫 Couple Activity
-In honor of your baby opening their eyes, do something visual together tonight. Watch the sunset, look at the stars, or browse through photo albums from your own childhoods. Talk about what you see — and what your baby might be "seeing" right now in their warm, dim, reddish world.
+"The third trimester starts in just a few days. If you could freeze time and stay at any point in this pregnancy — any week, any moment — which would you choose?"

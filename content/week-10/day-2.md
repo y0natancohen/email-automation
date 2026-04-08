@@ -1,34 +1,34 @@
 ---
-subject: "Week 10, Day 2 — Tiny Tooth Buds Are Forming Beneath the Gums 🦷"
+subject: "Week 10, Day 3 — Bones Are Replacing Cartilage as We Speak 🦴"
 week: 10
-day: 2
+day: 3
 ---
 
-# Week 10, Day 2
-
-## 🦷 Baby Development
-Today's spotlight: tooth buds. Tiny clusters of cells are forming beneath the gum line — these will eventually become 20 baby teeth, though they won't cut through until around six months after birth. Meanwhile, the outer ears are migrating from near the neck toward their final position on the sides of the head. The head is still large compared to the body, but proportions are starting to even out.
+# Week 10, Day 3
 
 ## 🎉 Fun Fact
-Your baby is moving almost constantly right now — stretching, kicking, wiggling, even hiccupping. But at just over an inch long, these movements are far too small for the Mom to feel. She won't notice kicks until around weeks 18-22. For now, your little one is doing gymnastics in a space the size of a tennis ball.
+Your baby's brain is producing roughly 250,000 new neurons every single minute. That's why the forehead looks so prominent right now — it's making room for all that rapid growth.
+
+## 🦴 Baby Development
+A quiet revolution is underway: ossification. Soft cartilage is gradually hardening into bone, and the skeleton is starting to solidify. Arms and legs are lengthening, fingers and toes can bend at the joints, and tiny ribs are beginning to form. Your baby can also swallow now, practicing by gulping tiny amounts of amniotic fluid — which the kidneys then process and recycle. This loop is essential for digestive development.
 
 ## 🤰 What Mom Might Be Feeling
-Fatigue might feel relentless. The Mom's body is building an entirely new organ — the placenta — while growing a human, and that takes enormous energy. Breast tenderness often peaks around now, and visible veins may appear on the chest as blood volume increases. Food aversions tend to be strongest at this stage but usually ease in the coming weeks.
+Frequent urination is likely in full swing — the growing uterus presses on the bladder, and increased blood flow means the kidneys are filtering more fluid. Headaches can crop up too, often driven by hormonal shifts, dehydration, or fatigue. Round ligament pain — a sharp, brief ache on the sides of the lower abdomen — may start appearing as the uterus grows.
 
 ## 🍽️ Nutrition Tip
-If nausea is making big meals impossible, try the "six small meals" approach. Keep crackers, nuts, and dried fruit within reach. Ginger tea or ginger chews can genuinely help — studies back this up. A squeeze of lemon in water first thing in the morning can settle the stomach, and cold foods tend to be easier to tolerate than hot ones since they give off less smell.
+With bones forming, calcium is essential. If the Mom isn't getting enough from food, her body will pull calcium from her own bones. Aim for about 1,000 mg daily. Quick high-calcium options: yogurt, fortified orange juice, almonds, fortified cereal with milk, or tahini — a great staple that packs 130 mg in just two tablespoons.
 
 ## 💪 Exercise & Movement
-A simple 10-minute prenatal stretching routine can make a real difference today — try alternating between cat-cow stretches, gentle side stretches, hip circles, and calf raises. Nothing intense, just enough to ease tension and get the body moving.
-
-## 🏋️ Pelvic Floor Focus
-The pelvic floor supports the uterus, bladder, and bowel — and as the baby grows, these muscles carry more weight. Starting Kegel exercises now helps prevent incontinence and can make delivery easier. The technique: squeeze as though stopping the flow of urine, hold for five seconds, relax for five. Three sets of ten per day, anywhere, anytime.
+Child's Pose is one of the most comforting prenatal stretches. Kneel, sit back on the heels, and fold forward with arms extended — widen the knees if the belly gets in the way. Hold for 30 seconds to a minute. It gently stretches the back, hips, and thighs, and can even ease mild nausea.
 
 ## 💡 Tip for Dad
-Stock up on ginger ale, crackers, and whatever the Mom's current "safe foods" are. Don't take it personally if she can't eat what you made — food aversions are involuntary. Having her go-to snacks ready shows you're paying attention.
+If the Mom is dealing with headaches, offer a gentle neck and shoulder massage tonight. Small circles at the base of the skull and along the tops of the shoulders can make a real difference. A note on medication: acetaminophen (Tylenol/Acamol) is generally considered safe during pregnancy, but ibuprofen (Advil) is not.
 
 ## 💬 Conversation Starter
-What's one tradition from your family that you'd love to carry on with your kid? And is there anything you'd do differently?
+If you could give your future child one piece of life advice, what would it be? Keep it to one sentence each.
 
-## 💡 Yesterday's Q&A Answer
-Yesterday we asked: when do fingerprints form? The answer is around week 13. The friction ridges on your baby's fingertips will create a pattern that is entirely unique — no one in history has ever had the same fingerprints as your child. Not even identical twins share them.
+## 😴 Sleep Tip
+If sleep is getting harder, a pillow between the knees can help with hip and back discomfort. Sleeping on the left side is often recommended for blood flow, though either side works fine at this stage. A small protein-rich snack before bed — like nuts or cheese and crackers — can help stabilize blood sugar overnight.
+
+## 💼 Workplace Pregnancy Tip
+If the Mom hasn't told her employer yet, she doesn't have to. In Israel, there's no legal obligation to disclose pregnancy early, and she's protected from dismissal under the Employment of Women Law. If she needs accommodations — extra bathroom breaks, flexible hours, less heavy lifting — it may help to disclose sooner. The timing is entirely her call.

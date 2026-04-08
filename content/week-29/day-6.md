@@ -1,37 +1,37 @@
 ---
-subject: "Week 29, Day 6 — Breathe In, Breathe Out 🕯️"
+subject: "Week 29, Day 7 — Three-Quarters of the Way! 🏁"
 week: 29
-day: 6
+day: 7
 ---
 
-# Week 29, Day 6
+# Week 29, Day 7
 
 ## 👶 Baby Development
-Your baby's lungs are making steady progress. The bronchial tubes are branching into smaller airways, and the air sacs are multiplying while surfactant production increases. Your baby is also swallowing more amniotic fluid, which helps the digestive system practice and contributes to the formation of meconium — the baby's first bowel movement after birth.
+Week 29 is wrapping up, and your baby is getting stronger by the hour. Those muscles are noticeably more powerful — the Mom might see her belly move and shift as the baby stretches and repositions. The brain is focused on mastering the basics: breathing, swallowing, temperature regulation, and sleep-wake cycles, all while adding layers of complexity at an extraordinary pace.
 
 ## 🎉 Fun Fact
-Your baby has been drinking about a liter of amniotic fluid per day. This fluid is actually mostly composed of the baby's own urine — the baby swallows it, it passes through the digestive system, and the kidneys filter it back out. It sounds unappealing, but this recycling process is essential for kidney development and helps maintain the right amount of fluid in the amniotic sac.
+Your baby is now about the size and weight of a small coconut. Ultrasounds at this stage sometimes catch babies smiling, frowning, or sticking out their tongues. These are reflexes rather than intentional expressions, but they're absolutely adorable — and they're practicing the same facial movements that will charm you after birth.
+
+## 🔮 After-Birth Preview: The First Night at Home
+Some honest truth: the first night home will probably feel surreal. After the buzz of the hospital, coming home with a tiny human can feel both magical and terrifying. The baby will probably sleep a lot (they're exhausted from being born) but will wake for feeding every 2-3 hours. Your job that night: keep the basics covered. Make sure there's food in the house, the baby's sleeping area is ready, and you support each other through the feeds and diaper changes. It won't be perfect, and it doesn't need to be.
 
 ## 🤰 What Mom Might Be Feeling
-Braxton Hicks contractions may be more frequent now, especially after being active, after sex, or when dehydrated. They're the uterus's way of toning and preparing for labor. The Mom might also notice increased breast tenderness and perhaps some colostrum leaking — the thick, yellowish "first milk." This is normal and means her body is preparing to feed the baby.
+The Mom is roughly three-quarters through her pregnancy. She might feel like time is both flying and crawling — eager to meet the baby but also hoping for a few more weeks of preparation. Physically, she may notice more pronounced waddling as the relaxin hormone loosens her pelvic joints to prepare for birth. It might feel self-conscious, but it's actually her body doing something incredibly smart and purposeful.
 
 ## 🍽️ Nutrition Tip
-A Shabbat one-pot winner: lemon herb chicken with potatoes. Toss bone-in chicken pieces, halved baby potatoes, lemon slices, fresh rosemary and thyme, whole garlic cloves, olive oil, salt, and pepper into a baking dish. Roast at 200 C for 45 minutes. Minimal prep, maximum flavor — the potatoes cook in the chicken juices and the lemon keeps everything bright. Pair with a green salad.
+A satisfying weekend breakfast: overnight oats. Mix rolled oats, milk, Greek yogurt, chia seeds, and a little honey or maple syrup the night before. Top in the morning with berries, sliced banana, or nuts. Make two jars — one for each of you. Fiber-rich, protein-packed, and zero effort in the morning.
 
 ## 💪 Exercise & Movement
-Today is about gentle movement and rest. A short walk followed by some stretching is perfect, or a few minutes of prenatal yoga focusing on child's pose (modified), gentle seated twists, and legs-up-the-wall for swelling relief. Listen to the body's signals — some days, doing nothing is exactly what's needed.
-
-## 💰 Financial Tip
-Look into Bituach Leumi benefits for new parents. You may be entitled to a one-time birth grant (ma'anak leida), and the Mom may be eligible for maternity leave payments. The paperwork is easier to handle now while you're not sleep-deprived. Some benefits need to be applied for within a specific window after birth, so knowing the timeline now saves headaches later.
+Saturday is for rest and gentle movement. A walk together is perfect, or gentle stretching at home. Focus on what feels good rather than pushing for any goal. If the Mom has been dealing with back pain, a warm compress on the lower back while resting can work wonders.
 
 ## 💡 Tip for Dad
-Tonight, take care of Shabbat dinner — whatever that looks like in your home. If you cook, cook. If you order, order. The point is that the Mom doesn't have to think about it. Third-trimester fatigue is real, and Fridays can feel especially long.
+Practice installing and removing the car seat — do it three times so it feels natural. You don't want to be fumbling with straps and latches in the hospital parking lot while holding a tiny newborn. Also learn how to adjust the harness for a newborn — most car seats come set for larger babies and need significant tightening.
 
-## 🧘 Mindfulness Moment
-As Shabbat begins, sit facing each other, hold hands, and take 10 synchronized breaths — in for 4 counts, hold for 2, out for 6. There's something powerful about breathing in rhythm with your partner. After 10 breaths, sit in silence for a moment and feel the baby move between you. This is your family, right now.
+## 🙏 Rest & Gratitude
+Take a moment to rest in gratitude. The Mom's body has been building a human for 29 weeks — every nutrient, every heartbeat contributing to this tiny life. And you've been there through it all. Give yourselves credit. You're doing beautifully.
 
 ## 💬 Conversation Starter
-"What's the most unexpected emotion you've felt during this pregnancy? Something that caught you off guard?"
+"In our first week home with the baby, what kind of support would help us most? Meal deliveries? A parent visiting? A postpartum doula? Let's think about this realistically."
 
-## 🕯️ Shabbat Activity
-Start a wish jar. Get any container and some slips of paper. Each of you write down wishes for your baby — anything from big dreams to small everyday joys. Fold them up and add to the jar. Keep adding over the coming weeks and open it on a special occasion — maybe the baby's first birthday.
+## 📅 Next Week Preview
+Week 30 brings big brain news. Your baby's brain is growing so rapidly that the surface is developing wrinkles to increase surface area. Red blood cell production is shifting to the bone marrow, and the fine body hair (lanugo) is starting to disappear. Baby is gaining about half a pound per week. We'll also start on hospital bag lists.

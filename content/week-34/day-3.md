@@ -1,34 +1,35 @@
 ---
-subject: "Week 34, Day 3 — Sleep Hacks for the Final Stretch 😴"
+subject: "Week 34, Day 4 — Why Your Baby Is a Night Owl 🌙"
 week: 34
-day: 3
+day: 4
 ---
 
-# Week 34, Day 3
+# Week 34, Day 4
 
 ## 👶 Baby Development
-Your baby's immune system is getting a boost right now. Antibodies continue crossing the placenta from the Mom, building up the passive immunity that will protect your little one in the first weeks after birth. The baby essentially borrows the Mom's immune defenses until their own system is ready to take over.
-
-## 🎉 Fun Fact
-Your baby has functional taste buds and can detect flavors in the amniotic fluid from what the Mom eats. Studies suggest that babies exposed to certain flavors in the womb are more likely to accept those flavors after birth. If she's eating garlic, spices, and a variety of foods, your baby may arrive as an adventurous eater.
+That layer of vernix — the creamy white coating on baby's skin — is really thickening up now. Think of it as nature's moisturizer and protective barrier. It prevents the skin from getting waterlogged in all that amniotic fluid and will help lubricate the birth canal during delivery. Some babies are born with quite a bit of it still on, especially if they arrive a little early. Many hospitals now recommend leaving it on for the first bath, as it has antimicrobial properties.
 
 ## 🤰 What Mom Might Be Feeling
-Sleep is becoming a real challenge. Between the belly size, hourly bathroom trips, leg cramps, and difficulty finding a comfortable position, a full night's rest feels like a distant memory. Hip pain is common as ligaments loosen in preparation for birth, and increased vaginal discharge is normal as the body prepares for labor.
+Shortness of breath is common as the uterus presses up against the diaphragm. Your partner might find herself needing to pause mid-sentence to catch her breath, or feeling winded just from walking across the room. This should improve in the coming weeks if baby drops lower into the pelvis. Carpal tunnel symptoms (tingling or numbness in the hands) can also appear due to fluid retention putting pressure on the nerves.
 
 ## 🍽️ Nutrition Tip
-A quick iron-rich one-pan meal: saut garlic for a minute, add rinsed red lentils, diced tomatoes, cumin, and two cups of water. Simmer 15-20 minutes until the lentils are soft, then stir in a big handful of baby spinach until wilted and finish with a squeeze of lemon. Serves two and is packed with iron, folate, and fiber — all crucial right now.
+Calcium is essential in these final weeks as baby's bones are hardening. Great sources beyond dairy: canned sardines or salmon (with bones), fortified plant milks, tahini, broccoli, and almonds. Aim for about 1,000 mg of calcium daily. A simple snack: apple slices with almond butter and a sprinkle of sesame seeds.
 
 ## 💪 Exercise & Movement
-If the Mom is experiencing hip pain at night, gentle hip circles during the day can help. Standing with feet hip-width apart, slowly circle the hips like using a hula hoop — ten circles in each direction. Cat-cow stretches on all fours are also great for relieving lower back pressure and keeping the spine mobile.
+Prenatal yoga is excellent at this stage — especially poses that focus on hip opening and relaxation. Child's pose (modified with knees wide to accommodate the belly) is wonderfully relaxing. Butterfly stretches (sitting with soles of feet together, gently pressing knees toward the floor) help open the pelvis. Even 10 minutes of gentle stretching before bed can improve sleep quality.
 
 ## 💡 Tip for Dad
-Start sleeping more now. Seriously. Bank rest while you can. Once the baby arrives, you'll be running on less sleep than you thought possible. If you can, go to bed 30 minutes earlier this week. Your future self will thank you.
+Start learning about postpartum recovery for your partner. Here's the reality: after birth (whether vaginal or cesarean), her body goes through enormous changes. She'll have bleeding (lochia) for several weeks, soreness, possible stitches, hormonal shifts, and extreme fatigue. Understanding what's coming means you can be genuinely helpful instead of caught off guard. We'll cover more specifics in the weeks ahead.
 
 ## 💬 Conversation Starter
-"What's one thing from your own childhood that you definitely want to do with our baby? And one thing you'd do differently?"
+"Who do you think the baby will look like?" This lighthearted question usually leads to a fun conversation about family features, genetics, and imagining your little one's face.
 
-## 🛏️ Sleep Tip
-The pillow fort strategy: the Mom needs one pillow between the knees, one supporting the belly, one behind the back, plus the head pillow. Left side is generally recommended for blood flow to the uterus. Keep a water bottle by the bed to avoid full trips to the kitchen. A full-body pregnancy pillow simplifies the whole setup if she doesn't have one already.
+## 🎉 Fun Fact
+Your baby is most active when your partner is resting. Why? During the day, your partner's movements rock baby to sleep like a natural cradle. At night, when she's still, baby wakes up and has a party. This pattern can actually continue after birth — many newborns are more alert at night in the first few weeks because that was their womb schedule.
 
-## 💼 Workplace Tip
-If the Mom is still working, now is the time to finalize her maternity leave handover — key tasks, passwords, ongoing projects, and contacts all documented. For you, start confirming paternity leave plans with your employer. Know exactly how many days you're taking and when your leave starts — you don't want to be sorting this out while rushing to the hospital.
+## 🌍 Cultural Deep-Dive: Birth Traditions Around the World
+In many cultures, the weeks before birth are marked by special rituals. In Japan, there's the tradition of "anzan kigan" — visiting a shrine on the Day of the Dog during the fifth month for safe delivery prayers. In many Latin American communities, close friends host a "baby shower" that includes practical wisdom from experienced mothers. In some Israeli Sephardic traditions, families hold a "Zeved Habat" ceremony for girls or prepare special amulets for protection. Whatever your traditions, now is a beautiful time to think about which cultural practices you want to pass on.
+
+## 🤔 Q&A Question
+**When should you actually go to the hospital? What if you go too early — or too late?**
+We'll break down the timing tomorrow!

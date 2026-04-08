@@ -1,39 +1,37 @@
 ---
-subject: "Week 33, Day 2 — Baby's Eyes Respond to Light! 👁️"
+subject: "Week 33, Day 3 — Billions of Neurons Building Your Baby's Brain 🧠"
 week: 33
-day: 2
+day: 3
 ---
 
-# Week 33, Day 2
+# Week 33, Day 3
 
 ## 👶 Baby Development
-Your baby's pupils can now constrict and dilate in response to light — a reflex the pediatrician will test right after birth. When bright light shines on the Mom's belly, the baby may turn toward or away from it. The iris muscles are functioning, and the retina is nearly fully developed. The visual system is one of the last sensory systems to mature: at birth, your baby will only focus clearly on objects about eight to twelve inches away — which happens to be the exact distance between a nursing baby's face and the mother's.
+The brain is in the most explosive growth period of the entire pregnancy. Billions of neurons are forming connections at a rate of about 250,000 per minute. The cerebral cortex — the wrinkled outer layer responsible for thinking, memory, language, and consciousness — is developing its characteristic folds, dramatically increasing surface area. Your baby's brain currently weighs about one-third of what it will weigh at birth and will nearly triple in the next seven weeks. This rapid development is exactly why omega-3 fatty acids (DHA) and choline matter so much right now.
 
 ## 🎉 Fun Fact
-Newborns see in high contrast and are drawn to bold patterns and strong edges. This is why they stare at faces so intently: dark eyes, eyebrows, and a hairline against lighter skin create a visual magnet. Within hours of birth, babies already show a preference for face-like patterns over random shapes. Your face will literally be the most interesting thing in your baby's world.
+Your baby's brain at 33 weeks has more neurons than it will have at any other point in life — including adulthood. The brain overproduces neurons and then prunes back the ones that don't form useful connections. This "use it or lose it" principle is why early experiences after birth matter so much: reinforced connections survive while unused ones get eliminated. By age three, the brain will have pruned trillions of excess connections, leaving a leaner, more efficient network shaped by the baby's experiences.
 
 ## 🤰 What Mom Might Be Feeling
-Pelvic pressure is becoming more noticeable as the baby grows heavier and settles lower. The Mom might feel like the baby is sitting directly on her bladder — because they probably are — which means bathroom trips every thirty to forty-five minutes. She may also notice a waddle developing in her walk. This isn't just from the weight; the hormone relaxin has loosened the pelvic ligaments to prepare for birth, changing the way the hips move.
+Insomnia is a cruel irony of late pregnancy — the body desperately needs rest, but sleep becomes elusive. Between physical discomfort, frequent bathroom trips, restless legs, heartburn, and a mind that won't stop planning, the Mom might be averaging five to six hours of fragmented sleep. Emotional sensitivity often intensifies too: crying at commercials, snapping over small things, feeling overwhelmed by decisions that normally wouldn't register. It's the combination of hormones, sleep deprivation, and the weight — literal and figurative — of growing a human.
 
 ## 🍽️ Nutrition Tip
-Vitamin A supports eye development — fitting for today's theme. Great sources include sweet potatoes, carrots, dark leafy greens, eggs, and mangoes. A simple snack: carrot sticks with hummus, or a mango smoothie with yogurt and a splash of orange juice. Vitamin A from food sources is safe during pregnancy, but supplemental retinol should be limited — the prenatal vitamin has the right amount.
+DHA (docosahexaenoic acid) is the star nutrient for brain development right now. The best dietary source is fatty fish — salmon, sardines, mackerel, and herring. If the Mom isn't a fish person, a DHA supplement from algae or fish oil is worth discussing with the doctor. Other brain-building foods include walnuts, flaxseeds, omega-3 enriched eggs, and avocados. Tonight's dinner idea: baked salmon with a walnut crust — double the DHA in one meal.
 
-## 💪 Exercise & Movement
-A short prenatal yoga flow is a great option today: start with cat-cow stretches to release back tension, move into a gentle warrior II hold on each side for hip opening, then finish with a supported child's pose for a few minutes of deep breathing. Keep it to about 10-15 minutes and focus on movements that feel opening rather than intense.
+## 😴 Sleep Tip
+Start with the physical setup: a full-body pregnancy pillow (or one between the knees, one behind the back, one to hug), a slightly cool room (18-20C), and the upper body elevated to reduce heartburn. Keep water and a snack on the nightstand.
+
+For the pre-bed routine, begin winding down an hour before sleep: no screens for the last thirty minutes, a warm bath or shower, gentle stretching, and a magnesium-rich snack like almonds or dark chocolate. When the 3 AM wakeup happens, don't fight it — get up and do something genuinely boring (not the phone), have a small snack if needed, try 4-7-8 breathing, and return to bed when drowsy.
+
+What the partner can do: if snoring is waking her, consider temporary separate rooms (practical, not personal). Take over early-morning responsibilities so she can sleep in. And never say "just try to relax."
+
+## 💼 Workplace Tip
+With about seven weeks to go, finalize work handovers. For paternity leave: write a clear document listing ongoing projects, status, and backup contacts. Brief colleagues in person — a face-to-face walkthrough is better than a document alone. Set expectations with your manager about leave dates, reachability (ideally minimal), and return date.
+
+For the Mom's maternity leave: if she hasn't formally notified HR and confirmed her start date, now is the time. In Israel, maternity leave is 26 weeks from the birth date (15 weeks paid by Bituach Leumi). Help her create a handover document if she hasn't — she may have less mental bandwidth for this right now.
 
 ## 💡 Tip for Dad
-Here's something practical for tonight: run the Mom a warm bath (not hot — keep it below 38C), add Epsom salts for magnesium absorption, and let her soak for twenty minutes while you handle whatever needs handling. At 33 weeks, a warm bath is pure luxury. No bathtub? A foot soak in a basin works wonders too.
-
-## 🧳 Hospital Bag Checklist
-A practical packing list, organized by person.
-
-For the Mom: ID and insurance cards, birth plan (printed copies), comfortable robe or large t-shirt for labor, nursing bras and breast pads, nipple cream, a comfortable going-home outfit (maternity-sized — the belly doesn't vanish immediately), toiletries, slippers, warm socks, maternity pads, postpartum underwear, a pillow from home with a colored pillowcase, a long phone charger, and glasses or contacts if needed.
-
-For Dad: change of clothes including sleepwear, basic toiletries, plenty of snacks (granola bars, nuts, dried fruit, chocolate), water bottle, a separate phone charger, a small Bluetooth speaker, something to read during waiting periods, cash for vending machines and parking, comfortable shoes, and a thin hoodie (hospitals run cold).
-
-For baby: two outfits in newborn size and two in 0-3 months (you don't know the size yet), socks or booties, a hat, a swaddle blanket, and backup diapers and wipes. The car seat should be installed in the car now — not packed in the bag.
-
-Keep a "last-minute list" on top of the bag for daily-use items — chargers, glasses, wallet — that need to be grabbed on the way out.
+The Mom's brain is reorganizing itself alongside the baby's. Research shows that pregnancy causes significant changes in brain structure — specifically, refinements in regions tied to social cognition. This isn't a loss; it's the brain becoming more efficient at reading social signals, interpreting emotions, and detecting threats. When she seems distracted or forgetful, her brain is literally under renovation. Be patient — the result is something remarkable.
 
 ## 💬 Conversation Starter
-"What's the first thing you want to eat after giving birth? Let's plan the ultimate post-delivery meal."
+"If our baby could understand one thing about us right from the start, what would you want it to be?"

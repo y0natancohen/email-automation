@@ -1,33 +1,34 @@
 ---
-subject: "Week 27, Day 2 — Your Baby's Brain Is Buzzing with Activity 🧠"
+subject: "Week 27, Day 3 — Those Little Eyes Are Opening Wide 👀"
 week: 27
-day: 2
+day: 3
 ---
 
-# Week 27, Day 2
+# Week 27, Day 3
 
 ## 👶 Baby Development
-Neural connections are forming at an astonishing rate, and higher brain functions are coming online. During REM sleep, the brain is firing away — some researchers believe babies may even be dreaming at this stage, probably processing the sounds, sensations, and rhythms of their cozy world.
+Your baby can now open and close their eyes with tiny eyelashes in place. The retinas are developing layers that will eventually detect light, and the eyelids blink on their own. The iris doesn't have its final color yet — that won't be determined until weeks or even months after birth, so no guessing eye color just yet.
 
 ## 🎉 Fun Fact
-Your baby hiccups in the womb, and the Mom can feel them — tiny, rhythmic taps that are very different from kicks. They happen because the diaphragm is practicing its movements. Some babies hiccup multiple times a day, and it's a sign of healthy development.
+Babies at 27 weeks have a surprisingly strong grip. If you could reach in and offer your finger, your baby would grab onto it. This grasp reflex is one of the earliest to develop and will be one of the first things you notice after birth — that incredible moment when tiny fingers wrap around yours.
 
 ## 🤰 What Mom Might Be Feeling
-The Mom might notice her belly feeling tight from time to time — likely Braxton Hicks contractions. Heartburn may be picking up as the growing uterus pushes against the stomach, and small, frequent meals can help. Some women notice increased shortness of breath, which is normal as the body works harder to supply oxygen to both mom and baby.
+Sleep may be getting trickier. Between the growing belly, frequent bathroom trips, leg cramps, and an active baby who loves to party at 2 AM, the Mom might be feeling more fatigued. Restless legs syndrome — an uncomfortable urge to move the legs — can also appear around this time. Stretching before bed and staying hydrated help.
 
 ## 🍽️ Nutrition Tip
-Omega-3 fatty acids are crucial right now during peak brain-building time. Great sources include salmon, sardines, walnuts, chia seeds, and flaxseeds. If the Mom isn't a fan of fish, a prenatal DHA supplement (with a doctor's okay) can bridge the gap. Even adding a tablespoon of ground flaxseed to morning oatmeal or a smoothie makes a difference.
+Magnesium can help with both leg cramps and restless legs, common complaints in the third trimester. Great sources include dark chocolate, almonds, bananas, and avocados. An evening snack of a banana with a small handful of almonds can ease nighttime leg cramps, and staying well-hydrated throughout the day makes a big difference.
 
 ## 💪 Exercise & Movement
-Pelvic floor exercises continue to be the Mom's best friend. Kegels strengthen the muscles that support the uterus, bladder, and bowels — crucial for birth and recovery. The routine: squeeze the pelvic floor muscles for 5 seconds, release for 5, and repeat 10 times, three times a day. These can be done anywhere, anytime.
+A 5-minute bedtime stretch routine can significantly improve sleep quality. Try calf stretches against a wall, a seated forward fold modified with legs apart for belly room, cat-cow stretches on hands and knees, and a side-lying hip stretch. Doing it together makes it more likely to become a habit and is a nice way to wind down the day.
+
+## 🛏️ Sleep Tip
+Any side-sleeping position is fine during pregnancy — left side is often recommended for improved blood flow, but either side works. If the Mom wakes up on her back, there's no need to panic. The body usually signals discomfort before any issues arise. A pillow between the knees and one supporting the belly can make side sleeping much more comfortable.
 
 ## 💡 Tip for Dad
-Start thinking about your birth support toolkit. Learn what helps during labor: counter-pressure on the lower back, breathing techniques, having a playlist ready, knowing when to offer water and when to just be quiet and present. You'll learn more in childbirth class, but starting to think about it now gives you time to prepare.
+Start paying attention to the Mom's sleep comfort. Is the pillow situation working? A U-shaped or C-shaped pregnancy pillow can be a game-changer in the third trimester — and a thoughtful gift if she doesn't have one. Also, make sure the bedroom is cool, since pregnant women tend to run warmer.
 
 ## 💬 Conversation Starter
-"Have you thought about who you'd want in the delivery room with us? Let's talk about what kind of support would make you feel most comfortable."
+"What's one thing about our daily routine that you think will change the most after the baby comes? What's one thing you hope stays the same?"
 
-## 🤔 Weekly Q&A — Answer
-Yesterday's question: What are Braxton Hicks contractions, and how do you tell them from real labor?
-
-Braxton Hicks are "practice" contractions that help tone the uterine muscle. They're usually irregular, don't get closer together, and often stop if the Mom changes position, walks around, or drinks water. Real labor contractions are regular, get progressively closer and stronger, and don't stop with movement or rest. A helpful rule: if she can talk through it and it goes away, it's likely Braxton Hicks. If contractions are regular and increasing in intensity, that's worth a call to the doctor.
+## 💼 Workplace Tip
+If the Mom is still working, now is a good time to start thinking about the maternity leave plan — who will cover responsibilities and which projects to wrap up before leave. Having a transition conversation with her manager reduces stress significantly. And for you — have you checked your company's paternity leave policy?

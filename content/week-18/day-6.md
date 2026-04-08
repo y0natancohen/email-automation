@@ -1,40 +1,37 @@
 ---
-subject: "Week 18, Day 6 — Shabbat Shalom: Celebrating This Sweet Milestone 🕯️🍠"
+subject: "Week 18, Day 7 — Halfway is in Sight! Rest and Look Ahead 🔮"
 week: 18
-day: 6
+day: 7
 ---
 
-# Week 18, Day 6
+# Week 18, Day 7
 
 ## 👶 Baby Development
-As the week wraps up, your sweet-potato-sized baby has ears in their final position, myelin coating nerve fibers, a maturing reproductive system, and increasingly coordinated movements. The facial features are becoming more defined — a distinct upper lip, the tip of the nose, and eyelids that will eventually open around week 26. The skin is still very thin and covered in fine lanugo hair, but every day brings another tiny advancement closer to ready.
+What a week it's been for your sweet potato baby! Ears are in position and picking up sounds, myelin is coating nerves for faster signals, the reproductive system is forming, and baby has mastered yawning and hiccupping. The skeleton continues hardening, fat continues building, and that tiny face is looking more and more like the person you'll meet in about 22 weeks. At 5.6 inches, baby is substantial — you'd definitely notice if you could hold them in your hand.
 
 ## 🤰 What Mom Might Be Feeling
-By Friday, the Mom might feel the combined effects of a busy week — tired but also possibly exhilarated if she felt those first movements. The belly is definitely requiring wardrobe adjustments now. She might feel some rib discomfort as the uterus expands upward, and emotionally, the growing reality of becoming a mother can bring waves of joy, nervousness, and everything in between — sometimes all in the same hour.
+Saturday rest is essential. Your partner's body has been working around the clock, and weekends are a chance to let it focus on growth rather than everything else. She might feel some Braxton Hicks contractions — these practice contractions are more common when dehydrated, so drinking water can help. She might also notice her belly button starting to flatten out or even pop outward. It's not permanent — it usually goes back after birth.
 
-## 💰 Financial Tip
-If you haven't started looking into childcare options, now is a good time — especially in areas where daycare has waiting lists. In Israel, many families rely on a combination of mishpachton, ma'on, or private childcare, and costs vary significantly by city and type. Even if the Mom plans a longer maternity leave, getting on a waiting list early gives you options.
-
-## 🍼 Gear Tip
-The diaper bag — you'll carry this thing everywhere for years, so choose wisely. It doesn't need to be a traditional diaper bag; any bag with multiple compartments and easy access works. Backpack-style bags are popular because they leave your hands free. Key features to look for: water-resistant material, a changing pad, an insulated pocket for bottles, and enough room for diapers, wipes, a change of clothes, and snacks.
-
-## 🧘 Mindfulness Moment
-This Shabbat, try a Loving-Kindness Meditation together. Sit comfortably, close your eyes, and silently repeat: "May our baby be healthy. May our baby be happy. May our baby be safe." Then extend it to each other, and then to yourselves. Three minutes of intentional well-wishing. It's simple but surprisingly moving, especially when you're sending those wishes to someone you haven't met yet.
+## 🔮 After-Birth Preview: The First Week at Home
+The first week at home with a newborn is unlike anything you can fully prepare for — but knowing what's coming helps. Key realities: sleep will be in 2-3 hour chunks, feeding happens 8-12 times per day, and you'll both feel simultaneously overwhelmed and deeply in love. Your partner will be physically recovering (whether from vaginal birth or C-section), so your role at home is crucial. Handle meals, laundry, and visitors. Accept help from anyone who offers it. Keep the house "good enough" not perfect. And lower all expectations — the only goal is keeping the baby fed, the parents fed, and everyone safe.
 
 ## 🍽️ Nutrition Tip
-Shabbat dinner idea: stuffed bell peppers. Halve bell peppers, fill with a mixture of cooked rice, ground beef or turkey, diced tomatoes, corn, black beans, cumin, and shredded cheese. Bake at 375F (190C) for 30 minutes. Protein, iron, vitamin C, fiber, and folate in a colorful, complete meal that looks beautiful on the Shabbat table.
+Staying hydrated is increasingly important as blood volume expands. If plain water gets boring, try infused water: fill a pitcher with water and add sliced cucumber and mint, or strawberry and basil, or lemon and ginger. Refrigerate for a few hours for maximum flavor. Keep a full water bottle visible at all times — seeing it is a reminder to drink. Aim for that 2.3 liters per day, more if it's warm or she's active.
 
 ## 💪 Exercise & Movement
-Instead of exercise today, give each other a 10-minute massage. Focus on the areas that need it most: lower back, shoulders, feet. For the Mom, gentle circular motions on the lower back can relieve the persistent ache that comes with pregnancy. It's physical care, intimacy, and relaxation all in one.
+Rest day movement: lie on the floor (or bed) and put legs up against the wall. Let them rest there for 5-10 minutes. This "legs up the wall" position helps drain fluid from swollen ankles and feet, relieves lower back tension, and is deeply relaxing. Add some calming music or just enjoy the quiet. It's one of the simplest and most restorative things you can do during pregnancy.
+
+## 😌 Rest & Gratitude
+Eighteen weeks down. Take a moment to appreciate the anatomy scan — whether it's happened, is coming up, or is being scheduled. This scan is a milestone that marks a transition: from hoping everything is okay to seeing with your own eyes that it is. Write down how you felt (or imagine you'll feel) seeing your baby's face, hands, and beating heart on the screen. These are moments worth remembering.
 
 ## 💡 Tip for Dad
-Do something unexpected and kind tonight. Write a note and leave it on her pillow. Buy her favorite flowers. Run a warm bath with candles. These gestures don't fix the physical discomforts of pregnancy, but they communicate something powerful: "I see you, I appreciate you, and I'm in this with you."
+If the anatomy scan has happened and you have photos, choose your favorite one and set it as your phone's lock screen. If it hasn't happened yet, set a reminder to do this after the scan. Every time you check your phone, you'll see your baby's face. It's a small thing, but it keeps the connection alive throughout busy days.
 
 ## 💬 Conversation Starter
-What's the Mom's love language? Words of affirmation, acts of service, gifts, quality time, or physical touch? Ask her — and share yours. Understanding how each of you best receives love helps you give it more effectively, especially during stressful times.
+What's the most helpful thing someone has said to you about pregnancy or parenting so far? And what's the least helpful? Comparing notes on advice you've received can be enlightening — and sometimes very funny.
 
-## 🕯️ Shabbat Couple Activity
-Look at baby ultrasound photos together — yours from earlier appointments, or the detailed anatomy scan images. Try to identify features: Where's the nose? Can you see the fingers? Which way is baby facing? Print one out and put it somewhere you'll see it every day.
+## 🔭 Next Week Preview
+Week 19 — the mango! Your baby will be about 6 inches long, and this week is all about sensory development exploding. The brain is designating specific areas for smell, taste, hearing, vision, and touch. A waxy coating called vernix caseosa starts forming on baby's skin. Arms and legs are finally in proportion, and hair is growing on the scalp. It's a spectacular week for development!
 
 ## 🎉 Fun Fact
-In many Latin American cultures, there's a tradition called "sobada" where a midwife or healer gently massages the pregnant belly to determine the baby's position and encourage optimal positioning. The hands-on, community-centered approach to prenatal care that many cultures practice is something modern medicine is increasingly recognizing as valuable alongside clinical care.
+By week 18, your baby has a functioning immune system — well, sort of. Baby is receiving antibodies from your partner through the placenta, creating "passive immunity." These borrowed antibodies will protect baby for the first few months after birth while their own immune system is still learning. Breastfeeding extends this protection further. Your partner is literally sharing her immune experience with your baby — like passing down a survival guide.

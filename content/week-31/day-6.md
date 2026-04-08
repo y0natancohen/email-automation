@@ -1,50 +1,51 @@
 ---
-subject: "Week 31, Day 6 — Nesting, Resting, and Shabbat 🕯️"
+subject: "Week 31, Day 7 — Coconut-Sized and Full of Potential 🥥"
 week: 31
-day: 6
+day: 7
 ---
 
-# Week 31, Day 6
+# Week 31, Day 7
 
 ## 👶 Baby Development
-Your baby's nervous system is mature enough to control more body functions now. The pupils can dilate and constrict in response to light, body temperature is being regulated, and the digestive system is practicing its rhythmic muscle contractions (peristalsis). The baby's skin is becoming smoother as more fat accumulates, and the vernix caseosa (the waxy protective coating) is starting to thin in some areas. Your baby is really starting to look like a newborn.
+Week 31 has been a milestone week — all five senses are operational, REM sleep is increasing, and the brain is processing a rich, multisensory world. Your baby weighs about 3.3 pounds and is becoming more and more like the newborn you'll meet soon. The next few weeks will be focused on growth: gaining weight, maturing the lungs, and putting the finishing touches on all organ systems. Your baby is preparing for their grand entrance.
 
 ## 🤰 What Mom Might Be Feeling
-The nesting instinct might be in full swing. Your partner may have a sudden, irresistible urge to clean the house from top to bottom, organize closets, or set up the nursery — even at 11 PM. This is a real biological phenomenon driven by hormones, and it's actually the body's way of preparing for the baby. Let her nest if she has the energy, but make sure she's not overdoing it physically. Climbing ladders, lifting heavy furniture, or using harsh cleaning chemicals should be avoided. Offer to be the muscle while she directs.
+Your partner might feel like she's been pregnant forever and also like the due date is rushing toward her. This is the paradox of late pregnancy. She may be experiencing more physical discomfort — back pain, pelvic pressure, Braxton Hicks, heartburn, insomnia — and may be counting the weeks (or days) until she can lie on her stomach again. She's a warrior, and she deserves to hear that from you regularly.
 
 ## 🍽️ Nutrition Tip
-**Easy Shabbat Side: Roasted Cauliflower with Tahini**
-- 1 large cauliflower, cut into florets
-- 2 tablespoons olive oil
-- 1 teaspoon cumin, 1/2 teaspoon turmeric
-- Salt and pepper
-- Roast at 425°F/220°C for 25-30 minutes until golden
-
-Drizzle with tahini sauce (tahini + lemon juice + garlic + water to thin) and sprinkle with pomegranate seeds and fresh parsley. Beautiful, delicious, and full of vitamins C and K, folate, and fiber.
+Choline is an often-overlooked nutrient that's crucial for brain development. Most prenatal vitamins don't contain enough of it. Great dietary sources: eggs (especially the yolk — that's where the choline is!), beef liver, soybeans, and chicken. Two eggs for breakfast provides about half the recommended daily intake. If your partner isn't an egg fan, edamame or a soy-based snack can help fill the gap.
 
 ## 💪 Exercise & Movement
-A gentle Shabbat walk is a lovely tradition. Today, focus less on exercise and more on being present. Walk slowly, hold hands, and talk about the week. If your partner is experiencing pelvic pain, keep the walk short and flat. If she's feeling energetic, a slightly longer route is fine. The goal is movement that feels good, not movement that feels like a workout.
+Rest day! If your partner has been active this week, today is for recovery. If she's been resting all week, a gentle walk is a nice option. The key is listening to the body — some days it wants movement, some days it wants stillness. Both are valid. Both are healthy. In the third trimester, rest IS productive.
 
 ## 💡 Tip for Dad
-This Shabbat, do something that has nothing to do with the baby. It's easy to let every conversation, every plan, and every thought revolve around the impending arrival. But you and your partner are still individuals and a couple, not just parents-to-be. Watch a movie together, talk about something completely unrelated, play a game, or just sit together in comfortable silence. Maintaining your identity as a couple will serve you well when the baby arrives and everything feels baby-focused.
+This week, verify these practical items are handled or in progress:
+- Car seat: purchased and practice-installed
+- Pediatrician: researched and selected (or at least narrowed down)
+- Hospital: pre-registration done (or know how to do it)
+- Birth plan: discussed (even if not finalized on paper)
+- Hospital bags: list created (packing can happen over the next few weeks)
+- Childcare: initial research started
+
+If some of these aren't done yet, don't stress — you have time. But creating a plan for when they'll get done reduces the "there's so much to do" feeling.
 
 ## 💬 Conversation Starter
-"Outside of parenting, what's something you want to accomplish or experience in the next year? Let's remember that we have goals and dreams beyond becoming parents."
+"What's something you've learned about yourself during this pregnancy that surprised you?"
 
 ## 🎉 Fun Fact
-At 31 weeks, your baby has fully developed fingernails that extend past the fingertips. Some babies even scratch themselves in the womb! After birth, you'll notice tiny scratch marks on their face from their sharp little nails. Don't worry — these heal incredibly fast. Baby mittens (or just socks on the hands) help in the first days, and you can carefully file the nails with a baby-specific emery board while the baby is asleep.
+At this stage, your baby responds to touch so reliably that doctors can use it during examinations. When the doctor gently pushes on your partner's belly to check the baby's position, the baby often pushes back! It's like a tiny underwater handshake. You can do this at home too — gently press on different parts of the belly and see if you get a response. Some babies even seem to "play along," pushing back against the pressure.
 
-## 💰 Financial Tip
-Start thinking about childcare — even if you don't need it immediately. In Israel, childcare options include:
-- **Mishpachton (family daycare):** A caregiver watches a small group of children in their home. Often available from around 3 months.
-- **Ma'on (daycare center):** Larger group settings, usually from around 6 months.
-- **Private nanny (metapelet):** One-on-one care at home.
-- **Family help:** Grandparents or other family members.
+## 🔮 After-Birth Preview: The First 48 Hours
+Here's a realistic picture of the first 48 hours after birth (for a vaginal delivery):
+- **Hour 1:** Skin-to-skin contact, first breastfeeding attempt (if applicable), initial health checks
+- **Hours 2-4:** Moving to a recovery room, more feeding attempts, baby gets cleaned up
+- **Hours 6-24:** Frequent feedings (every 2-3 hours), diaper changes, your partner recovering physically, possible visits from family
+- **Day 2:** Hearing test, blood tests for the baby, circumcision discussion if applicable, pediatrician visit, lactation consultant if breastfeeding, continued practice with feeding and diapering, possible discharge (or stay another night)
 
-Each has different costs, availability, and waiting lists. Research your neighborhood options now and get on waiting lists if needed — popular daycare spots fill up months in advance. This is one of those tasks where being early really pays off.
+The main thing to know: it's intense, emotional, exhausting, and beautiful — all at once. Sleep whenever the baby sleeps (seriously). Accept help from the hospital staff. Ask every question that comes to mind. And take photos — you'll forget how tiny they were.
 
-## 🧘 Mindfulness Moment
-As you light Shabbat candles tonight, try this intention: each of you silently set an intention for the week ahead. Not a task or a goal — an intention. Something like: "I intend to be more patient with myself this week" or "I intend to notice the small beautiful moments." Hold that intention in your mind as the flames flicker. Intentions are different from goals — they're about how you want to be, not what you want to do. And how you want to be as a parent starts with how you're being right now.
+## 🙏 Rest & Gratitude
+Thirty-one weeks. Your baby has fingernails, eyelashes, and dreams. They know your voice, prefer sweet tastes, and can turn their head toward the light. They're not just surviving in there — they're thriving. This week, be grateful for the senses that are bringing your baby's world to life. And be grateful for each other. You're a team, and you're almost at the finish line.
 
-## 🕯️ Shabbat Activity
-**Timeline Together:** Draw a simple timeline on a piece of paper, from now to 3 months after the due date. Together, mark the major milestones and tasks: when the hospital bag should be packed, when maternity/paternity leave starts, the due date, potential visitors, childcare research deadlines, and any other important dates. Seeing it all laid out visually can make the timeline feel more manageable and help you prioritize. Keep it on the fridge as a visual reminder.
+## 📅 Next Week Preview
+Week 32 is all about practice! Your baby is practicing breathing, sleeping 90-95% of the day, and gaining weight rapidly. Toenails become visible, bones are hardening (except the skull, which stays flexible for birth), and we'll talk about hospital pre-registration. The baby now weighs about 3.75 pounds, and things are getting real. See you Sunday!

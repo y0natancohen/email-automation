@@ -1,37 +1,31 @@
 ---
-subject: "Week 21, Day 1 — Your Baby Is a Little Food Critic Now! 🍽️"
+subject: "Week 21, Day 2 — Those Tiny Eyebrows Are Ready for Their Close-Up 👀"
 week: 21
-day: 1
+day: 2
 ---
 
-# Week 21, Day 1
-
-## 🌒 This Week at a Glance
-Welcome to Week 21 — you're past the halfway mark. Your baby is about 10.5 inches long (measured crown to heel from now on, which is why the number jumped) and weighs around 12 ounces, roughly the size of a large banana. This week is all about coordination: movements are becoming deliberate and purposeful rather than random twitches. The bone marrow is taking over red blood cell production from the liver and spleen, eyebrows and eyelids are fully formed, and your baby is swallowing amniotic fluid regularly — tasting traces of whatever the Mom eats.
-
-## 🎉 Fun Fact
-Your baby can already distinguish between sweet and bitter flavors in the amniotic fluid. Studies show babies swallow more when the fluid is sweet and less when it's bitter. Tiny food critic in the making.
+# Week 21, Day 2
 
 ## 👶 Baby Development
-The muscular and skeletal systems are maturing together this week. Those coordinated movements — stretching, turning, somersaulting — reflect a strengthening body and a developing nervous system. The digestive system is getting practice too, processing swallowed amniotic fluid and absorbing nutrients. Every meal the Mom eats sends flavor compounds into the fluid within hours, giving your baby an early introduction to the family's food culture.
+Your baby's face is looking more and more like a real person. The features are becoming increasingly defined, with the eyes developing rapidly underneath still-closed lids. Today's movement repertoire includes kicks, stretches, and the occasional hiccup. The digestive system continues to practice too, processing swallowed amniotic fluid through the intestines — all rehearsal for life after birth.
+
+## 🎉 Fun Fact
+Your baby's fingerprints are forming right now. The swirling patterns on those tiny fingertips are shaped by the pressure of amniotic fluid on the developing skin. No two people — not even identical twins — share the same fingerprints.
 
 ## 🤰 What Mom Might Be Feeling
-The Mom might be hitting a sweet spot right now. The rough first trimester is a distant memory, and the heavy third trimester hasn't arrived yet. She may notice her belly growing more rapidly, and round ligament pain — sharp twinges on the sides — can pop up with sudden movements. Leg cramps at night are common around this time, and increased appetite is perfectly normal. Emotionally, this can be a confident, energized period.
+The Mom's skin may be doing interesting things this week. Some women get the famous "pregnancy glow" thanks to increased blood volume giving the skin a flushed, dewy look. Others deal with breakouts, dry patches, or darkening areas like the linea nigra. Stretch marks might be appearing on the belly, breasts, or hips. She might also feel warmer than usual, since extra blood volume means extra body heat. All of this is normal and temporary.
 
 ## 🍽️ Nutrition Tip
-Your baby's bone marrow needs iron to produce all those new blood cells, making iron-rich foods especially important right now. A hearty lentil soup is an easy win: sauté onion and garlic in olive oil, add diced carrots with cumin and turmeric, then simmer with red lentils, diced tomatoes, and vegetable broth until tender. Finish with a squeeze of lemon juice — the vitamin C boosts iron absorption significantly.
+Your baby's bones are hardening, and that takes calcium. If the Mom isn't a big milk drinker, plenty of other sources work well — tahini, sardines, fortified orange juice, broccoli, almonds, and white beans. A quick snack idea: apple slices with almond butter and a sprinkle of sesame seeds. Tasty, easy, and calcium-packed.
 
 ## 💪 Exercise & Movement
-A 20-minute walk after dinner is one of the best options right now. It helps with digestion, reduces leg cramps, and keeps circulation flowing. If the Mom is feeling energetic, a prenatal yoga session focused on hip openers can help prepare the body for what's ahead.
+The pelvic floor is the unsung hero of pregnancy — strong pelvic floor muscles support the growing uterus, help with labor, and speed up postpartum recovery. Kegels are simple: contract and hold for five seconds, release for five, repeat ten times, three sets throughout the day. Bridge pose is another great option — lie on the back with knees bent, squeeze glutes and pelvic floor, and lift hips for five seconds. These exercises benefit everyone, so doing them together makes it feel less awkward.
 
 ## 💡 Tip for Dad
-Start paying attention to when you feel the baby move. Put your hand on the belly during quiet moments — evenings on the couch, mornings in bed. Your baby is getting strong enough that you might feel kicks from the outside soon. These moments bond you to the pregnancy in a way nothing else can.
+If the Mom is dealing with skin changes, be genuinely reassuring — and specific. "You look great" is nice but vague. Something like "I love how you look right now — you're growing our baby and it shows in the best way" feels much more real. A gentle belly moisturizing routine together can become a nice nightly ritual.
 
 ## 💬 Conversation Starter
-"What's one thing about your own childhood that you'd love to recreate for our baby, and one thing you'd do differently?"
+"If our baby could hear one song right now and remember it forever, what would you want it to be?"
 
-## 🤔 Q&A: Question of the Day
-Is it true that babies can hear music in the womb at this stage? And does playing music actually make a difference? We'll share the answer tomorrow — but in the meantime, maybe queue up a playlist tonight and see if you notice any reactions.
-
-## 👫 Couple Activity
-Since your baby is developing taste preferences through the amniotic fluid, make tonight a mini food adventure. Pick three foods the Mom doesn't usually eat — something spicy, something sour, something sweet — and taste them together. Talk about what flavors you hope your baby will love. A silly, fun way to connect with what's happening right now.
+## 🤔 Q&A: Yesterday's Answer
+**Can babies hear music in the womb?** Yes. By week 21, your baby's hearing is developing rapidly. While it won't fully mature until around weeks 25-26, your baby can detect sounds, especially low-frequency ones. Studies show newborns recognize music and voices they heard frequently during pregnancy. Low-frequency sounds — like bass lines or a father's deep voice — travel particularly well through amniotic fluid. So play music, talk to the belly, sing off-key. Your baby is listening.

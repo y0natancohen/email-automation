@@ -1,35 +1,34 @@
 ---
-subject: "Week 32, Day 2 — Toenails, Bones, and Building Strength 🦶"
+subject: "Week 32, Day 3 — Sleep Champion: 90-95% of the Day! 😴"
 week: 32
-day: 2
+day: 3
 ---
 
-# Week 32, Day 2
+# Week 32, Day 3
 
 ## 👶 Baby Development
-Your baby's toenails are now visible and growing. While fingernails have been developed for a while, toenails are catching up. Bones throughout the body continue to harden through ossification — calcium is being deposited rapidly, strengthening the entire skeleton. The skull, however, stays deliberately soft. The skull bones have gaps called fontanelles that allow the head to mold during birth. These soft spots gradually close over the first 18 months of life.
-
-## 🎉 Fun Fact
-A significant chunk of your baby's weight gain right now is going straight to those adorable chubby cheeks. Fat deposits in the face give newborns their round, full look — and they serve a practical purpose too, helping babies suck more efficiently during feeding. Form and function, perfectly combined.
+Your baby's sleep cycles are becoming more organized, with distinct periods of deep sleep and REM sleep. During the brief wakeful windows — which often coincide with the Mom's rest time, naturally — the baby is incredibly active: stretching, kicking, practicing breathing, swallowing amniotic fluid, and sucking on fingers or toes. The skin is becoming soft and smooth as lanugo sheds and fat layers build up beneath the surface.
 
 ## 🤰 What Mom Might Be Feeling
-The Mom might be surprised to discover that her rib cage has actually expanded. During pregnancy, the ribs spread to accommodate the growing uterus and create more lung space. Bras and shirts may feel tighter around the ribcage even if the belly hasn't grown in that area. A soft, stretchy bra without underwire is often the most comfortable option. The expansion usually resolves after birth, though it can take a few months.
+The Mom might be starting to think seriously about labor, and that can bring a mix of anticipation and nervousness. Physically, the list is familiar: frequent urination, difficulty taking deep breaths, lower back pain, and Braxton Hicks contractions. She may also notice that the baby seems to have a schedule — active at certain times, quiet at others. Interestingly, these patterns often carry over after birth, with the baby's most active womb times corresponding to their most alert newborn hours.
 
 ## 🍽️ Nutrition Tip
-The Mom needs about 450 extra calories per day now — but quality matters more than quantity. What does 450 healthy calories actually look like? An apple with two tablespoons of peanut butter plus a glass of milk. Or a turkey and avocado sandwich on whole grain bread. Or Greek yogurt with granola, berries, and a handful of almonds. Not a lot of food — but enough to fuel rapid growth.
+Fiber is the quiet hero of the third trimester, helping with one of the least glamorous symptoms: constipation. The daily target is 25-30 grams. A fiber-rich day might look like oatmeal with berries and chia seeds at breakfast, an apple as a snack, lentil soup with whole grain bread at lunch, hummus with raw veggies in the afternoon, and quinoa with roasted vegetables at dinner. Pair with plenty of water for best results.
 
 ## 💪 Exercise & Movement
-The muscles used for pushing during delivery are the same ones used in everyday core engagement. Deep squats and bearing-down exercises can help prepare. Try a supported deep squat — hold onto a doorframe or partner's hands, lower down, and hold for 15-30 seconds. Equally important: practice actively releasing and relaxing the pelvic floor. Understanding how to relax those muscles is just as valuable as knowing how to tighten them.
+If the Mom has been using a birth ball this trimester, try increasing to 15-20 minutes today. Gentle bouncing helps the baby descend into the pelvis, figure-eight hip movements open the pelvic area, and rocking forward and back relieves pressure on the lower back. The ball is also a fantastic tool during labor itself — many hospitals have them available, or you can bring your own.
 
 ## 💡 Tip for Dad
-Learn about the fontanelles before the baby arrives. After birth, you'll notice a soft spot on the top of the head and a smaller one at the back. They can feel alarming — they're soft, and you might see them pulse with the heartbeat. But they're completely normal and protected by a tough membrane. Gently washing the baby's hair or touching these areas is perfectly safe. The top one typically closes between 12-18 months, the back one within the first few months.
+Practice the drive to the hospital at a different time of day than before. If the first run was on a weekend morning, try a weekday evening — traffic patterns can change everything. Also think through backups: Can someone else drive if needed? Is there an alternative route? Where's the closest parking to the entrance? These details feel minor now but reduce stress enormously when the real moment arrives.
 
 ## 💬 Conversation Starter
-"Let's talk about visitors in the hospital. Do we want people to come right away, or do we want a few hours — or days — just the three of us first?"
+"What's one thing about the hospital stay that you're worried about? Let's problem-solve it together so it feels less daunting."
 
-## 🤔 Weekly Q&A — Answer
-Yesterday's question: What should you know about C-sections?
+## 🎉 Fun Fact
+Your baby's skull won't fully fuse until about 18 months of age. The fontanelles serve a dual purpose: they allow the head to compress slightly during birth and they give the brain room to keep growing afterward. In the first year alone, a baby's brain doubles in size — the skull is literally designed to accommodate that explosive growth.
 
-About 20-25% of births in Israel are cesarean sections. Planned C-sections happen when the baby is breech, when there are certain medical conditions like placenta previa, or when the doctor and the Mom decide it's the safest option. Emergency C-sections happen when the baby shows signs of distress during labor, labor stalls, or unexpected complications arise.
+## 🛏️ Sleep Tip
+If the Mom is struggling to find a comfortable sleeping position, the full-pillow "SOS" (Sleep On Side) setup can help: a pillow behind the back to prevent rolling, one between the knees for hip alignment, and a small pillow or rolled towel under the belly for support. Yes, she'll be surrounded by pillows. Yes, there may not be much room left. Her comfort is worth the pillow fort.
 
-A C-section is major abdominal surgery with a longer recovery than vaginal birth — typically 4-6 weeks. The Mom won't be able to drive, lift heavy things, or do strenuous activity during that time, so more help at home is essential. During the surgery, the partner is usually in the operating room seated by her head, and skin-to-skin contact is often possible in the OR right after delivery. A C-section is not a failure — it's a safe, valid way of bringing your baby into the world. It's worth including C-section preferences in your birth plan, just in case.
+## 💼 Workplace Tip
+If the Mom is planning to stop working before the due date, this is a good week to finalize timing. Many women in Israel stop working around weeks 34-36, depending on how they're feeling and job demands. For desk jobs, working longer is usually feasible; for physically demanding roles, stopping earlier may be necessary. There's no universally "right" time — it depends on her health, comfort, and specific situation.

@@ -1,40 +1,37 @@
 ---
-subject: "Week 17, Day 6 — Shabbat Shalom: Growing Stronger Together 🕯️"
+subject: "Week 17, Day 7 — Rest, Recharge, and a Preview of Week 18 🔮"
 week: 17
-day: 6
+day: 7
 ---
 
-# Week 17, Day 6
+# Week 17, Day 7
 
 ## 👶 Baby Development
-As the week winds down, your pomegranate baby has accomplished a lot: joints are fully mobile, fat stores are building, the skeleton is hardening, and hearing is developing. Baby is also growing eyelashes and eyebrows — tiny, delicate hairs forming even though they won't be visible for a while. The brain is growing rapidly, with nerve pathways getting more complex every day.
+Week 17 is complete! Your pomegranate-sized baby has made beautiful progress. The fat stores are developing, joints are all moving, the skeleton is ossifying, the umbilical cord is stronger, and — most excitingly — hearing is coming online. Your baby is also starting to develop more defined facial features: a clearer nose bridge, formed ears, and even the beginning of eyebrows and lashes. At 5.1 inches, baby is filling up more of the available space but still has plenty of room to swim around.
 
 ## 🤰 What Mom Might Be Feeling
-Friday energy dip is real, especially at 17 weeks. The Mom's body is working around the clock to build a human, and by the end of the work week, she might feel genuinely wiped out. She may also notice some mild swelling in her hands and feet by end of day — elevating feet, staying hydrated, and removing rings if they're getting tight are all good moves. If swelling is sudden or severe (especially in the face), that warrants a call to the doctor.
+Saturday is rest day, and your partner probably needs it. She may notice that the baby bump feels firmer when she lies down — that's the uterus, now about the size of a cantaloupe. She might feel some round ligament pain when rolling over in bed. Many women at this stage also notice increased vaginal discharge (leukorrhea) — clear or white and odorless is normal. Any change in color, odor, or if it's accompanied by itching, is worth mentioning at the next appointment.
 
-## 💰 Financial Tip
-Start a dedicated "baby fund" if you haven't already — even a small automatic transfer each week adds up. Consider the costs that come in the first few months: diapers, wipes, potential formula, pediatric visits, and unexpected expenses that always pop up. Even 100-200 shekels per week for the next 23 weeks creates a meaningful buffer.
-
-## 🍼 Gear Tip
-Let's talk car seats — this is the one piece of gear you absolutely must get right. In Israel, a rear-facing car seat is required by law. Look for one that meets European safety standards (ECE R44/04 or R129 i-Size). Key features to prioritize: easy installation (ISOFIX is worth it), good head support for newborns, and compatibility with your car. Install it at least 2-3 weeks before the due date so you're not fumbling with it when contractions have started.
-
-## 🧘 Mindfulness Moment
-Before Shabbat, try the 5-4-3-2-1 grounding exercise together. Name 5 things you can see, 4 things you can touch, 3 things you can hear, 2 things you can smell, and 1 thing you can taste. It takes about two minutes and brings you completely into the present moment.
+## 🔮 After-Birth Preview: Your Role During Labor
+Let's talk about what you'll actually do during labor. You might imagine that you need to be a medical expert, but your real job is simpler and more powerful: be present, be calm, and be supportive. Practical things you can do: hold her hand, offer ice chips, remind her to breathe, advocate for her wishes with medical staff, provide counter-pressure on her lower back during contractions, and tell her she's doing amazingly. You don't need to have all the answers — you just need to be there. Many dads say it's the most intense and meaningful experience of their lives.
 
 ## 🍽️ Nutrition Tip
-Shabbat dinner idea: herb-crusted lamb chops (or chicken). Mix breadcrumbs with fresh rosemary, thyme, garlic, salt, and pepper, press onto the meat, sear for 2 minutes per side, then finish in the oven at 400F (200C) for 10 minutes. Serve with roasted potatoes and a simple green salad. Lamb is an excellent source of iron, zinc, and B12 — three nutrients your baby needs right now.
+Constipation might be an ongoing issue, and prunes are one of the most effective natural remedies. If your partner isn't a prune fan, try **Prune Energy Balls**: blend 1 cup pitted prunes, 1/2 cup oats, 2 tbsp cocoa powder, 1 tbsp coconut oil, and a pinch of sea salt in a food processor. Roll into balls, refrigerate. They taste like chocolate truffles but deliver serious digestive relief. Nobody needs to know the secret ingredient.
 
 ## 💪 Exercise & Movement
-Partner stretch session: sit on the floor facing each other, legs in a wide V. Hold hands and gently pull each other forward, alternating who leans in. Then sit back-to-back and twist gently in opposite directions. Finish with seated side bends, hands interlaced above your heads. Stretching together is intimate, relaxing, and great for both of your bodies.
+Rest day movement: a slow, mindful walk. Not for exercise — for pleasure. Notice the sky, the trees, the sounds around you. Walk at a pace that allows easy conversation. If your partner wants to sit on a bench for a few minutes mid-walk, do it. The goal is to enjoy being outdoors and moving gently, nothing more.
+
+## 😌 Rest & Gratitude
+Seventeen weeks in. Take stock of what your body — and your partner's body — has accomplished. A tiny human with working joints, a beating heart, developing hearing, and a strengthening skeleton is growing inside her. That's extraordinary. Write down something you're grateful for about each other. Not about the pregnancy — about the person. Who they are, what they bring to your partnership. These reminders matter.
 
 ## 💡 Tip for Dad
-This Shabbat, express gratitude to the Mom specifically for something she's doing during this pregnancy. Not just "you're doing great" — something specific. Specific appreciation lands deeper than general praise.
+Today, do something nostalgic. Watch a movie from your childhood, cook a recipe from your parents' kitchen, listen to music that reminds you of growing up. Reconnecting with your own childhood can be powerful when you're about to give another person their childhood. It grounds you in what mattered then and what you want to carry forward.
 
 ## 💬 Conversation Starter
-What's a promise you want to make to your child? Not a material promise — something about the kind of parent you'll be or the kind of home you'll create. Share one promise each and hold space for it.
+What are three words you hope people will use to describe your child as an adult? Kind? Creative? Brave? Funny? Resilient? Choosing these words together is really a conversation about your values as parents.
 
-## 🕯️ Shabbat Couple Activity
-Write a letter to your future baby — not on a screen, but with pen and paper. Each of you writes your own. Tell baby about this time in your lives, what you're feeling, what you hope for them. Seal them in envelopes and save them. You'll give these to your child someday, and they'll be among the most treasured things you ever create.
+## 🔭 Next Week Preview
+Week 18 is a BIG one! Your baby will be the size of a sweet potato — about 5.6 inches. The ears reach their final position, nerve coating (myelin) starts forming, and baby is yawning and hiccupping regularly. The biggest milestone: the anatomy scan (also called the mid-pregnancy ultrasound) is typically scheduled between weeks 18-22. This is the most detailed ultrasound of the whole pregnancy — you'll see every organ, every limb, and if you want to know, potentially the sex of your baby. It's emotional, exciting, and one of those appointments you'll never forget.
 
 ## 🎉 Fun Fact
-In Korea, there's a beautiful tradition called "Taegyo" — prenatal education — where parents actively talk, read, and play music to the baby during pregnancy, believing it shapes the child's character and intelligence. Modern Korean parents often start Taegyo journals early in pregnancy, recording their thoughts, the music they played, and the conversations they had with their growing baby.
+Baby's movements follow a pattern now — they tend to be most active when your partner is lying down or resting, and quieter when she's moving around (the rocking motion is soothing). This is why many pregnant women notice baby kicking at night when they're trying to sleep. Get used to it — this pattern often continues after birth. Babies have their own schedule, and they're not interested in yours!

@@ -1,69 +1,87 @@
 ---
-subject: "Week 36, Day 5 — Hospital Bag for Baby + Mental Health Check 🧸"
+subject: "Week 36, Day 6 — Diaper Duty Crash Course + Nursery Final Check 🍼"
 week: 36
-day: 5
+day: 6
 ---
 
-# Week 36, Day 5
+# Week 36, Day 6
 
 ## 👶 Baby Development
-Your baby's head circumference is now almost the same as their abdominal circumference — the head is the biggest part that needs to fit through the birth canal. The skull bones will overlap slightly during birth (called molding), which is why many newborns have a slightly elongated head shape at first. It resolves on its own within days. Baby's fingernails and toenails are fully formed, and they may even scratch themselves in the womb.
+Your baby is losing most of the lanugo now — that fine, downy hair that covered their body for months. Some babies retain a bit on their shoulders and back at birth, but it falls off on its own within a few weeks. The skin underneath is becoming soft and smooth, insulated by those ever-growing fat layers. Baby is also practicing facial expressions: frowning, squinting, smiling, and yawning.
 
 ## 🤰 What Mom Might Be Feeling
-Fatigue is at an all-time high. The combination of poor sleep, physical discomfort, and emotional anticipation creates a particular kind of exhaustion that's hard to describe. Your partner might be feeling "touched out" — overwhelmed by physical sensations and craving some personal space. She might also be experiencing increased anxiety as the birth gets closer. Heartburn, constipation, and back pain continue to be constant companions.
+If baby has dropped, your partner might be experiencing what's lovingly called the "pregnant waddle" in full force. The center of gravity has shifted dramatically, and every step requires a little more effort. She might also notice increased Braxton Hicks after any physical activity, and the urgency to urinate can be almost comical at this point. Emotionally, she might oscillate between "get this baby out of me" and "I'm not ready yet" multiple times a day.
 
 ## 🍽️ Nutrition Tip
-Collagen-rich foods can support tissue elasticity, which matters for both birth and recovery. Bone broth is an excellent source — sip it warm like tea, or use it as a base for soups. Other sources: salmon (with skin), chicken, eggs, and citrus fruits (which help the body produce collagen). A simple bone broth with a squeeze of lemon and a pinch of salt is warming, nourishing, and easy to digest.
+**Freezer Meal Recipe: Vegetable & Cheese Egg Muffins (Makes 12)**
+
+- 8 eggs
+- 1/2 cup diced bell peppers
+- 1/2 cup chopped spinach
+- 1/4 cup diced onion
+- 1/2 cup shredded cheese
+- Salt, pepper, and a pinch of garlic powder
+
+Beat eggs, mix in vegetables, cheese, and seasoning. Pour into a greased muffin tin. Bake at 375°F (190°C) for 18-20 minutes. Cool completely, then freeze in a zip-lock bag. Microwave 2-3 for a quick, protein-packed breakfast in the first weeks with baby. These are perfect for one-handed eating while holding a newborn.
+
+**Banana-Coconut Potassium Pancake Bites (Makes 18 Mini Pancakes)**
+
+When large meals feel impossible because baby is taking up all the room, these silver-dollar-sized pancakes are gentle on the stomach and rich in potassium to help with muscle cramps and fluid balance.
+
+*Ingredients:*
+- 1 ripe banana, mashed
+- 2 eggs
+- 1/4 cup coconut flour
+- 1/4 cup unsweetened coconut milk
+- 1 tbsp coconut oil (melted, plus extra for the pan)
+- 1/2 tsp vanilla extract
+- 1/4 tsp baking powder
+- Pinch of salt
+
+*Directions:*
+1. Mash the banana in a bowl, then whisk in the eggs, coconut milk, melted coconut oil, and vanilla.
+2. Add coconut flour, baking powder, and salt. Stir until just combined (batter will be thick).
+3. Heat a non-stick pan over medium-low heat and grease lightly with coconut oil.
+4. Drop tablespoon-sized dollops of batter onto the pan. Cook 2-3 minutes per side until golden.
+5. Serve warm with a drizzle of honey or a spoonful of nut butter. Extras freeze well — reheat in the toaster.
+
+Bananas and coconut are both naturally rich in potassium, and the eggs provide a solid protein base. At mini size, these are easy to nibble throughout the day without feeling overly full — perfect for the "baby is squishing my stomach" phase.
 
 ## 💪 Exercise & Movement
-Gentle stretching for the lower back: lie on your back (briefly, not for extended periods — use left side for longer resting), hug knees to chest (or as close as the belly allows), and gently rock side to side. This releases tension in the lumbar spine. Then, extend one leg and pull the other knee across the body for a gentle spinal twist. Hold each stretch for 20-30 seconds.
+Partner-assisted stretches: stand behind your partner and gently press on her lower back while she leans forward slightly. The counter-pressure can relieve a tremendous amount of lower back tension. This is also a technique that many women find helpful during labor contractions. Practice it now so it's natural when you need it.
 
 ## 💡 Tip for Dad
-Here's a list of things the hospital typically provides vs. what you need to bring for baby:
+**Diaper changing crash course.** If you haven't changed a diaper before, here's your guide:
 
-**Hospital usually provides:**
-- Diapers and wipes (for the hospital stay)
-- Baby blankets (the classic striped receiving blankets)
-- Baby hats
-- Bulb syringe for nasal suctioning
-- Infant T-shirts
-- Formula (if needed)
+1. Lay baby on a flat, safe surface with everything you need within arm's reach
+2. Open the new diaper and slide it under baby BEFORE removing the old one
+3. Unfasten the old diaper. For boys: drape a cloth over the area to prevent surprise fountains. For girls: always wipe front to back
+4. Use wipes to clean thoroughly (get in the creases!)
+5. Pat dry, apply diaper cream if needed
+6. Pull the new diaper up, fasten snugly (you should be able to fit two fingers between the diaper and baby's belly)
+7. Fold down the top of the diaper to keep it below the umbilical cord stump until it falls off
 
-**You should bring:**
-- Going-home outfit (bring newborn AND 0-3 month sizes — you won't know baby's exact size)
-- Swaddle or soft blanket for going home
-- Infant car seat (properly installed in the car)
-- Extra hat and socks (hospitals can be cold)
-- A coming-home outfit for mom (maternity-sized — she'll still look 6 months pregnant)
-
-**Pro tip:** Pack baby's stuff in a separate small bag inside your main bag, so you can find things quickly. Also, bring a plastic bag for dirty or wet items you want to take home.
+**You will change approximately 2,500 diapers in the first year.** Might as well get comfortable with it.
 
 ## 💬 Conversation Starter
-"What's our plan for announcing the birth? Social media right away, phone calls first to family, or wait a day and enjoy the moment privately?" Deciding this now avoids pressure and hurt feelings later.
+"What do we want to name our parenting approach? Are we going with the flow, following a specific philosophy, or making it up as we go?" There are no wrong answers here — just alignment.
 
 ## 🎉 Fun Fact
-Your baby already has their eye color mostly determined by genetics, but it may change in the first year after birth. Many babies are born with grayish-blue eyes that darken over time as melanin develops in the iris. Brown-eyed parents are more likely to have brown-eyed babies, but genetics can throw surprises.
+Babies are born with a strong "stepping reflex" — if you hold a newborn upright with their feet touching a flat surface, they'll make walking motions. This reflex disappears around 2 months and reappears when they're actually learning to walk around 10-12 months. Scientists believe it's a remnant of an evolutionary instinct.
 
-## 🤔 Yesterday's Answer
-**Hospital bag for baby — the essentials:**
+## 💰 Gear Tip
+**Nursery safety check — do this today:**
+- Crib mattress is firm and fits snugly (no gaps where fingers can fit)
+- Nothing in the crib except a fitted sheet — no blankets, toys, bumpers, or pillows
+- Crib is away from windows, blinds, and cords
+- Changing table has safety straps (and always keep one hand on baby)
+- Room temperature is comfortable (68-72°F / 20-22°C)
+- Smoke detector and carbon monoxide detector are working
+- Night light is dim and warm-toned (avoid blue light)
+- Baby monitor is set up and tested
 
-Keep it simple. You're only at the hospital for 1-2 days (vaginal birth) or 2-4 days (cesarean). You don't need to pack like you're going on vacation. One going-home outfit, one backup, a swaddle, and your car seat are the essentials. The hospital provides everything else for the stay. The most important thing isn't in the bag — it's the car seat in the car, properly installed and ready to go.
+## 🧘 Mindfulness Moment
+This Shabbat, try a visualization exercise together. Sit comfortably, close your eyes, and spend 3 minutes imagining the moment you first hold your baby. Picture the room, the sounds, the feeling of that tiny body against your chest. What does it smell like? What expression is on your partner's face? Let yourself feel the joy, the awe, the overwhelming love. This isn't just daydreaming — visualization has been shown to reduce anxiety about upcoming events.
 
-## 🧠 Mental Health Check
-Let's check in with you directly. How are YOU doing? Not as a partner, not as a soon-to-be dad, but as a person? The focus during pregnancy is (rightfully) on the mother and baby, but expectant fathers experience real emotional changes too:
-
-- **Anxiety** about the birth, finances, or readiness is normal
-- **Feeling left out** of the pregnancy experience happens more than people admit
-- **Relationship stress** — feeling like you're growing apart as the focus shifts to baby
-- **Pressure** to be strong, calm, and supportive 24/7 is unrealistic
-
-If any of these resonate, please talk to someone. A friend, a family member, a therapist, your own dad. Fatherhood is not about being stoic — it's about being present. And being present means processing your own emotions too.
-
-## 💕 Intimacy
-At 36 weeks, physical intimacy looks different — and that's okay. Here are ways to stay connected:
-- **Non-sexual touch:** Head scratches, foot rubs, back rubs, holding hands
-- **Verbal affirmation:** Tell her she's beautiful, strong, and that you're in awe of what she's doing
-- **Acts of service:** Drawing a bath, making dinner, taking things off her plate IS intimacy
-- **Quality time:** 15 minutes of undistracted conversation, eye contact, presence
-
-The couples who navigate the newborn phase best are the ones who prioritize emotional connection now. You're building the foundation.
+## 🕯️ Shabbat Activity
+Write a letter to your baby together. It doesn't have to be long or poetic — just a few lines about who you are right now, what you're feeling, and what you hope for them. Date it. Seal it. Save it to give to your child someday — maybe on their 18th birthday, or their wedding day. It's a snapshot of this magical, nerve-wracking, beautiful time that you'll never quite remember as clearly as you think you will.

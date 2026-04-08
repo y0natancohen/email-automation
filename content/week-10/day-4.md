@@ -1,34 +1,37 @@
 ---
-subject: "Week 10, Day 4 — Your Baby's Brain Is Making 250,000 Neurons Per Minute 🧠"
+subject: "Week 10, Day 5 — Those Little Fingers Can Now Bend and Flex 🤲"
 week: 10
-day: 4
+day: 5
 ---
 
-# Week 10, Day 4
+# Week 10, Day 5
 
 ## 🎉 Fun Fact
-Your baby's external ears started out near the neck — and over the coming weeks, they'll migrate upward to their final position on the sides of the head. The inner ear, responsible for both hearing and balance, is already developing. Your baby won't hear sounds until around week 18, but the hardware is being assembled right now.
+Your baby's taste buds are beginning to develop. By mid-pregnancy, your baby will taste flavors from the Mom's food — garlic, vanilla, carrot, and more — through the amniotic fluid. Studies show that babies exposed to certain flavors in the womb are more likely to enjoy those foods after birth. A good case for eating vegetables now.
 
-## 🧠 Baby Development
-The brain is in overdrive, already divided into three distinct sections: the forebrain (thinking and memory), the midbrain (sensory processing), and the hindbrain (breathing and heart rate). The liver is busy producing red blood cells — a job the bone marrow will eventually take over. At about 1.2 inches from crown to rump, your baby is changing rapidly day by day.
+## 🤲 Baby Development
+The fingers and toes are now fully separated — no more webbing. Those tiny fingers can already bend at the joints, and the hands can even touch the face, though the movements are still random reflexes. Elbows are functional, nail beds are forming, and actual fingernails will start growing in the coming weeks. Your baby is floating in about 30 ml of amniotic fluid — roughly two tablespoons — kicking and waving freely.
 
 ## 🤰 What Mom Might Be Feeling
-Bloating may be the defining symptom right now. Progesterone relaxes smooth muscle throughout the body, including the digestive tract, slowing digestion and leading to gas. The Mom might look more pregnant than she is — that's bloat, not baby yet. She may also notice increased vaginal discharge (leukorrhea), which is normal as long as it's clear or white and odorless.
+Skin changes may be showing up around now. The "pregnancy glow" is real — increased blood volume and oil production can make skin look dewy — but it can also trigger breakouts, especially along the jawline. The linea nigra (a dark vertical line down the belly) might start to appear, and some women develop darker patches on the face called melasma. All are caused by increased melanin production and most fade after delivery.
 
 ## 🍽️ Nutrition Tip
-Iron needs increase significantly during pregnancy, and a spinach-chickpea shakshuka is a great way to hit multiple targets. Saute onion and garlic, add cumin, paprika, crushed tomatoes, and chickpeas, then simmer until thickened. Stir in fresh spinach, make small wells, and crack in a few eggs. The vitamin C in the tomatoes helps with iron absorption, making this a smart and satisfying meal.
+Omega-3 fatty acids are critical for brain development. The best source is fatty fish like salmon, sardines, and mackerel — aim for two to three servings per week. If the Mom doesn't eat fish, an algae-based DHA supplement is a good plant-based alternative. Other sources include walnuts, chia seeds, and flaxseed. Quick lunch idea: canned sardines on whole wheat toast with lemon and za'atar.
 
 ## 💪 Exercise & Movement
-Try a mindful walk today — 15 minutes at a comfortable pace, focusing on what you hear, feel, and see. Counting breaths can turn a simple walk into a stress-reducing practice. If the Mom joins, try walking in comfortable silence for the first five minutes, just being present together.
+Supported squats are one of the best pregnancy exercises. Stand with feet shoulder-width apart, hold onto a chair or countertop, and slowly lower into a squat — even a quarter squat counts. Hold for five seconds, then stand. Two sets of ten strengthens the legs, glutes, and pelvic floor, all of which help prepare the body for labor.
 
 ## 💡 Tip for Dad
-If you haven't scheduled the first-trimester screening yet, now is the time. It typically happens between weeks 11 and 13 and includes an ultrasound (nuchal translucency scan) and blood work. Ask about NIPT (cell-free DNA testing), which can be done from week 10 onward. Put the appointment in both calendars.
+Today is a good day to research health insurance coverage for pregnancy and birth. In Israel, all births are covered under kupat cholim, but check the details: additional ultrasounds, epidural, private room, supplementary insurance. Understanding what's covered now saves stress later.
 
-## 🔬 Deep Dive: Cell-Free DNA Testing (NIPT)
-Starting from week 10, NIPT is available — a simple blood draw from the Mom's arm that analyzes fragments of the baby's DNA circulating in her bloodstream. It screens for conditions like Trisomy 21, 18, and 13 with over 99% detection accuracy for Down syndrome, and can also reveal the baby's sex. It's a screening, not a diagnosis — a positive result would be followed up with diagnostic testing. This test is optional, so discuss with your doctor whether it's right for you.
+## 💡 Yesterday's Q&A Answer
+Yesterday we asked: how much does a full-term placenta weigh? The answer is about one pound (roughly 500 grams). The placenta is the only temporary organ in the human body, built from scratch each pregnancy. By full term, it contains nearly 200 miles of blood vessels and supplies oxygen, nutrients, and hormones while filtering out many harmful substances.
 
 ## 💬 Conversation Starter
-What kind of parent do you think you'll be? What parts excite you, and what parts make you nervous? Being honest about the nervous parts builds trust.
+What's one fear about parenthood you haven't said out loud yet? When you share fears, they lose some of their power — and you might find you share the same ones.
 
-## 🤔 Question of the Day
-The placenta is sometimes called "the tree of life" — an organ that exists only during pregnancy, built from scratch every time. How much do you think a full-term placenta weighs: half a pound, one pound, or two pounds? We'll reveal the answer tomorrow.
+## 🧠 Mental Health Check-In
+It's completely normal for both of you to feel a mix of excitement and anxiety. About 10% of expectant fathers experience significant anxiety during pregnancy. Things that help: talking about it, staying active, limiting late-night Google spirals, and remembering that millions of people have figured this out before you.
+
+## 💕 Intimacy Note
+For most healthy pregnancies, sex is perfectly safe throughout all trimesters. The baby is well-protected by the amniotic sac and cervical mucus plug. Desire may fluctuate — some weeks more, some less. Communication is everything. And remember that intimacy isn't just about sex: holding hands, cuddling, and physical closeness all matter.

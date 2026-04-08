@@ -1,59 +1,74 @@
 ---
-subject: "Week 25, Day 3 — Spine Forming, Joints Clicking & Less Wrinkles 🦴"
+subject: "Week 25, Day 4 — Fat Deposits, Familiar Sounds & a Growing Brain 🧠"
 week: 25
-day: 3
+day: 4
 ---
 
-# Week 25, Day 3
+# Week 25, Day 4
 
 ## 👶 Baby Development
-Your baby's spine is reaching a new level of development this week. The vertebrae are forming their joints, rings, and ligaments, creating the flexible yet strong column that will eventually support sitting, standing, and walking. The bones throughout the body are continuing to harden (ossify), transforming from soft cartilage to solid bone. At the same time, fat deposits under the skin are filling in the wrinkles, giving your baby a smoother, plumper appearance. Your baby is starting to look less like a tiny old person and more like a chubby newborn.
+The fat accumulation under your baby's skin is one of this week's most important developments. "Brown fat" is forming — a special type of fat that's metabolically active and generates heat. This is crucial because newborns can't shiver to warm themselves; they rely on brown fat to maintain body temperature. The skin is becoming less transparent as these fat layers build up. Meanwhile, the brain continues its rapid growth, and the cerebral cortex is developing the layers that will eventually handle complex thinking, language, and memory. Your baby is literally building the hardware for consciousness.
 
 ## 🤰 What Mom Might Be Feeling
-At 25 weeks, your partner might be experiencing what's sometimes called "pregnancy insomnia" — difficulty falling or staying asleep despite being exhausted. The causes are many: physical discomfort, frequent urination, leg cramps, vivid dreams, anxiety about the future, and the baby's active nighttime schedule. Daytime naps can help compensate, but they shouldn't be too long or too late in the day (20-30 minutes before 3 PM is ideal). She might also notice that her skin is drier or itchier, especially on the belly and breasts where it's stretching.
+Your partner might be noticing that the baby responds to external stimuli more consistently. A hand pressing on the belly might get a push back. A loud sound might trigger a startle. Even a bright light shone at the belly can cause the baby to turn away. This two-way interaction makes the baby feel more real and present. Physically, she might be experiencing more frequent Braxton Hicks contractions and possibly some pelvic girdle pain (discomfort in the front or back of the pelvis). The hormone relaxin is doing its job of loosening the pelvic joints, which is helpful for birth but uncomfortable now.
 
 ## 🍽️ Nutrition Tip
-**Sleep-supporting evening snack:** Certain foods promote sleep by boosting melatonin and serotonin. The best bedtime snack combines carbs with protein:
-- Turkey and cheese on whole wheat crackers
-- Banana with a small handful of almonds
-- A small bowl of warm oatmeal with milk and honey
-- Yogurt with a drizzle of cherry juice (cherries are natural melatonin boosters)
+**Healthy Fat Focus (Full Recipe): Salmon Avocado Poke Bowl**
 
-Avoid large meals within 2 hours of bed, and keep caffeine to mornings only (ideally under 200mg daily throughout pregnancy).
+Supporting brown fat formation with the best dietary fats.
+
+*Ingredients:*
+- 1 cup sushi rice, cooked and seasoned with rice vinegar
+- 150g fresh salmon (sushi-grade), cubed
+- 1/2 avocado, sliced
+- 1/4 cucumber, sliced
+- Edamame beans
+- Shredded carrot
+- Sesame seeds
+- Soy sauce and wasabi for serving
+
+*Directions:*
+1. Place rice in a bowl
+2. Arrange salmon, avocado, cucumber, edamame, and carrot on top
+3. Sprinkle with sesame seeds
+4. Drizzle with soy sauce, add wasabi if desired
+
+**Note:** Only use sushi-grade salmon, and check with your doctor about raw fish during pregnancy. Many Israeli obstetricians are comfortable with high-quality sushi-grade fish, but if not, use smoked salmon or baked salmon instead.
 
 ## 💪 Exercise & Movement
-**Gentle Spinal Mobility Sequence (matching baby's spine development!):**
+**Pelvic Girdle Pain Relief:**
 
-1. **Seated Spinal Twist:** Sit cross-legged, place right hand on left knee, look over left shoulder. Hold 20 seconds. Switch
-2. **Thread the Needle:** On all fours, slide right arm under the body, lowering right shoulder to the floor. Hold 30 seconds. Switch
-3. **Supported Standing Side Bend:** Stand with feet apart, one hand on hip, the other reaching overhead and leaning to the side. Hold 20 seconds each side
-4. **Gentle Backbend:** Stand with hands on lower back, gently lean back and look up. Hold 10 seconds
+1. **Pelvic Floor Squeeze:** Squeeze pelvic floor muscles (as in a Kegel), hold 5 seconds, release. This stabilizes the pelvis. Do 10 reps, 3 times daily
+2. **Bridge with Squeeze:** Lie on back, knees bent, place a pillow between knees. Squeeze pillow while lifting hips. Hold 5 seconds. 10 reps
+3. **Clam Shells:** Lie on side, knees bent, feet together. Open top knee like a clamshell, keeping feet together. 15 each side
 
-These movements keep the spine mobile and comfortable as the body adapts to carrying extra weight in front.
+For pelvic girdle pain, avoid asymmetric activities (like standing on one leg to put on pants). Sit down to dress, keep knees together when getting out of the car, and avoid crossing legs.
 
 ## 💡 Tip for Dad
-If your partner is struggling with pregnancy insomnia, here are things you can do:
-- Keep the bedroom cool (the body temperature regulation during pregnancy makes women run hot)
-- Offer a gentle back or foot rub before bed
-- Handle the bedtime routine for any pets
-- Keep your phone on silent so notifications don't wake her
-- If she gets up to use the bathroom, don't turn on lights or start conversations — let her stay in a sleepy state
-- And here's a big one: if she can't sleep and wants to talk, be willing to listen, even at 2 AM
+Start thinking about your birth support toolkit. What will you bring to the delivery room to help your partner?
+- **Music:** Create a labor playlist together. Calm music for early labor, more energizing options if she wants them later
+- **Comfort items:** Tennis ball for counter-pressure on the lower back, a fan or handheld spray bottle for cooling, lip balm (hospitals are dry), hard candies for energy
+- **Information:** Your birth preferences document, the doctor's contact number, hospital route planned out
+- **Emotional support:** Words of encouragement you've practiced, inside jokes that can make her laugh between contractions, and the confidence that comes from education
+
+You won't use everything, but being prepared means you can focus on her instead of scrambling.
 
 ## 💬 Conversation Starter
-"What do you think will be the hardest adjustment in the first week home with the baby? Let's come up with a plan for it."
+"What's one thing you need me to promise I'll do during labor, and one thing you need me to promise I won't do?"
 
 ## 🎉 Fun Fact
-By the time your baby is born, their skeleton will have about 270 bones (adults have 206). The "extra" bones are actually separate pieces that will eventually fuse together as the child grows — for example, the skull has several separate plates at birth (this is what creates the soft spots, or fontanelles, and allows the head to compress slightly during birth). The process of bones fusing continues until about age 25, when the skeleton reaches its final form.
+Brown fat is one of nature's most clever inventions. Unlike white fat (which just stores energy), brown fat contains lots of mitochondria (the "powerhouses" of cells) and burns calories to produce heat. Newborns have proportionally more brown fat than adults, concentrated around the neck, shoulders, and spine. It's one of the reasons newborns can maintain body temperature even when they seem impossibly small. Scientists are actually studying brown fat in adults as a potential key to treating obesity — babies have been ahead of the curve all along.
 
-## 🛏️ Sleep Tip
-**The Pillow Fort Strategy:** If your partner isn't already using a pregnancy pillow, now's the time. Options include:
-- **C-shaped pillow:** Supports the head, belly, and goes between the knees
-- **U-shaped pillow:** Full-body support on both sides (great but takes up a lot of bed space — sorry, Dad)
-- **Wedge pillow:** Small triangle that goes under the belly or behind the back
-- **DIY approach:** Regular pillows — one between knees, one under belly, one behind back
+## 🌍 Cultural & Science Deep-Dive: Fetal Response to Voice — The Research
+The scientific study of fetal hearing has revealed remarkable things:
 
-The goal is to keep the spine aligned while side-sleeping. Experiment with different arrangements until she finds her sweet spot. It might take a few nights of trial and error.
+- **1980s:** Researchers first demonstrated that newborns preferred a story that had been read to them repeatedly during pregnancy over an unfamiliar story
+- **2000s:** Using fetal heart rate monitoring, scientists showed that fetuses respond differently to their mother's voice versus recordings of other women
+- **2013:** A Finnish study found that babies exposed to a made-up word repeated thousands of times in the womb showed neural recognition of that word after birth — their brains literally encoded the sound pattern
+- **Recent studies:** 4D ultrasound has shown that babies change their facial expressions in response to their mother's voice — more "content" expressions compared to a stranger speaking
 
-## 💼 Workplace Tip
-If your partner is still working full-time, encourage her to talk to her employer about any accommodations she needs. In Israel, pregnant employees have legal protections including the right to reduced hours in certain situations, protection from termination, and time off for medical appointments. She shouldn't feel guilty about using these rights — they exist for a reason. Help her prepare for the conversation if she's nervous. Know the law so you can support her confidently.
+What does this mean for you? Every time you talk to the belly, you're being encoded in your baby's neural architecture. You're becoming a known, trusted presence before you've even met face to face.
+
+## 🤔 Q&A: Question of the Day
+**Our friends had a doula and swear by it. What exactly does a doula do, and is it worth hiring one in Israel?**
+Answer coming Thursday!

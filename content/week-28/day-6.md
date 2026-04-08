@@ -1,37 +1,37 @@
 ---
-subject: "Week 28, Day 6 — A Well-Earned Rest 🕯️"
+subject: "Week 28, Day 7 — Two-Thirds of the Way There! 🎯"
 week: 28
-day: 6
+day: 7
 ---
 
-# Week 28, Day 6
+# Week 28, Day 7
 
 ## 👶 Baby Development
-Your baby's lungs continue to mature, producing more surfactant while blood vessels develop for that first breath of air. Fat is accumulating steadily under the skin, smoothing out wrinkles and giving your baby that adorable newborn roundness. The skin is transitioning from translucent to more opaque as the fat layers build.
+As week 28 wraps up, your baby is thriving. The eyes can track light, the ears can process sound, and the brain is building new connections every second. The digestive system is practicing too — swallowing amniotic fluid and processing it through the stomach and intestines, preparing for its future job.
 
 ## 🎉 Fun Fact
-Your baby can now blink — and not just open and close the eyes. The eyelids are fully functional, squinting and even furrowing the brow. These facial expressions are reflexes for now, but they're practicing the same expressions that will charm you after birth.
+Your baby already has the same number of neurons they'll have as an adult — roughly 100 billion. The difference is in the connections between them. After birth, the brain will spend years wiring and rewiring based on experiences, interactions, and learning. Every time you talk to, play with, or comfort your baby, you'll literally be building their brain architecture.
 
 ## 🤰 What Mom Might Be Feeling
-By Friday, the Mom might be feeling the cumulative weight of the week. Third-trimester fatigue is different from first trimester — it's more about physical discomfort than hormonal drowsiness. She might feel like she can't get comfortable in any position. Encourage rest without guilt. Growing a human is a full-time job on top of whatever else she's doing.
+The Mom has now completed two-thirds of her pregnancy — worth celebrating. She might feel a mix of "can we fast-forward?" and "wait, I'm not ready yet." Physically, bending over is becoming more of an event, and putting on shoes might require creative maneuvering. The belly is starting to command its own personal space.
 
 ## 🍽️ Nutrition Tip
-A warming sweet potato and chickpea stew is perfect for Shabbat: sauté onion and garlic, add curry powder and cumin, then cubed sweet potatoes and chickpeas. Pour in coconut milk and simmer 20-25 minutes. Stir in spinach at the end and serve over rice or with crusty bread. Full of iron, fiber, and vitamin A.
+Hydration is often overlooked but critically important. The Mom should be drinking about 10-12 cups of water daily. Staying hydrated helps prevent urinary tract infections, reduces swelling, prevents constipation, and can minimize Braxton Hicks contractions. If plain water gets boring, add cucumber, lemon, or fresh mint. Herbal teas like rooibos or chamomile count too.
+
+## 🔮 After-Birth Preview: Cord Blood Banking
+Cord blood contains stem cells that can treat certain diseases. Your options: donate to a public bank (free, available to anyone), store privately (paid, reserved for your family), or let it be disposed of. There's no pressure to decide now, but it's worth researching before the birth.
 
 ## 💪 Exercise & Movement
-Today, focus on relaxation. A warm (not hot) bath with Epsom salts can work wonders for aching muscles and swollen feet — the magnesium absorbs through the skin and helps with muscle cramps. Keep the water comfortable and limit bath time to about 20 minutes.
-
-## 💰 Financial Tip
-Start looking into baby health insurance. In Israel, all children are covered under the national health insurance system, but you'll need to register the baby with a Kupat Cholim after birth. Research the different funds — Clalit, Maccabi, Meuhedet, and Leumit — and compare their supplementary services for infants. Some offer welcome packages for newborns. Making this decision now means one less thing to figure out in those hazy first weeks.
+Saturday strolls are a great tradition. Walk somewhere beautiful if you can — a park, a waterfront, a quiet neighborhood. Keep the pace comfortable and bring water. Sometimes the best exercise is the kind you don't notice because you're enjoying the conversation and scenery.
 
 ## 💡 Tip for Dad
-As Shabbat begins, take over the evening prep. Light candles together, or handle dinner so the Mom can rest. Creating a peaceful space at the end of the week is a form of care for your growing family — and good practice for after the baby arrives.
+Start thinking about your work schedule around the due date. Talk to your employer about when you intend to start leave, how much notice you'll give, and whether you can work flexibly in the weeks leading up. Having this conversation early gives your employer time to plan and gives you peace of mind.
 
-## 🧘 Mindfulness Moment
-Tonight, try a body scan together. Lie down comfortably and slowly bring attention to each part of the body, from the toes upward, noticing sensations without judgment. It takes about 10 minutes and is incredibly calming. For the Mom, it can help her reconnect with her body in a positive way during a time when it might feel taken over.
+## 🙏 Rest & Gratitude
+You're 28 weeks in — starting the fourth quarter. Take a moment to acknowledge everything the Mom's body has done, and everything it will continue to do. And take a moment for yourself — you've been showing up, learning, supporting, and preparing. You're going to be a great dad, not because you're perfect, but because you care enough to be here.
 
 ## 💬 Conversation Starter
-"What was the best advice someone has given us about becoming parents? What was the worst?"
+"Let's do a reality check: is there anything we're procrastinating on that we should tackle in the next few weeks?"
 
-## 🕯️ Shabbat Activity
-Before or after dinner, take a slow gratitude walk together. As you walk, take turns naming things you're grateful for — big or small. This simple practice shifts focus from anxiety to appreciation, and the walking helps with circulation too.
+## 📅 Next Week Preview
+Week 29 is coming. Your baby will be about the size of a butternut squash, around 2.5 pounds. Movements will start to feel different — more rolling and squirming, less dramatic kicking — as space gets tighter. Muscles and lungs are maturing, and bones are fully developed but still soft and flexible. We'll start getting more practical about birth plans.

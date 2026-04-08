@@ -1,37 +1,34 @@
 ---
-subject: "Week 39, Day 2 — The Three Stages of Labor, Explained 🏥"
+subject: "Week 39, Day 3 — When to Actually Go to the Hospital 🚗"
 week: 39
-day: 2
+day: 3
 ---
 
-# Week 39, Day 2
+# Week 39, Day 3
 
 ## 🎉 Fun Fact
-During labor, a baby's skull bones can actually overlap and shift to fit through the birth canal — it's called "molding." That's why some newborns have slightly cone-shaped heads at first. It rounds out within a few days.
+Babies are born with about 300 bones — adults have only 206. Many of a newborn's bones are made of soft cartilage that gradually fuses and hardens over the first few years of life. This flexibility is what allows baby to make it through the birth canal.
 
 ## 👶 Baby Development
-Your baby is practicing breathing movements every day now, inhaling and exhaling amniotic fluid to strengthen those lungs. The digestive system is ready — the intestines are lined with meconium, that dark, sticky first stool. Baby's grip is also surprisingly strong at this point. When you hold their tiny hand for the first time, that squeeze you feel is a reflex they've been perfecting for months.
+Baby's liver has been storing iron for weeks, building reserves that will last through the first few months — important because breast milk, while perfect in almost every way, is relatively low in iron. The adrenal glands are also ramping up, producing cortisol that will help baby's lungs work independently after birth. Think of it as final systems checks.
 
 ## 🤰 What Mom Might Be Feeling
-The Mom might be experiencing "lightening" — when baby drops lower into the pelvis. The upside: she can breathe a bit easier. The downside: even more pressure on the bladder and pelvis. Sharp, shooting pains in the pelvis or groin as baby's head presses on nerves are uncomfortable but completely normal.
+The nesting instinct may be hitting hard. If the Mom suddenly has an irresistible urge to reorganize the baby's dresser for the third time or deep-clean the kitchen at 11 PM, that's a real biological drive. While it can be productive, rest matters too — her body is about to do something extraordinary and needs energy reserves. Braxton Hicks may also be more frequent or intense, especially in the evenings.
 
 ## 🍽️ Nutrition Tip
-Dates may be worth adding to the rotation. Research suggests that eating about six dates per day starting around week 36-39 may help with cervical ripening and could lead to a shorter early labor. They don't have to be eaten plain — blend them into smoothies, stuff them with almond butter, or chop them into oatmeal. A sweet and potentially labor-friendly treat.
+Keep easy, high-energy snacks stocked and visible: trail mix, granola bars, bananas, cheese sticks, crackers with peanut butter. When labor starts, the Mom will want to eat lightly in early labor if she feels like it, and you'll need fuel too — labor can last a long time, and a hungry support person is a cranky support person. Toss a few snack bags into the hospital bag today.
 
 ## 💪 Exercise & Movement
-Consider a birth ball if you don't have one already. Sitting on one instead of the couch can help open the pelvis, encourage baby into a good position, and relieve lower back pressure. The Mom can gently bounce, do hip circles, or rock side to side — it's also great during early labor. A 65cm ball works for most women; inflate it so she can sit with knees slightly below hips.
+Squats are surprisingly helpful this late in the game. They open the pelvic outlet, strengthen the legs for pushing, and can help baby descend. The Mom can try supported squats — holding onto a sturdy chair or counter, feet shoulder-width apart, lowering down gently and holding for a few seconds. Even five to ten gentle squats a day can make a difference. If squats feel like too much, simple hip circles while standing work well too.
 
 ## 💡 Tip for Dad
-Learn the signs of real labor versus false alarms. Real contractions get closer together, last longer, and get stronger over time. They don't stop when she changes position or drinks water. Use the 5-1-1 rule: contractions consistently 5 minutes apart, lasting 1 minute each, for at least 1 hour means it's time to head to the hospital. Download a contraction timer app now so you're ready.
+Pack your own hospital bag today if you haven't already. The essentials: phone charger (long cord), snacks (nothing smelly), a change of clothes, deodorant, toothbrush, a small pillow, entertainment for long waits, cash or card for the cafeteria, and a going-home outfit for baby. Pro tip: pack a swimsuit in case the Mom wants you in the shower with her during labor for back support.
 
 ## 💬 Conversation Starter
-"What's the one thing you're most nervous about when it comes to labor? And what's the one thing you're most excited about?" Share your own answers too. Naming fears out loud often makes them feel smaller.
+"What's one tradition from your family — or a new one — you'd like to start with our baby?" Whether it's Friday night dinners, a special birthday ritual, or bedtime songs, talking about family traditions makes the future feel beautifully real.
 
-## 🤔 Yesterday's Answer
-**What are the three stages of labor?**
+## 🛏️ Sleep Tip
+The Mom's sleep is probably rough, but here's something for you: start banking sleep now. Go to bed 30 minutes earlier than usual this week. Once baby arrives, sleep becomes a rare commodity, and every extra hour matters. Practice sleeping in short bursts too — a 20-minute power nap is a skill you'll need soon.
 
-Stage 1 is the longest. Early labor involves contractions beginning and the cervix dilating to about 6 cm — it can last hours or even days for first-timers and is usually manageable at home. Active labor picks up with stronger, closer contractions as the cervix dilates from 6 to 10 cm. Transition is the most intense part: short (30 minutes to 2 hours) but very powerful as dilation completes. This is when the Mom will need you most.
-
-Stage 2 is pushing and delivery. Once the cervix is fully dilated, it's time to push — for first-time moms, this can take 1-3 hours. This is when you meet your baby.
-
-Stage 3 is delivery of the placenta, usually within 5-30 minutes with some mild contractions. The Mom will barely notice — she'll be too busy falling in love.
+## 💼 Workplace Tip
+If you haven't finalized paternity leave plans, do it this week. Email your manager and HR with your expected start date and duration, draft an out-of-office message ready to activate at a moment's notice, and brief colleagues on anything they'll need to handle. The more you prepare now, the more fully present you can be when baby arrives.

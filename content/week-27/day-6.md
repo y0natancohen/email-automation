@@ -1,37 +1,37 @@
 ---
-subject: "Week 27, Day 6 — Slowing Down and Soaking It In 🕯️"
+subject: "Week 27, Day 7 — Rest, Reflect, and Recharge 🌿"
 week: 27
-day: 6
+day: 7
 ---
 
-# Week 27, Day 6
+# Week 27, Day 7
 
 ## 👶 Baby Development
-Your baby's immune system is developing steadily. Antibodies are transferring from the Mom through the placenta, building defenses for the outside world. This passive immunity will protect your newborn during the first few months of life until their own immune system kicks in — one of the many remarkable ways the Mom's body is preparing the baby for life on the outside.
+As the first week of the third trimester wraps up, your baby has been busy. Those little lungs are getting stronger with every practice breath, the brain is adding new neural connections at an extraordinary rate, and movements are becoming more coordinated. The Mom might notice that kicks happen at more predictable times now — your baby is settling into their own rhythm.
 
 ## 🎉 Fun Fact
-Your baby can now tell the difference between daylight and darkness. If the Mom shines a bright light on her belly, the baby might turn toward or away from it. Some researchers suggest this early light sensitivity helps set the baby's circadian rhythm even before birth.
+Your baby already has a unique set of fingerprints! They formed back in the second trimester and haven't changed since. No one else in the world, past or future, will have the same pattern. Your baby is already one of a kind.
 
 ## 🤰 What Mom Might Be Feeling
-By Friday, the Mom might be ready for a slower weekend. Third-trimester fatigue is real. She might notice increased pelvic pressure as the baby grows and the weight shifts lower. Hemorrhoids and constipation can also become more prominent — not glamorous, but very common. Plenty of water, fiber-rich foods, and gentle movement all help.
+The Mom might feel a sense of accomplishment — one week of the third trimester done — mixed with the realization that there's still a lot ahead. Physically, more frequent urination is common as the baby puts increasing pressure on the bladder. Emotionally, the nesting instinct might be kicking in — a sudden urge to clean, organize, and prepare the home.
 
 ## 🍽️ Nutrition Tip
-For a nourishing Shabbat meal, try honey-glazed chicken with roasted root vegetables: toss chicken thighs with honey, olive oil, soy sauce, and garlic, then roast alongside cubed sweet potatoes, carrots, and parsnips at 200 C for 40 minutes. The sweet potatoes add a great dose of vitamin A. For something heartier, a slow cooker beef and black bean chili combines iron from beef with plant-based iron from beans — the vitamin C from tomatoes and bell pepper boosts absorption from both sources.
+Weekend brunch idea: whole wheat pancakes with blueberries and a dollop of Greek yogurt. Blueberries are packed with antioxidants, the whole wheat provides fiber and sustained energy, and the Greek yogurt adds protein and calcium. Make extra and freeze some for busy weekday mornings.
+
+## 🔮 After-Birth Preview: The Golden Hour
+The "golden hour" is the first hour of skin-to-skin contact between the Mom and baby after birth. During this time, the baby instinctively seeks the breast, bonding hormones flood both parents, and the baby's temperature, heart rate, and breathing stabilize through contact with the parents' bodies. Many hospitals now protect this hour by delaying non-urgent procedures. Ask your healthcare provider about their golden hour policy.
 
 ## 💪 Exercise & Movement
-Today, encourage gentle stretching and rest. A short prenatal yoga session — even just 15 minutes — can release tension from the week. Focus on hip openers like modified pigeon pose with a pillow under the hip, which helps create space in the pelvis and eases pelvic pressure.
-
-## 💰 Financial Tip
-Start mapping out baby expenses. You don't need everything brand-new — many baby items are used for such a short time that secondhand gear is practically new. Focus your budget on the essentials: a safe car seat (always buy new), a crib with a firm mattress, diapers, and basic clothing. Resist the urge to buy every gadget marketed to new parents — you'll figure out what you actually need after the baby arrives.
+Saturday is a great day for a gentle walk together — no pressure, no pace. If the Mom is feeling tired, even 10 minutes around the block counts. The goal today isn't exercise — it's connection and gentle movement.
 
 ## 💡 Tip for Dad
-As Shabbat approaches, consider making Friday evenings your dedicated connection time. Put the phones away, light candles, and be fully present together. These quiet evenings as just the two of you are numbered — not in a sad way, but in a "this chapter is beautiful, and a new one is beginning" way.
+Today, do one thing without being asked. Maybe it's folding laundry, preparing lunch, or cleaning the bathroom. The mental load of pregnancy — all the appointments, planning, and worry — is significant, even when it doesn't show. Small acts of initiative mean more than grand gestures right now.
 
-## 🧘 Mindfulness Moment
-Before Shabbat tonight, sit quietly together with a hand on the belly and take five deep breaths. With each exhale, imagine sending calm, loving energy to your baby. Stepping out of the busyness of preparation and into this kind of intentional pause is what helps you stay connected to the joy of this experience.
+## 🙏 Rest & Gratitude
+Take a moment to appreciate how far you've both come. Twenty-seven weeks ago, a tiny life was beginning. Now that life weighs 2 pounds, can open its eyes, hear your voice, and has its own sleep schedule. You're doing this, both of you. Take a breath and let that sink in.
 
 ## 💬 Conversation Starter
-"What family traditions from our own childhoods do we want to continue? What new traditions should we create?"
+"If you could tell our baby one thing about our relationship, what would it be?"
 
-## 🕯️ Shabbat Activity
-Over dinner, each of you share your earliest childhood memory. Then share a memory of a moment that made you think "I want to be a parent someday." Finish by each naming one thing you want your child's earliest memories to include.
+## 📅 Next Week Preview
+Week 28 brings more exciting developments. Your baby's eyelashes are growing, eyesight is developing further, and the brain is building billions of neurons. You'll also want to discuss the Rh factor test with your doctor if applicable. Plus, we'll talk about kick counting and why it matters.

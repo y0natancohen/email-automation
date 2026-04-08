@@ -1,37 +1,36 @@
 ---
-subject: "Week 10, Day 5 — Those Little Fingers Can Now Bend and Flex 🤲"
+subject: "Week 10, Day 6 — Shabbat Shalom: A Moment to Breathe and Connect 🕯️"
 week: 10
-day: 5
+day: 6
 ---
 
-# Week 10, Day 5
+# Week 10, Day 6
 
 ## 🎉 Fun Fact
-Your baby's taste buds are beginning to develop. By mid-pregnancy, your baby will taste flavors from the Mom's food — garlic, vanilla, carrot, and more — through the amniotic fluid. Studies show that babies exposed to certain flavors in the womb are more likely to enjoy those foods after birth. A good case for eating vegetables now.
+Your baby is now producing its own blood type, which may be different from both of yours. Blood type is determined by a combination of alleles inherited from each parent, so your baby could be type A, B, AB, or O. If the Mom is Rh-negative and the father is Rh-positive, the baby might be Rh-positive too — the doctor will manage this with a Rhogam injection later in pregnancy.
 
-## 🤲 Baby Development
-The fingers and toes are now fully separated — no more webbing. Those tiny fingers can already bend at the joints, and the hands can even touch the face, though the movements are still random reflexes. Elbows are functional, nail beds are forming, and actual fingernails will start growing in the coming weeks. Your baby is floating in about 30 ml of amniotic fluid — roughly two tablespoons — kicking and waving freely.
+## 👶 Baby Development
+The diaphragm — the muscle that will eventually control breathing — is forming today. Your baby won't take a real breath until birth (oxygen comes through the placenta), but the body is already building the equipment. The intestines are growing so rapidly that they temporarily loop into the umbilical cord, since there isn't room in the tiny abdomen yet — they'll migrate back inside over the next couple of weeks. Genitals are beginning to differentiate, though it's still too early to tell the sex on ultrasound.
 
 ## 🤰 What Mom Might Be Feeling
-Skin changes may be showing up around now. The "pregnancy glow" is real — increased blood volume and oil production can make skin look dewy — but it can also trigger breakouts, especially along the jawline. The linea nigra (a dark vertical line down the belly) might start to appear, and some women develop darker patches on the face called melasma. All are caused by increased melanin production and most fade after delivery.
+As the week winds down, the Mom may be emotionally drained as well as physically tired. First-trimester mood swings are real — tears over a commercial, irritation over nothing, deep tenderness followed by frustration. These shifts are driven by massive hormonal changes and are completely normal. Some women also notice increased thirst as the body demands more fluids to support expanded blood volume.
 
 ## 🍽️ Nutrition Tip
-Omega-3 fatty acids are critical for brain development. The best source is fatty fish like salmon, sardines, and mackerel — aim for two to three servings per week. If the Mom doesn't eat fish, an algae-based DHA supplement is a good plant-based alternative. Other sources include walnuts, chia seeds, and flaxseed. Quick lunch idea: canned sardines on whole wheat toast with lemon and za'atar.
+Hydration is more important than ever right now. The Mom should aim for about 10 cups (2.3 liters) of fluids per day. If plain water triggers nausea, try infusing it with cucumber and mint or frozen berries. Coconut water is a good natural electrolyte option, and soups and smoothies count too. Dehydration can worsen nausea, headaches, and fatigue — three things she's probably already dealing with.
 
 ## 💪 Exercise & Movement
-Supported squats are one of the best pregnancy exercises. Stand with feet shoulder-width apart, hold onto a chair or countertop, and slowly lower into a squat — even a quarter squat counts. Hold for five seconds, then stand. Two sets of ten strengthens the legs, glutes, and pelvic floor, all of which help prepare the body for labor.
+Rest day. If the Mom has been active this week, today is a great day to slow down. A gentle stretch or a short walk is plenty. The guiding principle: movement should feel good, not punishing.
 
 ## 💡 Tip for Dad
-Today is a good day to research health insurance coverage for pregnancy and birth. In Israel, all births are covered under kupat cholim, but check the details: additional ultrasounds, epidural, private room, supplementary insurance. Understanding what's covered now saves stress later.
-
-## 💡 Yesterday's Q&A Answer
-Yesterday we asked: how much does a full-term placenta weigh? The answer is about one pound (roughly 500 grams). The placenta is the only temporary organ in the human body, built from scratch each pregnancy. By full term, it contains nearly 200 miles of blood vessels and supplies oxygen, nutrients, and hormones while filtering out many harmful substances.
+Tonight, handle dinner entirely — cook, order in, or set up a picnic on the living room floor. Decision fatigue is real, and removing even small choices can be a huge relief. Keep it simple and based on whatever she can stomach right now.
 
 ## 💬 Conversation Starter
-What's one fear about parenthood you haven't said out loud yet? When you share fears, they lose some of their power — and you might find you share the same ones.
+What does a perfect regular day look like with your baby, a year from now? Not holidays or special occasions — just a Tuesday. Morning routine, who does what, how the day flows. This conversation helps you start building a shared vision.
 
-## 🧠 Mental Health Check-In
-It's completely normal for both of you to feel a mix of excitement and anxiety. About 10% of expectant fathers experience significant anxiety during pregnancy. Things that help: talking about it, staying active, limiting late-night Google spirals, and remembering that millions of people have figured this out before you.
+## 💰 Financial Tip
+Start a baby budget spreadsheet while there's no rush. The main categories: one-time costs (stroller, car seat, crib, monitor), monthly costs (diapers at roughly 200-300 NIS/month, plus formula if needed and eventually childcare), and medical costs (check kupat cholim coverage vs. supplementary insurance). In Israel, mothers get 15 weeks of paid maternity leave, and partners get 7 days of paid paternity leave with the option for the mother to transfer some of her remaining leave.
 
-## 💕 Intimacy Note
-For most healthy pregnancies, sex is perfectly safe throughout all trimesters. The baby is well-protected by the amniotic sac and cervical mucus plug. Desire may fluctuate — some weeks more, some less. Communication is everything. And remember that intimacy isn't just about sex: holding hands, cuddling, and physical closeness all matter.
+## 🕯️ Shabbat Moment
+Before Shabbat begins, try sitting facing each other, closing your eyes, and taking five deep breaths — in for 4 counts, out for 6. Then open your eyes and look at each other for 30 seconds without speaking. It sounds simple, but it's surprisingly powerful.
+
+For a weekly ritual, try the Gratitude Exchange: each of you shares three things you're grateful for this week — one about yourself, one about each other, and one about the pregnancy. Two minutes, and it shifts focus from stress to wonder.

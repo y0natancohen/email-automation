@@ -1,68 +1,76 @@
 ---
-subject: "Week 36, Day 1 — Baby Is Dropping! Time to Get Real 🏠"
+subject: "Week 36, Day 2 — Your Birth Plan (Keep It Simple) 📝"
 week: 36
-day: 1
+day: 2
 ---
 
-# Week 36, Day 1
-
-## 🌒 This Week at a Glance
-Welcome to week 36! Your baby is about the size of a romaine lettuce — roughly 18.7 inches long and weighing around 5.75 pounds. Big developments this week: baby may start "dropping" lower into the pelvis (called lightening), the digestive system is ready to function, the gums are firm, and the skull bones are still unfused to allow passage through the birth canal. Most of the lanugo (fine body hair) is gone, and meconium (baby's first poop) is accumulating in the intestines. For your partner, lightening can mean easier breathing but more frequent bathroom trips as baby presses directly on the bladder. Four weeks to go!
+# Week 36, Day 2
 
 ## 👶 Baby Development
-Your baby's digestive system is fully developed and ready to process food — well, milk — on the outside. The intestines have been practicing with amniotic fluid, and meconium has been accumulating. The skull bones are intentionally separate, connected by flexible tissue called sutures, which allow the head to mold slightly during birth. This is nature's brilliant engineering at work.
+Your baby's gums are now firm and ridge-like — ready for that first toothless grin. Actual teeth won't appear for months (typically around 6 months), but the tooth buds are already formed beneath the gums. Baby is also continuing to shed lanugo and vernix. Some of the vernix mixes into the amniotic fluid, which baby swallows — and it's actually thought to help prepare the digestive system.
 
 ## 🤰 What Mom Might Be Feeling
-If baby has dropped, your partner might notice she can suddenly breathe more easily — the pressure on her diaphragm has decreased. The trade-off? Even more pressure on the bladder and pelvis. She might feel like she's walking with a bowling ball between her legs. Not every baby drops before labor, especially with first pregnancies — sometimes it doesn't happen until labor begins. Either way is perfectly normal.
+If she hasn't had the Group B Strep test yet, it'll likely happen this week or next. She might also notice more pelvic pain — sometimes called SPD (symphysis pubis dysfunction) — which is caused by the pelvic joints loosening in preparation for birth. Rolling over in bed, getting out of the car, or climbing stairs can be surprisingly painful. A pillow between the knees while sleeping and keeping the knees together when turning can help.
 
 ## 🍽️ Nutrition Tip
-With baby pressing on the stomach and intestines, large meals might feel impossible. Encourage your partner to eat 5-6 small meals throughout the day instead of 3 big ones. Focus on nutrient-dense foods that pack a lot of nutrition in small portions: nut butters, avocados, hard-boiled eggs, cheese and crackers, and smoothies. Every bite counts.
-
-**Mini Sweet Potato & Ricotta Toasts (Potassium-Rich Snack)**
-
-As baby drops lower into the pelvis this week, stomach room shrinks. These small, nutrient-dense toasts are easy to eat one or two at a time and are loaded with potassium — important for managing the increased blood pressure and swelling of late pregnancy.
-
-*Ingredients:*
-- 1 medium sweet potato, sliced into 1/4-inch rounds
-- 1/2 cup ricotta cheese
-- 2 tbsp chopped walnuts
-- 1 tbsp honey
-- Pinch of cinnamon
-- Drizzle of olive oil
-- Flaky sea salt
-
-*Directions:*
-1. Preheat oven to 375°F (190°C). Lay sweet potato rounds on a parchment-lined baking sheet, drizzle with olive oil, and sprinkle with salt.
-2. Bake for 15-18 minutes, flipping halfway, until tender and lightly golden.
-3. Let rounds cool slightly, then top each with a spoonful of ricotta.
-4. Sprinkle with chopped walnuts, a drizzle of honey, and a pinch of cinnamon.
-5. Eat warm as a snack — make a batch and refrigerate extras for easy reheating.
-
-One medium sweet potato packs about 540 mg of potassium — more than a banana. The ricotta adds calcium and protein, and the walnuts contribute omega-3s. Small enough to eat between meals, satisfying enough to feel like real food.
+Start eating dates if your partner hasn't already. Research has shown that eating about 6 dates per day starting at week 36 can support cervical ripening and may be associated with shorter early labor. They're also packed with natural sugars for energy, potassium, and fiber. Easy ways to eat them: stuffed with cream cheese or almond butter, chopped into oatmeal, or blended into smoothies.
 
 ## 💪 Exercise & Movement
-Walking is your partner's best exercise right now — it's gentle, it helps baby move into position, and it can actually encourage the baby to drop further into the pelvis. Aim for short walks (15-20 minutes) rather than long ones. If pelvic pressure is intense, a maternity support belt during walks can make them much more comfortable.
+**Exercise Focus: The Miles Circuit**
+This is a series of three positions designed to help baby get into an optimal position for birth. Each position is held for 30 minutes:
+1. **Open knee-chest:** On hands and knees with chest lowered to the floor, bottom up in the air
+2. **Side-lying:** On the left side with a pillow between the knees
+3. **Walking/standing:** Upright movement — walking, swaying, or doing lunges
+
+This can be done once a day in the last weeks of pregnancy. It's particularly helpful if baby is in a posterior or breech position. Consult your care provider before starting.
 
 ## 💡 Tip for Dad
-This week: set up grandparent boundaries. Have a loving but clear conversation with both sets of grandparents about your expectations for the birth and postpartum period. Key topics:
-- Who (if anyone) will be at the hospital during labor
-- When visitors can come to your home after birth
-- Length of visits in the first week
-- Whether grandparents will stay overnight
-- Your approach to unsolicited advice (how to politely handle it)
-- Your parenting decisions are final, even if they differ from how your parents did things
+Create your birth plan together using this simple framework. Keep it to one page — medical teams appreciate brevity:
 
-Frame it positively: "We want you involved, and here's how that works best for our little family." Setting these boundaries now prevents resentment later.
+**During labor:**
+- Pain management preference (natural, epidural, open to either)
+- Freedom to move and change positions?
+- Music, lighting, environment preferences
+- Who is allowed in the room
+
+**During delivery:**
+- Who cuts the cord?
+- Delayed cord clamping (waiting 1-3 minutes)?
+- Immediate skin-to-skin?
+- Photography/video preferences
+
+**After birth:**
+- Breastfeeding initiation in the first hour
+- Rooming-in with baby (vs. nursery)
+- Visitor preferences
+
+**If plans change:**
+- Open to interventions if medically necessary
+- Preference for communication (want to be consulted on decisions)
+- Cesarean preferences (skin-to-skin in OR, partner present)
+
+Print two copies: one for your bag, one for the care team.
 
 ## 💬 Conversation Starter
-"What are our ground rules for grandparent visits in the first two weeks?" Getting on the same page as a couple before talking to extended family is essential. Present a united front.
+"Are we flexible about the birth plan, or are there non-negotiable items?" Understanding what's a preference versus a hard line helps you both stay aligned when things don't go exactly as planned.
 
 ## 🎉 Fun Fact
-When baby drops into the pelvis (engages), their head presses against the cervix. This pressure actually helps the cervix start to thin out and prepare for dilation. So every time your partner feels that uncomfortable pressure, she can think of it as progress — baby is literally helping to prepare the way for their own arrival.
+The amniotic fluid that surrounds your baby right now contains their DNA, shed skin cells, and even tiny hairs. It's also the perfect temperature — always matching mom's body heat. Baby has been living in a perfectly climate-controlled pool for 36 weeks. No wonder the transition to the outside world comes with a bit of crying.
 
-## 🤔 Q&A Question
-**What's a birth plan, and do we actually need one?**
-We'll break it down tomorrow with a simple template you can customize.
+## 🤔 Yesterday's Answer
+**Birth plans: do you need one?**
 
-## 👫 Couple Activity
-**Birth plan brainstorm.** Grab a piece of paper and each of you independently write down your top 5 priorities for the birth experience. Then compare lists. You might be surprised at how aligned you are — or discover something important you haven't discussed yet. Topics to consider: pain management preferences, who's in the room, music or no music, delayed cord clamping, skin-to-skin, photography, and how you feel about interventions if needed. We'll refine this into a formal birth plan tomorrow.
+A birth plan isn't a contract — it's a communication tool. Think of it as a way to tell your medical team who you are and what matters to you, without having to explain it between contractions.
+
+**Why they're helpful:**
+- Forces you to research your options and make informed decisions
+- Gives the medical team a quick overview of your preferences
+- Ensures you and your partner are on the same page
+- Gives you (the dad) a reference when advocating for her
+
+**Why flexibility matters:**
+- Labor is unpredictable. The goal is a healthy baby and healthy mom
+- A plan that's too rigid can lead to disappointment if things change
+- The best birth plan includes the phrase: "We are open to adjustments if medically necessary"
+
+**Keep it short.** Medical staff see many birth plans. A one-page, bullet-point summary gets read. A five-page manifesto gets skimmed. Focus on what truly matters to you.

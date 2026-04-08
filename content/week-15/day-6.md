@@ -1,37 +1,37 @@
 ---
-subject: "Week 15, Day 6 — Shabbat Shalom & Some Smart Planning Ahead 🕯️"
+subject: "Week 15, Day 7 — Rest, Reflect, and a Peek at Week 16 🔮"
 week: 15
-day: 6
+day: 7
 ---
 
-# Week 15, Day 6
+# Week 15, Day 7
 
 ## 👶 Baby Development
-As the week wraps up, your baby has been busy. Those hardening bones now have a framework that will support growth for months to come. The ears are developing their outer shape, and while hearing isn't fully online yet, the structures are getting into place. Baby is about 4 inches long and roughly 2.5 ounces — still light as a handful of grapes.
-
-## 🤰 What Mom Might Be Feeling
-By Friday, the Mom may be feeling the cumulative effect of the work week. Even with second-trimester energy, pregnancy demands a lot from the body. She might notice some swelling in her feet or ankles, especially after a day of sitting or standing in one position. Elevating her feet and staying hydrated are the simplest remedies. Her belly may also feel firmer as the uterus continues to expand upward.
-
-## 💰 Financial Tip
-Start thinking about your health insurance situation for the birth. If you're in Israel, familiarize yourselves with what your kupat cholim covers and whether you want to pay for extras like a private room, a specific doctor, or an epidural guarantee. Understanding costs now — while there's no pressure — gives you months to save or plan.
-
-## 🍼 Gear Tip
-It's not too early to start a baby registry or wish list. You don't have to share it yet, but browsing together helps you learn what you actually need versus marketing hype. Start with the essentials: a safe sleep space, a car seat, and a stroller. Everything else is secondary. Ask friends with babies what they actually used versus what collected dust.
-
-## 🧘 Mindfulness Moment
-As Shabbat arrives, take five minutes together for a simple breathing exercise. Sit comfortably, close your eyes, and breathe in for 4 counts, hold for 4, out for 6. Do this 5 times. Then place your hands on the Mom's belly together. No talking, no phones, just presence. This is your family, right here, right now.
-
-## 🍽️ Nutrition Tip
-A pregnancy-friendly Shabbat dinner: lemon herb baked salmon. Place fillets on parchment paper, drizzle with olive oil, squeeze half a lemon over them, and sprinkle with dill and garlic. Bake at 400F (200C) for 12-15 minutes. Serve with roasted sweet potatoes and a green salad. Omega-3s from the salmon, vitamin A from the sweet potatoes, and the whole meal takes under 30 minutes.
-
-## 💪 Exercise & Movement
-Today is about gentle movement — neck rolls, shoulder shrugs, gentle side bends, and a hip-opening butterfly stretch (sit with soles of feet together, gently press knees toward the floor). Hold each stretch for 20-30 seconds. The goal isn't intensity — it's loosening up and winding down for a restful Shabbat.
-
-## 💡 Tip for Dad
-Set up the Shabbat table together tonight. Light candles, put away the phones, and be fully present. Even if you're not religious, there's something powerful about creating a weekly ritual of pause and connection. In a few months, this baby will be at your table — start building the tradition now.
-
-## 💬 Conversation Starter
-What family tradition from your own upbringing do you most want to continue? What new tradition do you want to create that's uniquely yours?
+As week 15 closes out, your baby has achieved a lot. The bones are harder, the legs are longer, and that little body has been tumbling around nonstop. Baby's skin is still translucent — you could see the blood vessels right through it — but it's getting thicker every day. Hair follicles are forming a pattern on the scalp, even though actual hair is still a while away.
 
 ## 🎉 Fun Fact
-In Japan, there's a tradition called "Inu no Hi" (Day of the Dog) where pregnant women visit shrines on specific "dog days" for a safe delivery blessing. Dogs are considered symbols of easy birth in Japanese culture. Many cultures around the world have beautiful rituals to celebrate and protect pregnancy.
+Your baby's heart is now pumping about 25 quarts of blood per day. By the end of pregnancy, that number will be closer to 300 quarts. That tiny heart is an absolute powerhouse, and it started beating just 22 days after conception.
+
+## 🤰 What Mom Might Be Feeling
+Saturday is a perfect day for the Mom to listen to her body. If she's tired, encourage real rest — not scrolling-on-the-couch rest, but actual napping, reading, or lying quietly. She may notice that her breasts have grown noticeably and might feel tender or heavy. A well-fitting, supportive bra (no underwire) can make a real difference in comfort. Some women also notice increased vaginal discharge — normal and caused by higher estrogen levels.
+
+## 🔮 After-Birth Preview: The First 48 Hours
+Here's something most people don't talk about: what actually happens right after birth. The baby will likely be placed on the Mom's chest immediately for skin-to-skin contact. Nurses will check reflexes, weight, and vitals. If she plans to breastfeed, the first attempts happen within the first hour. You, as the dad, will probably cut the umbilical cord (if you want to — no pressure). It's chaotic, emotional, and beautiful. Knowing what to expect takes away some of the overwhelm.
+
+## 🍽️ Nutrition Tip
+Fiber is the Mom's friend right now. Pregnancy hormones slow down digestion, and constipation is one of the most common complaints. Great high-fiber foods: pears, raspberries, lentils, oatmeal, and whole grain bread. Aim for 25-30 grams daily, and make sure she's drinking plenty of water alongside it — fiber without water can actually make things worse.
+
+## 💪 Exercise & Movement
+It's rest day, but gentle movement still helps. A slow 15-minute walk after lunch aids digestion and keeps the body loose. Some light prenatal yoga stretches at home are also perfect. The key today is movement that feels good, not movement that feels like exercise.
+
+## 😌 Rest & Gratitude
+Take a moment today to appreciate where you are. Fifteen weeks in. Your baby is real, growing, and developing at an incredible pace. Write down one thing you're each grateful for about this journey so far. Keep a small notebook for these — by the end, you'll have a beautiful record of how you felt along the way.
+
+## 💡 Tip for Dad
+Today, do something that's just for you. Go for a run, watch a game, play guitar, see a friend — whatever recharges you. Being a great partner and future dad doesn't mean losing yourself. Taking care of your own well-being makes you better at taking care of your growing family.
+
+## 💬 Conversation Starter
+What's one thing about this pregnancy that has surprised you so far? Something you didn't expect to feel, think, or experience? Share honestly — surprises are great conversation fuel.
+
+## 🔭 Next Week Preview
+Week 16 brings the avocado! Your baby will be about 4.6 inches and developing facial muscles — meaning baby can now make expressions like squinting and frowning. The circulatory system becomes fully functional, and some moms start to feel that magical first flutter of movement called "quickening." An exciting week ahead!

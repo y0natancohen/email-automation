@@ -1,37 +1,48 @@
 ---
-subject: "Week 29, Day 1 — Butternut Squash Baby! 🎃"
+subject: "Week 29, Day 2 — Muscles, Bones, and Getting Stronger 💪"
 week: 29
-day: 1
+day: 2
 ---
 
-# Week 29, Day 1
-
-## 🌒 This Week at a Glance
-Your baby is now about 15.2 inches long and weighs around 2.5 pounds — roughly the size of a butternut squash. Muscles and lungs are maturing rapidly, and the bones are fully developed but still soft and flexible, which will be important during birth. As space gets tighter, movements will start to feel different — less like martial arts and more like slow stretches and rolls. The brain has reached a new milestone: it's sophisticated enough to control body temperature on its own.
-
-## 🎉 Fun Fact
-Your baby can distinguish between sweet and bitter tastes through the amniotic fluid. When a sweet substance is present, babies increase their swallowing rate; when it's bitter, they decrease it. Your little one is already a picky eater — in the most adorable way possible.
+# Week 29, Day 2
 
 ## 👶 Baby Development
-The bones are fully formed but made of flexible cartilage rather than hard bone, which allows the baby's body — especially the head — to compress slightly during the journey through the birth canal. This cartilage will gradually ossify over the coming months and years. The lungs are making real progress, and the muscles are getting stronger every day with constant practice movements.
+Your baby's muscles are developing rapidly, getting stronger with each stretch and kick. Muscle tone is improving, which means movements are becoming more coordinated and purposeful. The bones, while fully formed, remain flexible — made of cartilage that allows the skeleton to bend and compress during birth. After birth, these bones will gradually harden over months and years. Right now, your baby is practicing gripping, stretching, and even yawning.
 
 ## 🤰 What Mom Might Be Feeling
-The Mom might notice that movements feel different now. Instead of sharp kicks and jabs, she might feel more rolling, squirming, and stretching. This is because the baby is bigger and has less room. The movements should still be regular — just different in character. She may also notice more pelvic pressure and lower back discomfort as the baby grows.
+With the baby now weighing about 2.5 pounds plus the placenta, amniotic fluid, and increased blood volume, your partner is carrying a significant amount of extra weight. Her back may be feeling it, and she might be experiencing sciatic nerve pain — a sharp or burning sensation that radiates from the lower back down through the buttock and leg. This happens when the growing uterus puts pressure on the sciatic nerve. Gentle stretching and warm compresses can help.
 
 ## 🍽️ Nutrition Tip
-Calcium and vitamin D are critical this week for strengthening those developing bones. A baked shakshuka with feta is an excellent option: sauté onion and bell pepper, add garlic and spices (cumin, paprika), pour in crushed tomatoes and simmer, then crack eggs into wells in the sauce, scatter feta around them, and bake until set. Eggs are one of the few food sources of vitamin D, and the feta adds a calcium boost. Serve with crusty bread or challah.
+Vitamin D is essential for your baby's bone development and your partner's bone health. Many people don't get enough, especially if they spend most of their time indoors. Good sources: 15 minutes of morning sunlight, fortified milk, eggs, and fatty fish like salmon. Many prenatal vitamins contain vitamin D, but check the label — 600 IU daily is the minimum recommendation during pregnancy. Some doctors recommend more. It's worth asking at the next appointment.
 
 ## 💪 Exercise & Movement
-As the belly grows, balance becomes more important. Try standing near a wall, lifting one foot slightly off the ground, and holding for 10-15 seconds before switching sides. Repeat five times each side. This strengthens the stabilizer muscles in the ankles and core, reducing the risk of falls as the center of gravity shifts.
+**Sciatic Pain Relief Exercises:**
+- Pigeon pose (modified): from hands and knees, slide one knee forward and gently sit back. Use a pillow for support.
+- Seated figure-four stretch: sit in a chair, cross one ankle over the opposite knee, gently lean forward
+- Cat-cow stretches: on hands and knees, alternate between arching and rounding the back
+- Glute bridges: lie on back (briefly!), knees bent, lift hips. Hold 5 seconds, lower. Repeat 10 times.
+
+If sciatic pain is severe, your partner might benefit from a prenatal chiropractor or physiotherapist.
 
 ## 💡 Tip for Dad
-The nursery — have you started? You don't need a Pinterest-perfect room. You need a safe crib with a firm mattress, a place to change diapers, and somewhere comfortable to sit during night feedings. Start with these basics and add personality over time. If you don't have a separate room, that's fine — many families keep the baby in their room for the first 6-12 months, and that's actually recommended for safe sleep.
+Learn about the different stages of labor. Yes, all of them. There are three main stages: early labor (contractions begin, cervix dilates to about 6 cm), active labor (stronger contractions, dilation from 6-10 cm), and pushing/delivery. Understanding what happens in each stage helps you know what to expect, what your partner needs, and when things are progressing normally. It also means you can ask informed questions if something comes up. Knowledge reduces fear — for both of you.
 
 ## 💬 Conversation Starter
-"Let's talk about how we want to handle visitors after the baby is born. Who do we want there, when, and what boundaries should we set?"
+"How do you feel about people sharing photos of our baby on social media? What are our boundaries around that?"
 
-## 🤔 Question of the Week
-How do we create a birth plan that's helpful but flexible? What should we definitely include? Answer coming tomorrow!
+## 🎉 Fun Fact
+Your baby's brain is now controlling body temperature! Before this point, the baby relied entirely on the amniotic fluid to stay warm. Now, the brain's thermoregulation center is coming online. It's still a work in progress — newborns can't regulate temperature well, which is why skin-to-skin contact after birth is so important (your body heat helps stabilize theirs).
 
-## 👫 Couple Activity
-If your hospital or birthing center offers tours, book one this week. Walking through the labor and delivery area, seeing the rooms, and understanding the process takes away a lot of the mystery and anxiety. Go together and ask questions — no question is too basic. Where do you park? Where do you check in? What can you bring?
+## 🤔 Weekly Q&A — Answer
+**Yesterday's question:** How do we create a birth plan that's helpful but flexible?
+
+**Answer:** A good birth plan is a one-page communication tool, not a rigid script. Think of it as a way to share your preferences with the medical team. Key things to include:
+- **Who's in the room:** Your partner, you, anyone else?
+- **Pain management:** Preferences for epidural, natural techniques, or "wait and see"
+- **Movement:** Does she want to walk, use a birthing ball, or try different positions?
+- **Interventions:** Preferences about induction, monitoring, episiotomy
+- **Immediately after birth:** Skin-to-skin contact, delayed cord clamping, who cuts the cord?
+- **Feeding:** Breastfeeding, formula, or undecided?
+- **Special requests:** Music, lighting, photography
+
+The most important thing: end it with "We understand that plans may change based on medical needs, and we trust our care team." Flexibility is key. Talk to your doctor or midwife about your preferences — they'll help you understand what's realistic at your specific birthing location.

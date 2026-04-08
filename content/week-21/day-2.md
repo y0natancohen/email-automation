@@ -1,31 +1,34 @@
 ---
-subject: "Week 21, Day 2 — Those Tiny Eyebrows Are Ready for Their Close-Up 👀"
+subject: "Week 21, Day 3 — Somersaults, Swallows & Sweet Dreams 🌙"
 week: 21
-day: 2
+day: 3
 ---
 
-# Week 21, Day 2
+# Week 21, Day 3
 
 ## 👶 Baby Development
-Your baby's face is looking more and more like a real person. The features are becoming increasingly defined, with the eyes developing rapidly underneath still-closed lids. Today's movement repertoire includes kicks, stretches, and the occasional hiccup. The digestive system continues to practice too, processing swallowed amniotic fluid through the intestines — all rehearsal for life after birth.
+Your baby is a little acrobat today. With plenty of room still in the uterus, there's space for full-body turns, rolls, and stretches. The swallowing reflex is in full swing — your baby drinks amniotic fluid throughout the day, helping develop the digestive system and giving the kidneys practice filtering waste. The small intestines are starting to absorb sugars from the swallowed fluid, another step toward life outside the womb.
 
 ## 🎉 Fun Fact
-Your baby's fingerprints are forming right now. The swirling patterns on those tiny fingertips are shaped by the pressure of amniotic fluid on the developing skin. No two people — not even identical twins — share the same fingerprints.
+Your baby swallows about 500-700 ml of amniotic fluid per day — roughly the amount in a large water bottle. The fluid is continuously recycled: swallowed, processed by the kidneys, and released back. It sounds funny, but it's a critical part of development.
 
 ## 🤰 What Mom Might Be Feeling
-The Mom's skin may be doing interesting things this week. Some women get the famous "pregnancy glow" thanks to increased blood volume giving the skin a flushed, dewy look. Others deal with breakouts, dry patches, or darkening areas like the linea nigra. Stretch marks might be appearing on the belly, breasts, or hips. She might also feel warmer than usual, since extra blood volume means extra body heat. All of this is normal and temporary.
+The Mom might notice she needs to use the bathroom more often again as the growing uterus puts pressure on the bladder. Heartburn or indigestion may also make an appearance as the uterus pushes the stomach upward. She might feel occasional belly tightness — these could be Braxton Hicks contractions (practice contractions), which are totally normal, not a sign of labor, and usually painless.
 
 ## 🍽️ Nutrition Tip
-Your baby's bones are hardening, and that takes calcium. If the Mom isn't a big milk drinker, plenty of other sources work well — tahini, sardines, fortified orange juice, broccoli, almonds, and white beans. A quick snack idea: apple slices with almond butter and a sprinkle of sesame seeds. Tasty, easy, and calcium-packed.
+If heartburn is becoming an issue, smaller, more frequent meals work better than three big ones. Avoiding spicy, acidic, or fried foods close to bedtime helps too. A smart evening snack: a small bowl of oatmeal with sliced banana. Oats are soothing for the stomach, bananas are a natural antacid, and staying upright for 30 minutes after eating keeps stomach acid where it belongs.
 
 ## 💪 Exercise & Movement
-The pelvic floor is the unsung hero of pregnancy — strong pelvic floor muscles support the growing uterus, help with labor, and speed up postpartum recovery. Kegels are simple: contract and hold for five seconds, release for five, repeat ten times, three sets throughout the day. Bridge pose is another great option — lie on the back with knees bent, squeeze glutes and pelvic floor, and lift hips for five seconds. These exercises benefit everyone, so doing them together makes it feel less awkward.
+Swimming is a fantastic pregnancy exercise, especially as the belly grows. The water supports the extra weight, reduces joint stress, and the gentle resistance works multiple muscle groups. Even just floating can relieve pressure on the back and hips. If the Mom enjoys swimming, 20-30 minutes a few times a week is ideal. Check if local pools offer prenatal swim sessions.
 
 ## 💡 Tip for Dad
-If the Mom is dealing with skin changes, be genuinely reassuring — and specific. "You look great" is nice but vague. Something like "I love how you look right now — you're growing our baby and it shows in the best way" feels much more real. A gentle belly moisturizing routine together can become a nice nightly ritual.
+Start keeping a running list of questions for your next doctor or midwife appointment. It's easy to forget what you wanted to ask when you're actually there. Use a shared note on your phones so both of you can add questions whenever they come up. Nothing is too small or silly to ask.
 
 ## 💬 Conversation Starter
-"If our baby could hear one song right now and remember it forever, what would you want it to be?"
+"What's one parenting fear you have that you haven't said out loud yet? Let's talk about it — no judgment."
 
-## 🤔 Q&A: Yesterday's Answer
-**Can babies hear music in the womb?** Yes. By week 21, your baby's hearing is developing rapidly. While it won't fully mature until around weeks 25-26, your baby can detect sounds, especially low-frequency ones. Studies show newborns recognize music and voices they heard frequently during pregnancy. Low-frequency sounds — like bass lines or a father's deep voice — travel particularly well through amniotic fluid. So play music, talk to the belly, sing off-key. Your baby is listening.
+## 🛏️ Sleep Tip
+Side sleeping becomes more important from here on. The left side is often recommended because it improves blood flow to the uterus and baby. A pillow between the knees can ease hip pain, and a wedge pillow under the belly provides support. If the Mom keeps rolling onto her back, a body pillow behind her can act as a gentle barrier. And here's your role: if you notice her struggling at night, quietly adjust pillows without waking her.
+
+## 💼 Workplace Tip
+If the Mom hasn't already, now is a good time to start thinking about maternity leave planning. In Israel, maternity leave is 26 weeks, with 15 weeks paid by Bituach Leumi. An informal conversation with her manager or HR about timing and coverage can reduce stress significantly. And for you — start thinking about your paternity leave options too. Planning ahead makes the transition smoother for everyone.

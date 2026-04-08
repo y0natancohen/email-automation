@@ -64,10 +64,10 @@ def get_pregnancy_day(recipient, override_date=None):
         return None, None, None  # Not started yet
 
     week = start_week + days_elapsed // 7
-    day = days_elapsed % 7 + 1
+    day = days_elapsed % 7
 
-    if week > 42 or (week == 42 and day > 1):
-        return None, None, None  # Past week 42 day 1
+    if week > 42 or (week == 42 and day > 0):
+        return None, None, None  # Past week 42 day 0
 
     return week, day, now
 

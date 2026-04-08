@@ -1,37 +1,37 @@
 ---
-subject: "Week 24, Day 5 — Growing, Feeling & Finding Your Rhythm 💕"
+subject: "Week 24, Day 6 — Shabbat, Corn-Sized Baby & Planning Ahead 🕯️"
 week: 24
-day: 5
+day: 6
 ---
 
-# Week 24, Day 5
+# Week 24, Day 6
 
 ## 👶 Baby Development
-Your baby's skin is still thin but gaining opacity as more fat is deposited underneath. Much of the weight gain from here forward will be fat — essential for temperature regulation, brain insulation, and energy storage after birth. The lungs continue developing, and surfactant production is slowly increasing. Movement patterns are becoming more predictable: active periods after meals, quiet stretches during the day when the Mom is moving, and lively acrobatics in the evening when she rests.
+Your corn-sized baby is spending Friday getting stronger. The muscles are developing more definition, and the movements the Mom feels are increasingly powerful. Your baby can now make a range of facial expressions — frowning, squinting, pursing the lips. These aren't emotional responses yet, but rather the facial muscles rehearsing the expressions they'll use to communicate after birth. The reproductive system continues to develop: in boys, the testes are beginning to descend; in girls, the uterus and ovaries are in place.
 
 ## 🎉 Fun Fact
-Your baby's hearing is now good enough to differentiate between your voice and the Mom's voice. After birth, newborns turn their heads toward familiar voices and show a measurable decrease in heart rate — a sign of comfort — when they hear the voices they knew in the womb. You are already your baby's favorite people.
+Your baby can now make over 20 different facial expressions, including what looks like smiling, frowning, and grimacing. Within hours of being born, babies can mimic facial expressions they see — a skill that's being rehearsed right now in the womb.
 
 ## 🤰 What Mom Might Be Feeling
-At nearly six months pregnant, the Mom might be finding that bending over is getting difficult — tying shoes, picking things up, and similar tasks become more challenging as the belly grows. Heartburn may be more frequent as the growing uterus pushes stomach acid upward. Sleeping slightly elevated can help, and finishing dinner at least two hours before lying down makes a difference. Emotionally, there may be a mix of impatience and "wait, slow down — I'm not ready yet."
-
-## 🤔 Q&A: Yesterday's Answer
-**What about cord blood banking?** Cord blood is rich in stem cells with potential uses in treating certain blood disorders, immune deficiencies, and some cancers. Private banking stores your baby's cord blood exclusively for your family (5,000-10,000 NIS plus annual fees), but the likelihood of needing it is very low. Public donation is free and helps others — Israel's public cord blood bank accepts donations through Ezer Mizion and Hadassah. Choosing not to bank at all is also completely valid. If considering private banking, arrange it by week 34.
+As Friday arrives, the Mom is carrying the baby, placenta, extra blood, amniotic fluid, and the growing uterus — significant extra weight. Back pain, pelvic pressure, and fatigue are common. She might also experience some shortness of breath as the expanding uterus pushes against the diaphragm. This gets better later when the baby "drops" into the pelvis. For now, taking stairs slowly and pausing when needed is perfectly fine.
 
 ## 🍽️ Nutrition Tip
-A heartburn-friendly dinner: baked white fish with steamed green beans and mashed potatoes. Mild, non-acidic, easy to digest, and nutritious. Skip tomato sauce, garlic, and spicy seasonings if heartburn is a problem. A small glass of cold milk after dinner can also neutralize stomach acid. Simple is sometimes the smartest approach.
+A warm, comforting Shabbat soup: saute onion and garlic in olive oil, add cubed butternut squash with cumin, cinnamon, and a pinch of nutmeg. Add rinsed red lentils and vegetable broth, bring to a boil, and simmer 25 minutes until tender. Blend until smooth and serve with a swirl of coconut cream and fresh bread. Packed with protein, fiber, and beta-carotene — perfect for a Friday evening.
 
 ## 💪 Exercise & Movement
-Supported Warrior II is a strong prenatal pose: stand with feet wide apart, turn the right foot out 90 degrees, bend the right knee over the ankle (not past the toes), extend arms to the sides at shoulder height, and look over the right hand. Hold for five breaths, then switch sides. Use a chair for balance support if needed. This pose builds leg strength, opens the hips, and improves stamina.
+A Friday afternoon stretch session to release the week's tension: seated forward fold with wide legs for a minute, supported reclining butterfly (lie back on pillows, knees open, feet together) for three minutes, side-lying stretches for a minute each side, and constructive rest (lie with knees bent, feet flat, hands on belly) for three minutes of deep breathing. Keep it gentle and restorative.
 
 ## 💡 Tip for Dad
-Start doing the small physical things that are getting harder for the Mom. Put shoes by the door so she can slip them on. Pick up things she drops. Help her get comfortable in bed. Move frequently used items to counter height instead of low shelves. Don't wait to be asked — noticing what she needs before she asks is its own form of love.
+Start a hospital bag list. You won't pack it until around week 35-36, but starting the list now means nothing gets forgotten. For mom: comfortable robe, slippers, nursing bra, toiletries, snacks, phone charger, going-home outfit. For baby: going-home outfit, car seat (installed in advance), swaddle blanket. For you: change of clothes, snacks, phone charger, a small pillow. Keep the list on your phone where both of you can add to it.
 
 ## 💬 Conversation Starter
-"We're at 24 weeks — roughly two-thirds through. On a scale of 1 to 10, how ready do you feel? What would move the number up?"
+"If our baby could pick their own name, what do you think they'd choose? Something dramatic? Something simple?"
 
-## 🧠 Mental Health Check-In
-Let's talk about the comparison trap. Social media is full of perfect pregnancy announcements, gorgeous nurseries, and couples who seem to have everything figured out. Remember: those are highlight reels. Your pregnancy doesn't need to look like anyone else's. If social media is making you feel inadequate, take a break from it. Your mental space matters more than your feed.
+## 💰 Gear Tip: The Stroller
+Strollers are one of the biggest baby purchases, and the options are overwhelming. Three main types: travel systems (car seat clicks into stroller frame — convenient for the first year), full-size strollers (durable and feature-rich but heavier), and lightweight/umbrella strollers (compact and portable, great for travel). For Israel, consider sidewalk quality in your area, apartment storage space, whether it needs to fold small, and sun canopy quality. Don't buy the most expensive one automatically — borrow from friends, check second-hand groups, and try before you buy.
 
-## 💕 Intimacy & Connection
-Physical changes during pregnancy can affect how both of you feel about intimacy. The key is talking about it without judgment. Tonight, try a non-sexual physical connection: sit facing each other and spend five minutes gently massaging each other's hands — palms, fingers, and wrists. It's intimate, relaxing, and requires nothing but presence.
+## 🧘 Mindfulness Moment
+As Shabbat begins, try a body scan meditation together. Lie down comfortably and slowly bring awareness to each part of your body, from the top of your head down to your feet. At each stop, consciously relax any tension. For the Mom, breathe warmth and love into the belly. Take five to seven minutes. You'll both feel lighter afterward.
+
+## 🕯️ Shabbat Activity
+Start a gratitude jar. Get a jar and some small pieces of paper. Each Shabbat, each of you writes one thing you're grateful for and drops it in. After the baby is born, keep going. When you're having a tough day as new parents, open the jar and read the notes. A simple practice that accumulates into something powerful over time.

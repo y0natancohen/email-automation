@@ -1,40 +1,37 @@
 ---
-subject: "Week 39, Day 1 — Full Term and Ready to Roll! 🎉"
+subject: "Week 39, Day 2 — The Three Stages of Labor, Explained 🏥"
 week: 39
-day: 1
+day: 2
 ---
 
-# Week 39, Day 1
-
-## 🌒 This Week at a Glance
-Welcome to week 39 — your baby is officially full term. At roughly 20 inches long and about 7 pounds, they're about the size of a small watermelon. Every organ is developed and ready for life on the outside, though that remarkable brain will keep growing rapidly well after birth. Baby is shedding the last of the lanugo and vernix, swallowing it along with amniotic fluid — all of which will form part of their very first poop (meconium).
-
-The Mom's cervix may already be softening and thinning, and Braxton Hicks contractions might be getting more convincing. From here on out, any day could be the day.
+# Week 39, Day 2
 
 ## 🎉 Fun Fact
-Only about 4% of babies arrive on their actual due date. The "due date" is really more of a "due window" — most first-time babies arrive between 39 and 41 weeks. Your baby is right on schedule, whenever they decide to show up.
+During labor, a baby's skull bones can actually overlap and shift to fit through the birth canal — it's called "molding." That's why some newborns have slightly cone-shaped heads at first. It rounds out within a few days.
 
 ## 👶 Baby Development
-Baby's brain has grown about 30% in just the last few weeks and will continue this rapid development for the first few years of life. The fat layer under the skin is now thick enough to help regulate body temperature after birth, giving them those adorable chubby cheeks. Lungs are fully mature and producing surfactant, the substance that keeps the tiny air sacs open. And the immune system is getting a final boost of antibodies from the placenta — a parting gift that will help protect baby in those first vulnerable weeks.
+Your baby is practicing breathing movements every day now, inhaling and exhaling amniotic fluid to strengthen those lungs. The digestive system is ready — the intestines are lined with meconium, that dark, sticky first stool. Baby's grip is also surprisingly strong at this point. When you hold their tiny hand for the first time, that squeeze you feel is a reflex they've been perfecting for months.
 
 ## 🤰 What Mom Might Be Feeling
-The Mom is probably feeling very, very done — and that's completely normal. Pelvic pressure can be intense as baby drops lower into position. She might notice increased vaginal discharge or even lose her mucus plug, a glob of thick mucus that can be clear, pink, or slightly bloody. It's a sign her body is preparing, though labor could still be days or even a couple of weeks away. Sleep is likely rough between bathroom trips, heartburn, and the sheer difficulty of finding a comfortable position.
+The Mom might be experiencing "lightening" — when baby drops lower into the pelvis. The upside: she can breathe a bit easier. The downside: even more pressure on the bladder and pelvis. Sharp, shooting pains in the pelvis or groin as baby's head presses on nerves are uncomfortable but completely normal.
 
 ## 🍽️ Nutrition Tip
-A great late-pregnancy meal: one-pan salmon with sweet potato and broccoli. Toss cubed sweet potato and broccoli with olive oil, salt, and pepper on a sheet pan and roast at 400°F for 15 minutes. Add seasoned salmon fillets (lemon, garlic, dill) and roast another 12-15 minutes. The omega-3s support baby's brain development right up to delivery, the sweet potato provides sustained energy, and the broccoli delivers vitamin C and folate.
+Dates may be worth adding to the rotation. Research suggests that eating about six dates per day starting around week 36-39 may help with cervical ripening and could lead to a shorter early labor. They don't have to be eaten plain — blend them into smoothies, stuff them with almond butter, or chop them into oatmeal. A sweet and potentially labor-friendly treat.
 
 ## 💪 Exercise & Movement
-Walking remains the gold standard and may even help encourage baby to settle deeper into the pelvis. Gentle 15-20 minute walks, stopping whenever needed, are ideal. Pelvic tilts on all fours can relieve back pressure and may help baby get into an optimal head-down position. This isn't about fitness anymore — it's about comfort and gentle movement.
+Consider a birth ball if you don't have one already. Sitting on one instead of the couch can help open the pelvis, encourage baby into a good position, and relieve lower back pressure. The Mom can gently bounce, do hip circles, or rock side to side — it's also great during early labor. A 65cm ball works for most women; inflate it so she can sit with knees slightly below hips.
 
 ## 💡 Tip for Dad
-Do a final run-through of your birth plan logistics this week. Can you get to the hospital within a reasonable time from home and from work? Do you know alternate routes? Is the car seat installed? Is your phone charged, and do you have the hospital's number saved? These small practical steps bring real peace of mind.
+Learn the signs of real labor versus false alarms. Real contractions get closer together, last longer, and get stronger over time. They don't stop when she changes position or drinks water. Use the 5-1-1 rule: contractions consistently 5 minutes apart, lasting 1 minute each, for at least 1 hour means it's time to head to the hospital. Download a contraction timer app now so you're ready.
 
 ## 💬 Conversation Starter
-Ask: "When we're in the delivery room and things get intense, what words or phrases would feel most encouraging to you?" Some women want to hear "you're doing amazing," others prefer simple reminders to breathe, and some want total silence. Knowing her preference now means you can show up exactly the way she needs.
+"What's the one thing you're most nervous about when it comes to labor? And what's the one thing you're most excited about?" Share your own answers too. Naming fears out loud often makes them feel smaller.
 
-## 🤔 Q&A Question
-**What are the three stages of labor, and what actually happens during each one?**
-Tomorrow we'll break it down so you know exactly what to expect when the big moment arrives!
+## 🤔 Yesterday's Answer
+**What are the three stages of labor?**
 
-## 👫 Couple Activity
-Take a "last hurrah" photo together — just the two of you. Whether it's a selfie on the couch, a quick snapshot in front of your home, or a silly pose with the hospital bag, capture this moment. You're about to go from two to three, and someday you'll look back on this photo and remember the anticipation, the excitement, and the love that brought you here.
+Stage 1 is the longest. Early labor involves contractions beginning and the cervix dilating to about 6 cm — it can last hours or even days for first-timers and is usually manageable at home. Active labor picks up with stronger, closer contractions as the cervix dilates from 6 to 10 cm. Transition is the most intense part: short (30 minutes to 2 hours) but very powerful as dilation completes. This is when the Mom will need you most.
+
+Stage 2 is pushing and delivery. Once the cervix is fully dilated, it's time to push — for first-time moms, this can take 1-3 hours. This is when you meet your baby.
+
+Stage 3 is delivery of the placenta, usually within 5-30 minutes with some mild contractions. The Mom will barely notice — she'll be too busy falling in love.

@@ -1,34 +1,34 @@
 ---
-subject: "Week 22, Day 3 — Miniature Newborn Mode Activated 👶"
+subject: "Week 22, Day 4 — Eyes Without Color & the Art of Growing 👁️"
 week: 22
-day: 3
+day: 4
 ---
 
-# Week 22, Day 3
-
-## 👶 Baby Development
-If you could see your baby right now, you'd be amazed at how much they look like an actual newborn — just smaller and thinner. All the facial features are in place, and the proportions are becoming more balanced as the body catches up to the head. Inside the lungs, tiny airways called bronchioles are developing, and a substance called surfactant is just beginning to form — this will eventually keep the air sacs from collapsing when your baby breathes for the first time.
+# Week 22, Day 4
 
 ## 🎉 Fun Fact
-Your baby's lungs won't take their first real breath until birth, but they're already "practicing" by making breathing-like movements with the chest muscles. The diaphragm contracts and relaxes rhythmically, moving amniotic fluid in and out. It's like rehearsal for opening night.
+Baby eye color is determined by multiple genes, not just one. Two blue-eyed parents can have a brown-eyed baby (though it's less common). Babies with more melanin are often born with brown eyes that stay brown, while lighter-eyed babies may see their color shift over the first year. Final eye color might not settle until around age 3.
+
+## 👶 Baby Development
+Your baby's eyes are fully formed, but the iris has no pigment yet. Eye color is determined by genetics and won't be finalized until months after birth — many babies are born with blue or gray eyes that later change. Behind those colorless irises, the retina is developing the layers it needs to process light. Eyebrows and eyelashes are in place, making your baby's face incredibly expressive even with eyes still closed.
 
 ## 🤰 What Mom Might Be Feeling
-The Mom might be experiencing vivid dreams. Pregnancy hormones combined with more frequent waking (thanks to bladder pressure) mean she's more likely to remember them. Many pregnant women report dreams about the baby, about labor, or bizarre scenarios that make no logical sense — all normal, reflecting the brain processing the huge life change ahead. She might also notice increased hair growth, not just on her head but potentially on her belly, face, or arms. Blame the hormones; it's temporary.
+The Mom might be experiencing what's sometimes called "the waddle" — a shift in walking pattern as the pelvis loosens and the belly grows, caused by the hormone relaxin softening ligaments in preparation for birth. She might also notice occasional numbness or tingling in her hands, especially at night — carpal tunnel syndrome is surprisingly common during pregnancy due to fluid retention putting pressure on nerves.
 
 ## 🍽️ Nutrition Tip
-A quick brain-building smoothie: blend milk (or fortified plant milk) with frozen mango, chia seeds, ground flaxseed, and a handful of spinach. The chia and flax provide plant-based omega-3s, the mango adds sweetness and vitamin C, and the spinach sneaks in iron and folate. Quick to make, easy to drink, and packed with brain-supporting nutrients.
+Your baby's eyes are developing rapidly and need vitamin A. A sweet potato and chickpea curry is a great way to deliver it: saute onion and garlic, add curry powder and ginger, then stir in cubed sweet potatoes and chickpeas. Pour in coconut milk, simmer until tender, and stir in spinach at the end. Serve over rice. The sweet potatoes are loaded with beta-carotene, and the coconut milk provides healthy fats for nutrient absorption.
 
 ## 💪 Exercise & Movement
-As the belly grows, many women unconsciously lean backward to counterbalance, which strains the lower back. A few posture cues that help: stand tall with shoulders back and down, keep ears aligned over shoulders, tuck the pelvis slightly to reduce the lower back curve, and use a small pillow behind the lower back when sitting. Good posture now prevents a lot of pain later.
+Arm circles and upper body mobility work help counteract the shoulder rounding that happens as the belly grows. Stand with arms extended and make small circles forward and backward (15 each), then increase to large circles (ten each direction). Finish by clasping hands behind the back and gently stretching the chest open.
 
 ## 💡 Tip for Dad
-Start thinking about your birth support role. You don't need to decide everything now, but begin exploring what kind of birth partner you want to be. Do you want to be at the head of the bed holding her hand? Do you want to see everything? Are you comfortable cutting the cord? There are no right answers — just your answers. Talking about this early prevents awkward in-the-moment decisions.
+Start building your "dad network" now. Having other fathers or soon-to-be fathers to talk to is genuinely valuable. Ask friends who already have kids for their honest experiences, or look into an online community or local dads' group. You don't need a huge network — even one or two dads you trust enough to text at 3 AM is enough.
 
 ## 💬 Conversation Starter
-"If our baby could be born with one skill already mastered — like sleeping through the night, or being a good eater — what would you pick?"
+"What eye color do you hope our baby gets? What color do you think it'll actually be?"
 
-## 🛏️ Sleep Tip
-If the Mom is having trouble falling back asleep after nighttime bathroom trips, keep the path dimly lit with a nightlight rather than turning on overhead lights. Bright light triggers the brain to wake up fully, while dim light allows the body to stay in a sleepy state. A boring podcast at low volume can also help the brain settle back down.
+## 🌍 How Babies Learn Touch in the Womb
+Touch is actually the first sense to develop, beginning as early as 8 weeks. By week 22, your baby's entire body is sensitive to touch. Researchers using 4D ultrasound have observed babies touching their faces 50+ times per hour, grabbing their feet, and exploring the uterine wall. This isn't random — it's how the brain maps the body, the earliest form of self-awareness. When the Mom feels the baby move, presses back, and the baby responds, that's a genuine interaction between two beings.
 
-## 💼 Workplace Tip
-If you haven't already, consider telling your employer about the pregnancy. At 22 weeks, it's typically good timing — well past the first trimester, and you'll need to start planning for time off. Frame it positively: you're excited and want to plan ahead for a smooth transition. In Israel, fathers are entitled to take part of the maternity leave if both parents agree. Know your rights before the conversation.
+## 🤔 Q&A: Question of the Day
+Everyone talks about a "birth plan" — but what actually goes into one? Is it worth writing, or do things just happen however they happen? Answer coming Thursday!

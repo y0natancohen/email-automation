@@ -1,76 +1,50 @@
 ---
-subject: "Week 36, Day 2 — Your Birth Plan (Keep It Simple) 📝"
+subject: "Week 36, Day 3 — Newborn Sleep (What Nobody Tells You) 🌙"
 week: 36
-day: 2
+day: 3
 ---
 
-# Week 36, Day 2
+# Week 36, Day 3
 
 ## 👶 Baby Development
-Your baby's gums are now firm and ridge-like — ready for that first toothless grin. Actual teeth won't appear for months (typically around 6 months), but the tooth buds are already formed beneath the gums. Baby is also continuing to shed lanugo and vernix. Some of the vernix mixes into the amniotic fluid, which baby swallows — and it's actually thought to help prepare the digestive system.
+Your baby's circulatory system is fully developed and ready to function independently. Right now, the placenta handles oxygen delivery, but at birth, a remarkable switch happens: the lungs take their first breath, blood flow reroutes through them, and a small hole between the heart chambers (the foramen ovale) closes. This entire cardiovascular transition happens in the first few minutes of life. It's one of the most extraordinary things the human body does.
 
 ## 🤰 What Mom Might Be Feeling
-If she hasn't had the Group B Strep test yet, it'll likely happen this week or next. She might also notice more pelvic pain — sometimes called SPD (symphysis pubis dysfunction) — which is caused by the pelvic joints loosening in preparation for birth. Rolling over in bed, getting out of the car, or climbing stairs can be surprisingly painful. A pillow between the knees while sleeping and keeping the knees together when turning can help.
+Your partner might notice she's waddling more — the combination of baby's low position, loose pelvic joints, and the sheer weight of the belly changes her center of gravity significantly. She might also experience more mucus discharge, which could be tinged with blood (the "bloody show"). This is a normal sign that the cervix is beginning to change, though it doesn't mean labor is imminent — it could still be days or weeks away.
 
 ## 🍽️ Nutrition Tip
-Start eating dates if your partner hasn't already. Research has shown that eating about 6 dates per day starting at week 36 can support cervical ripening and may be associated with shorter early labor. They're also packed with natural sugars for energy, potassium, and fiber. Easy ways to eat them: stuffed with cream cheese or almond butter, chopped into oatmeal, or blended into smoothies.
+**Quick Postpartum-Prep Recipe: Overnight Oats (Make a Batch)**
+
+- 1/2 cup rolled oats per serving
+- 1/2 cup milk (any kind)
+- 1/4 cup Greek yogurt
+- 1 tbsp chia seeds
+- 1 tbsp honey or maple syrup
+- Toppings: berries, banana, nuts, coconut flakes
+
+Mix oats, milk, yogurt, chia seeds, and sweetener in a jar. Refrigerate overnight. Add toppings in the morning. Make 3-4 jars at once for grab-and-go breakfasts. This is the kind of easy, no-cook meal that will save you in the first week with a newborn. Oats are also thought to support milk supply.
 
 ## 💪 Exercise & Movement
-**Exercise Focus: The Miles Circuit**
-This is a series of three positions designed to help baby get into an optimal position for birth. Each position is held for 30 minutes:
-1. **Open knee-chest:** On hands and knees with chest lowered to the floor, bottom up in the air
-2. **Side-lying:** On the left side with a pillow between the knees
-3. **Walking/standing:** Upright movement — walking, swaying, or doing lunges
-
-This can be done once a day in the last weeks of pregnancy. It's particularly helpful if baby is in a posterior or breech position. Consult your care provider before starting.
+Gentle hip circles on a birth ball while watching TV. That's it. Sometimes the best exercise is the one that doesn't feel like exercise. The circular motion helps baby settle into position and relieves lower back tension. 10 minutes is plenty.
 
 ## 💡 Tip for Dad
-Create your birth plan together using this simple framework. Keep it to one page — medical teams appreciate brevity:
+Let's talk newborn sleep reality. Here's what you need to know:
+- Newborns sleep 14-17 hours per day, but in fragments of 2-3 hours
+- They don't distinguish between day and night for the first several weeks
+- "Sleeping through the night" doesn't happen for most babies until 3-6 months (or later)
+- Safe sleep means: alone, on their back, in a crib or bassinet, on a firm mattress, with no blankets, pillows, bumpers, or toys
+- Room-sharing (not bed-sharing) is recommended for at least the first 6 months
 
-**During labor:**
-- Pain management preference (natural, epidural, open to either)
-- Freedom to move and change positions?
-- Music, lighting, environment preferences
-- Who is allowed in the room
-
-**During delivery:**
-- Who cuts the cord?
-- Delayed cord clamping (waiting 1-3 minutes)?
-- Immediate skin-to-skin?
-- Photography/video preferences
-
-**After birth:**
-- Breastfeeding initiation in the first hour
-- Rooming-in with baby (vs. nursery)
-- Visitor preferences
-
-**If plans change:**
-- Open to interventions if medically necessary
-- Preference for communication (want to be consulted on decisions)
-- Cesarean preferences (skin-to-skin in OR, partner present)
-
-Print two copies: one for your bag, one for the care team.
+Your job: learn the safe sleep basics now, set up the bassinet properly, and be ready to take shifts with your partner so each of you gets at least one 3-4 hour stretch of uninterrupted sleep.
 
 ## 💬 Conversation Starter
-"Are we flexible about the birth plan, or are there non-negotiable items?" Understanding what's a preference versus a hard line helps you both stay aligned when things don't go exactly as planned.
+"How should we handle nighttime feeds? Should we do shifts, or both wake up every time?" There's no single right answer — some couples prefer shifts (one sleeps 8 PM-1 AM while the other is on duty, then switch), while others prefer to both be involved at each feeding. Discuss what might work for your situation.
 
 ## 🎉 Fun Fact
-The amniotic fluid that surrounds your baby right now contains their DNA, shed skin cells, and even tiny hairs. It's also the perfect temperature — always matching mom's body heat. Baby has been living in a perfectly climate-controlled pool for 36 weeks. No wonder the transition to the outside world comes with a bit of crying.
+Newborns have about 300 bones — that's almost 100 more than adults have (206). Many of these bones are soft and flexible (made of cartilage) and will gradually fuse together as the child grows. This flexibility is by design — it allows baby to curl up in the womb and navigate the birth canal.
 
-## 🤔 Yesterday's Answer
-**Birth plans: do you need one?**
+## 🛏️ Sleep Tip
+For your partner right now: the "nest" sleeping position. Arrange pillows in a U-shape: one between the knees, one supporting the belly, one behind the back, and prop the head up slightly to combat heartburn. Some women find that sleeping in a recliner or propped up in a near-seated position is more comfortable than lying down in these final weeks. Whatever works, works — there are no rules about where pregnant women "should" sleep.
 
-A birth plan isn't a contract — it's a communication tool. Think of it as a way to tell your medical team who you are and what matters to you, without having to explain it between contractions.
-
-**Why they're helpful:**
-- Forces you to research your options and make informed decisions
-- Gives the medical team a quick overview of your preferences
-- Ensures you and your partner are on the same page
-- Gives you (the dad) a reference when advocating for her
-
-**Why flexibility matters:**
-- Labor is unpredictable. The goal is a healthy baby and healthy mom
-- A plan that's too rigid can lead to disappointment if things change
-- The best birth plan includes the phrase: "We are open to adjustments if medically necessary"
-
-**Keep it short.** Medical staff see many birth plans. A one-page, bullet-point summary gets read. A five-page manifesto gets skimmed. Focus on what truly matters to you.
+## 💼 Workplace Tip
+If your partner is planning to stop working soon, make sure all administrative tasks are handled: filling out leave paperwork, understanding insurance coverage for the birth, knowing how to add baby to your health insurance (you typically have 30 days from birth to do this), and confirming any employer benefits like lactation room access or flexible return schedules. For you, double-check your paternity leave paperwork and make sure your out-of-office plan is ready to activate. The less admin hanging over your heads, the more you can focus on your new baby.

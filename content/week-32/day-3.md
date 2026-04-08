@@ -1,34 +1,34 @@
 ---
-subject: "Week 32, Day 3 — Sleep Champion: 90-95% of the Day! 😴"
+subject: "Week 32, Day 4 — Rapid Weight Gain Mode: Engaged! 📈"
 week: 32
-day: 3
+day: 4
 ---
 
-# Week 32, Day 3
+# Week 32, Day 4
 
 ## 👶 Baby Development
-Your baby's sleep cycles are becoming more organized, with distinct periods of deep sleep and REM sleep. During the brief wakeful windows — which often coincide with the Mom's rest time, naturally — the baby is incredibly active: stretching, kicking, practicing breathing, swallowing amniotic fluid, and sucking on fingers or toes. The skin is becoming soft and smooth as lanugo sheds and fat layers build up beneath the surface.
+Your baby is in serious weight-gain mode, putting on about half a pound per week. This fat is essential — it provides insulation for temperature control, energy for the first hours and days of life, and padding that gives newborns their signature softness. At nearly 4 pounds, the skin has transformed from red and wrinkled to smooth and pinkish beneath the vernix coating.
+
+## 🌍 Deep Dive: The Third-Trimester Brain Explosion
+Between weeks 28 and 40, the brain's weight increases by 400%. The cerebral cortex — the wrinkly outer layer responsible for complex thinking — is developing billions of synaptic connections. Different regions are coming online for different functions: the temporal lobe for hearing and language, the occipital lobe for vision, the parietal lobe for spatial awareness and touch, and the frontal lobe for planning and personality (though that one takes years to fully mature). After birth, this intense development continues for at least three more years, shaped directly by the baby's experiences and relationships. Every cuddle, every song, every responsive moment physically shapes the architecture of the brain.
 
 ## 🤰 What Mom Might Be Feeling
-The Mom might be starting to think seriously about labor, and that can bring a mix of anticipation and nervousness. Physically, the list is familiar: frequent urination, difficulty taking deep breaths, lower back pain, and Braxton Hicks contractions. She may also notice that the baby seems to have a schedule — active at certain times, quiet at others. Interestingly, these patterns often carry over after birth, with the baby's most active womb times corresponding to their most alert newborn hours.
+Between the baby, placenta, amniotic fluid, increased blood volume, breast tissue, and fat stores, the Mom has likely gained 25-30 pounds by now — healthy and normal, but a lot to carry. She may experience round ligament pain, sciatic discomfort, and general achiness. A prenatal massage from a certified therapist can be genuinely therapeutic at this stage, not just a luxury.
 
 ## 🍽️ Nutrition Tip
-Fiber is the quiet hero of the third trimester, helping with one of the least glamorous symptoms: constipation. The daily target is 25-30 grams. A fiber-rich day might look like oatmeal with berries and chia seeds at breakfast, an apple as a snack, lentil soup with whole grain bread at lunch, hummus with raw veggies in the afternoon, and quinoa with roasted vegetables at dinner. Pair with plenty of water for best results.
+This is a great time to build a freezer stash for after the baby arrives. A big batch of beef and vegetable soup is easy to make ahead: brown stew meat, add diced carrots, celery, onion, and potatoes, pour in broth and canned tomatoes, add barley and seasonings, then simmer for a couple of hours. Let it cool, portion into freezer bags, and label with the date. Six to eight servings of hearty, reheatable comfort food, ready for the days when cooking feels impossible.
 
 ## 💪 Exercise & Movement
-If the Mom has been using a birth ball this trimester, try increasing to 15-20 minutes today. Gentle bouncing helps the baby descend into the pelvis, figure-eight hip movements open the pelvic area, and rocking forward and back relieves pressure on the lower back. The ball is also a fantastic tool during labor itself — many hospitals have them available, or you can bring your own.
+Perineal massage is recommended starting at week 34, just two weeks from now. Today is a good day to learn about the technique. Watch a reputable instructional video together — a midwife or doctor can recommend one. It can feel awkward, but evidence shows it reduces tearing during delivery, especially for first-time moms. Use a natural, unscented oil like coconut or olive oil.
 
 ## 💡 Tip for Dad
-Practice the drive to the hospital at a different time of day than before. If the first run was on a weekend morning, try a weekday evening — traffic patterns can change everything. Also think through backups: Can someone else drive if needed? Is there an alternative route? Where's the closest parking to the entrance? These details feel minor now but reduce stress enormously when the real moment arrives.
+Start building a labor playlist. Music can be a powerful tool during labor — providing rhythm for breathing, distraction during contractions, and emotional comfort during intense moments. Ask the Mom what kind of music she'd want: something calm and ambient for early labor, steady-rhythm tracks for active labor, motivating songs for pushing, and something soft and emotional for after the birth. Have it downloaded on your phone, since hospital Wi-Fi can be unreliable.
 
 ## 💬 Conversation Starter
-"What's one thing about the hospital stay that you're worried about? Let's problem-solve it together so it feels less daunting."
+"Do we have a communication plan for the birth? Who calls whom? Do we post on social media, and if so, when?"
 
 ## 🎉 Fun Fact
-Your baby's skull won't fully fuse until about 18 months of age. The fontanelles serve a dual purpose: they allow the head to compress slightly during birth and they give the brain room to keep growing afterward. In the first year alone, a baby's brain doubles in size — the skull is literally designed to accommodate that explosive growth.
+During birth, the skull's five separate bone plates can overlap slightly — a process called "molding" — reducing the head's diameter by up to a centimeter. This is why some babies are born with a slightly cone-shaped head. It looks unusual but resolves within a day or two as the plates shift back into position.
 
-## 🛏️ Sleep Tip
-If the Mom is struggling to find a comfortable sleeping position, the full-pillow "SOS" (Sleep On Side) setup can help: a pillow behind the back to prevent rolling, one between the knees for hip alignment, and a small pillow or rolled towel under the belly for support. Yes, she'll be surrounded by pillows. Yes, there may not be much room left. Her comfort is worth the pillow fort.
-
-## 💼 Workplace Tip
-If the Mom is planning to stop working before the due date, this is a good week to finalize timing. Many women in Israel stop working around weeks 34-36, depending on how they're feeling and job demands. For desk jobs, working longer is usually feasible; for physically demanding roles, stopping earlier may be necessary. There's no universally "right" time — it depends on her health, comfort, and specific situation.
+## 🤔 Weekly Q&A
+What happens during the hospital check-in process when you arrive in labor? Answer coming Thursday.

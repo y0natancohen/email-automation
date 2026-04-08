@@ -1,34 +1,39 @@
 ---
-subject: "Week 29, Day 4 — Baby's Bones: Strong Yet Flexible 🦴"
+subject: "Week 29, Day 5 — Growing, Rolling, and Getting Ready 🌊"
 week: 29
-day: 4
+day: 5
 ---
 
-# Week 29, Day 4
+# Week 29, Day 5
 
 ## 👶 Baby Development
-Your baby's skeleton is fully formed but made of soft, flexible cartilage that will gradually ossify into hard bone over the coming months and years. The skull is a perfect example: it's made of several separate plates that can overlap slightly during birth, allowing the head to pass through the birth canal. This is why some newborns have a slightly elongated head shape right after birth — it rounds out within a day or two. Nature's engineering at its finest.
+Your baby is continuing to put on weight steadily. Fat stores are building under the skin, smoothing out the wrinkled appearance and preparing for temperature regulation outside the womb. The lungs are maturing — still needing several more weeks, but making real progress. Movements should still be consistent, and this is a good time to establish a kick-counting routine if you haven't already.
 
 ## 🎉 Fun Fact
-Your baby's brain now weighs about three times what it did at the beginning of the third trimester, just two weeks ago. This incredible growth is why nutrition and rest are so important right now — the building blocks for brain development come directly from what the Mom eats. Every healthy meal is literally feeding your baby's brain.
+Your baby can distinguish your voice from other voices — and prefers it. Studies show that babies' heart rates slow down (a sign of calm) when they hear their mother's voice and respond with increased alertness to their father's voice. You're both already building a relationship, one conversation at a time.
 
-## 🌍 Why Babies' Heads Are So Big
-Human babies have disproportionately large heads compared to other primates — about 25% of their body length at birth. The birth canal is just barely wide enough to accommodate the head, which is why skull bones stay flexible and babies rotate during delivery. It's also why human babies are born relatively helpless: if they stayed in the womb long enough for the brain to fully develop, the head would be too large to deliver. Babies are born with only 25% of their adult brain size and spend years developing outside the womb. Your love and care after birth literally completes what nature started inside.
+## 🤔 Weekly Q&A — Answer
+Wednesday's question: What's the difference between a midwife-led birth and a doctor-led birth?
+
+Both are safe options for healthy, low-risk pregnancies. A midwife (miyaledet in Hebrew) specializes in natural birth, tends to use fewer interventions, and provides more continuous one-on-one support during labor. An obstetrician is a medical doctor who handles high-risk situations and surgical deliveries. In Israel, most hospital births involve both — a midwife manages the labor process while an obstetrician is available if complications arise. Some women also choose a doula, a trained birth companion who provides continuous emotional and physical support. Talk to your healthcare provider about what combination feels right.
 
 ## 🤰 What Mom Might Be Feeling
-The Mom's skin may feel like it's stretching to its limits — because it literally is. Stretch marks may be appearing on the belly, breasts, hips, or thighs. About 90% of women get them during pregnancy. No cream or oil has been proven to prevent them — genetics play the biggest role — but keeping the skin moisturized helps with the itching that often accompanies stretching. Coconut oil or shea butter are popular options.
+Swollen feet and ankles are probably a regular thing now, especially by the end of the day. The Mom might also feel like the baby is sitting right on her bladder. Frequent urination is back with a vengeance. Some women also experience occasional nosebleeds or bleeding gums due to increased blood volume and hormonal changes that make blood vessels more fragile — usually harmless but can be surprising.
 
 ## 🍽️ Nutrition Tip
-A quick comfort food that's actually nutritious: creamy avocado pasta. Cook your favorite pasta (whole wheat for extra fiber), blend a ripe avocado with lemon juice, garlic, fresh basil, and olive oil, then toss the sauce with hot pasta and top with cherry tomatoes and pine nuts. The avocado provides healthy fats and folate, and it comes together in about 15 minutes.
+Potassium helps combat water retention and swelling. Bananas are the famous source, but sweet potatoes, tomatoes, spinach, yogurt, and avocados all pack a potassium punch. A smoothie made with yogurt, banana, spinach, and a drizzle of honey is a delicious way to get multiple nutrients in one glass.
 
 ## 💪 Exercise & Movement
-Wall sits are a great way to build leg strength for labor positions. Lean against a wall, feet about two feet out, and slide down until comfortable — ideally near 90 degrees at the knees. Hold for 15-30 seconds, rest, and repeat 3-5 times. This strengthens the quadriceps and glutes, key muscles for squatting during labor, and it's very safe in the third trimester.
+Ankle pumps and foot exercises can help reduce swelling: point and flex the feet 10 times each, rotate the ankles in circles both directions, and elevate feet above heart level for 15-20 minutes when possible. These can be done while sitting at a desk, watching TV, or lying in bed — simple but effective for circulation and fluid drainage.
+
+## 🧠 Mental Health Check-In
+Dads can experience prenatal anxiety too. If you're lying awake worrying about finances, the baby's health, or whether you'll be a good father, you're not alone. Research shows that up to 10% of expectant fathers experience significant anxiety during pregnancy. It's not a competition with the Mom's experience — your feelings matter too. Talk to someone: a friend, a family member, or a therapist.
 
 ## 💡 Tip for Dad
-Install the car seat. Seriously, do it now. Car seats are notoriously tricky to install correctly — studies show a large percentage are installed wrong. Read the manual, watch a tutorial for your specific model, and if you're not sure, many fire stations offer free inspections. Getting this done now means peace of mind when the time comes.
+Start thinking about what to pack in the Mom's hospital bag. You don't need to pack it yet, but making a list now means nothing gets forgotten in the rush. Essential categories: documents, comfortable clothing, toiletries, items for labor (lip balm, hair ties), items for after birth (nursing bra, going-home outfit), and baby items (going-home outfit, car seat). We'll go into more detail in coming weeks.
+
+## 💕 Intimacy Note
+A beautiful third-trimester intimacy practice: partner massage. Set up a comfortable space with dim lighting and calming music. Use a pregnancy-safe oil and focus on the feet, calves, lower back, and shoulders. Avoid deep pressure on the belly. This kind of loving, intentional touch releases oxytocin for both of you and helps the Mom's body feel cared for during a time when it might feel unfamiliar.
 
 ## 💬 Conversation Starter
-"What's our plan if the baby comes earlier than expected? Even just a rough idea helps us feel more prepared."
-
-## 🤔 Weekly Q&A
-What's the difference between a midwife-led birth and a doctor-led birth, and how do we decide which is right for us? Answer coming Thursday!
+"How should we divide nighttime baby duties? Let's brainstorm some realistic options."

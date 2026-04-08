@@ -1,36 +1,43 @@
 ---
-subject: "Week 26, Day 4 — Your Baby Recognizes Your Voice: The Science of Fetal Hearing 👂🎵"
+subject: "Week 26, Day 5 — Retina Developing, Third Trimester on the Horizon 👁️🌅"
 week: 26
-day: 4
+day: 5
 ---
 
-# Week 26, Day 4
+# Week 26, Day 5
 
 ## 👶 Baby Development
-Your baby's hearing has reached a remarkable level of sophistication. The auditory system is now mature enough to distinguish between different voices, react to sudden loud sounds with a visible startle reflex, and show preferences for certain types of sound. Studies show that the fetal heart rate changes in response to the mother's voice versus a stranger's — your baby already knows who their parents are, based solely on the sound of voices filtering through amniotic fluid, tissue, and muscle. Lower frequencies travel more clearly through the womb, so a deep voice may actually be easier for baby to detect than higher-pitched sounds.
+Your baby weighs approximately 1.8 pounds now and is adding weight steadily. The retina — the light-sensitive layer at the back of the eye — is developing its complex layers of photoreceptors. Rods, which handle low-light vision, are forming first, which is why newborns see contrast and movement better than color and detail. Full color vision won't develop until several months after birth. The brain's visual cortex is also rapidly forming connections, preparing for the flood of visual information that will arrive the moment your baby opens their eyes in a lit room.
 
 ## 🎉 Fun Fact
-The language spoken most during pregnancy actually shapes your baby's crying patterns. A study in Current Biology found that French newborns cry with a rising melody mimicking French intonation, while German newborns cry with a falling melody mimicking German. Babies were already imitating their native language's melodic patterns in their very first cries. If the Mom speaks Hebrew, your baby's first cry will carry the subtle musicality of Hebrew intonation — a language learned before the first breath.
+Your baby's retina contains about 130 million photoreceptors — more than any camera ever built. But newborn vision is incredibly blurry: babies can only focus clearly on objects 8-12 inches away, which happens to be exactly the distance between a breastfeeding baby's eyes and their mother's face. Evolution optimized newborn vision not for clarity, but for connection.
 
-## 🔬 The Science of Fetal Hearing
-Sound reaches the womb through the abdominal wall, uterus, and amniotic fluid. Low-frequency sounds below 500 Hz travel most efficiently, which is why bass notes, heartbeats, and the rumble of speech penetrate better than high-pitched sounds. The womb itself is far from quiet — a constant backdrop of maternal heartbeat, rushing blood, and digestive sounds creates roughly 70-80 decibels of ambient noise, similar to the volume of a vacuum cleaner.
+## 💡 Yesterday's Q&A Answer
+Yesterday we asked about the glucose screening test. Here's what you need to know:
 
-Research has revealed just how much babies learn through sound before birth. In a landmark 1980 study, DeCasper and Fifer demonstrated that newborns prefer their mother's voice within hours of birth. Later research found that babies exposed to a specific story read aloud during the last six weeks of pregnancy showed a clear preference for that story after birth. And a University of Helsinki study found that newborns showed enhanced brain responses to music they'd heard in the womb, up to four months later. The prenatal brain doesn't just hear — it learns, remembers, and forms preferences.
+Between weeks 24 and 28, the Mom will take a glucose screening test to check for gestational diabetes. She drinks a very sweet glucose solution, and one hour later blood is drawn to measure glucose levels. No fasting is required. If the result is below the threshold, she passes and no further testing is needed.
+
+About 15-25% of women have elevated results on this first test — but that doesn't mean gestational diabetes. A more detailed three-hour test with fasting and multiple blood draws confirms or rules it out. Gestational diabetes affects about 6-9% of pregnancies and is very manageable, usually through dietary changes and monitoring. It typically resolves after delivery. Think of it as useful information, not bad news.
 
 ## 🤰 What Mom Might Be Feeling
-As the second trimester wraps up, the Mom might feel the baby respond to sounds — a kick when a door slams, movement when music plays, or increased activity when someone speaks near the belly. She might notice increased vaginal discharge, which is normal and helps prevent infection. Her skin may be changing too — a dark line down the center of the belly (linea nigra) or darker patches on the face (melasma) are caused by increased melanin production and usually fade after delivery.
+With the third trimester just days away, the Mom might be experiencing a complex mix of excitement about the final stretch, anxiety about labor, and the physical reality that the heaviest weeks are still ahead. Sleeping has become a multi-pillow project. Heartburn may be intensifying as the uterus pushes the stomach upward. And she might feel the baby hiccupping — a rhythmic tapping in the belly that can last 5-10 minutes, a sign that the diaphragm is practicing contractions.
 
 ## 🍽️ Nutrition Tip
-Your baby's sophisticated hearing requires proper nerve function, which depends on B vitamins — particularly B12 and folate. A B-vitamin powerhouse meal: scrambled eggs with spinach and feta on whole wheat toast. Two eggs provide more than the daily B12 requirement, and a cup of spinach delivers about 260 mcg of folate.
+Vitamin A is crucial for retinal development — your baby literally needs it to build the eyes that will see you for the first time. The safest sources during pregnancy are beta-carotene-rich foods, since the body converts beta-carotene to vitamin A as needed with no risk of toxicity: sweet potatoes, carrots, butternut squash, cantaloupe, mangoes, and dark leafy greens. One medium sweet potato provides over 400% of the daily requirement. Avoid excessive preformed vitamin A (retinol) from supplements or liver.
 
-## 🤔 Question of the Day
-What is the glucose screening test, and why is it done around weeks 24-28? Should we be worried about it? Answer coming Thursday!
+## 🧠 Mental Health Check-In
+The third trimester starts in just a few days, and you might be feeling emotions nobody warned you about. Excitement, sure — but also worry about whether you'll be a good father, financial stress, a quiet fear that your relationship will change, maybe even some resentment about freedoms you're about to lose, followed by guilt for feeling that resentment.
+
+All of this is normal. Every feeling in that list is experienced by the majority of first-time fathers. What helps: talk about it — with the Mom, with a friend who's already a dad, with a therapist. The feelings that stay bottled up tend to grow; the ones you name and share tend to shrink. You don't need to have everything figured out by the time the baby arrives. You just need to be willing to show up, learn, and try.
+
+## 💕 Intimacy Note
+As the third trimester approaches, physical intimacy may require some adaptation. The growing belly makes certain positions impractical, and the Mom may feel less spontaneous due to fatigue or discomfort. What matters most is maintaining the conversation — asking what feels good and being genuinely interested in the answer. Side-lying positions tend to work well as the belly grows. But intimacy isn't only about sex. A long hug, a back massage, holding hands on a walk — these small acts of closeness sustain the relationship through the physical challenges of late pregnancy.
 
 ## 💪 Exercise & Movement
-Turn stretching into a moment of connection. Put on some calm music and stretch together: seated side stretches, gentle spinal twists, wall push-ups for arm strength, and calf raises for circulation. Your baby is listening and may move along with the music.
+A 10-minute hip-opening yoga sequence is excellent preparation for labor. Wide-legged forward folds, low lunges with the back knee supported, modified pigeon pose with a pillow under the hip, and a deep garland squat all increase flexibility in the hips, groin, and pelvic floor. Move gently and breathe through each position.
 
 ## 💡 Tip for Dad
-Your voice matters more than you might think. Research shows babies recognize their father's voice at birth — but only if they've heard it regularly during pregnancy. Make it a daily habit: talk to the belly. It can feel awkward at first. Some dads read articles, some narrate their day, some just say "Hey, it's your Abba." The content doesn't matter — the frequency does. Your baby's brain is wiring itself to find comfort in your voice.
+Before the third trimester begins, write a short note to "Third-Trimester You." Include what you're feeling right now, what you're most looking forward to, and what kind of father you want to be. Seal it and open it in week 36. You'll be amazed at how much you've grown in just 10 weeks.
 
 ## 💬 Conversation Starter
-"Our baby can distinguish our voices from strangers' voices right now. If you could say one sentence to the baby and know they'd understand every word, what would it be?"
+"We're about to enter the third trimester. On a scale of 1 to 10, how ready do you feel — physically, emotionally, and practically? What would move each number up by one point?"

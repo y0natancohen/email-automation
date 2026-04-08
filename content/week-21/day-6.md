@@ -1,37 +1,37 @@
 ---
-subject: "Week 21, Day 6 — Shabbat Shalom & Starting the Nursery Conversation 🕯️"
+subject: "Week 21, Day 7 — Rest, Reflect & a Peek at Week 22 🔮"
 week: 21
-day: 6
+day: 7
 ---
 
-# Week 21, Day 6
+# Week 21, Day 7
 
 ## 👶 Baby Development
-As the week wraps up, your baby's nervous system is maturing rapidly. Nerve connections are multiplying, allowing more refined movements and better sensory processing. The skin is still developing layers, and the waxy vernix caseosa now covers it — nature's moisturizer and protective barrier against constant amniotic fluid exposure.
-
-## 🎉 Fun Fact
-The vernix caseosa covering your baby is made of dead skin cells, oils from the baby's glands, and water. It sounds unglamorous, but it's remarkably functional — it waterproofs the skin, has antimicrobial properties, and even helps the baby slide through the birth canal. Some hospitals now recommend delaying the first bath to let the vernix absorb into the newborn's skin.
+As you close out Week 21, take a moment to appreciate how far you've come. Your baby went from a tiny blob on an ultrasound screen to a 10.5-inch human with eyebrows, taste preferences, and coordinated movements. The bone marrow is producing blood cells, the digestive system is practicing, and your baby is already forming connections with the world through sound and taste.
 
 ## 🤰 What Mom Might Be Feeling
-The Mom's body has likely shifted into full pregnancy mode. Clothes that fit last week might feel snug this week — maternity wear accommodates not just the belly but widening hips, a fuller chest, and general expansion. If she hasn't fully transitioned to maternity clothes, now is usually the time. Comfort matters. She might also notice increased vaginal discharge — as long as it's clear or white and odorless, it's normal.
+Saturdays are for rest, and the Mom deserves it. Her body is working around the clock — even while she sleeps, her heart is pumping extra blood, her body is producing amniotic fluid, and her uterus is expanding. She might feel the need to nap today, and that should be fully encouraged. Some women also feel emotional on rest days — without the distraction of routine, feelings about the pregnancy and the future can bubble up. Make space for those conversations.
 
 ## 🍽️ Nutrition Tip
-Salmon is one of the best foods for pregnancy, rich in omega-3 DHA that's critical for your baby's brain and eye development. A simple Shabbat dinner idea: baked salmon with lemon and dill, roasted sweet potatoes for beta-carotene and fiber, and a green salad. Nourishing the whole family around the table, including the newest member.
+A lazy Shabbat snack board covers all the bases without any cooking: hummus, whole wheat pita, sliced cucumbers, cherry tomatoes, olives, labneh, hard-boiled eggs, and fresh fruit. Protein, healthy fats, carbs, and vitamins — perfect for a slow day.
 
 ## 💪 Exercise & Movement
-A gentle Friday afternoon walk can help the Mom unwind before Shabbat. Focus on a slower pace than usual — this isn't about exercise, it's about decompression. Walk somewhere pleasant and breathe deeply. If walking is uncomfortable, gentle stretching at home for ten minutes works beautifully too.
+Today is rest day. If the Mom feels like moving, gentle stretching or a slow neighborhood stroll is plenty. Pregnancy is a marathon, not a sprint, and rest days are when the body does its most important repair work.
 
 ## 💡 Tip for Dad
-You don't need the nursery done yet, but Friday evening is a nice time to start dreaming about it together. Browse some ideas — not to buy anything, just to discover your shared style. Remember: a baby needs far less than the baby industry wants you to believe. A safe sleep space, a changing area, and a comfortable feeding spot cover the essentials.
+Use some quiet time today to reflect on your own readiness. Not in a panicky way — just honestly. What excites you most? What scares you? What do you want to learn more about? Journaling, even a few bullet points in your phone notes, can help organize your thoughts. Some dads find that writing a letter to their unborn baby helps them process the emotions of becoming a parent.
 
 ## 💬 Conversation Starter
-"If we could give our baby one trait from each of us, what would you pick?"
+"What's one thing about this past week — pregnancy-related or not — that made you happy?"
 
-## 💰 Financial Tip
-Start a simple baby budget spreadsheet this weekend. Categories to consider: medical costs not covered by insurance, nursery setup, baby gear, clothing, diapers and supplies, and childcare. You don't need exact numbers yet — just getting the categories down helps you see the full picture. The biggest financial impact isn't the stuff — it's the income change if one partner reduces work hours.
+## 🎉 Fun Fact
+By the end of Week 21, your baby has been alive for about 133 days since conception. In that time, they've gone from a single cell to a complex organism with over a trillion cells, each one knowing exactly what to become.
 
-## 🧘 Mindfulness Moment
-Before lighting Shabbat candles or starting your Friday evening routine, take 60 seconds together. Stand facing each other, hold hands, close your eyes, and take five slow breaths. On each exhale, let go of one thing from the week. After five breaths, open your eyes. You're entering Shabbat as a family of three now.
+## 🔮 After-Birth Preview: Skin-to-Skin Contact
+One of the most powerful things you'll do after birth is skin-to-skin contact. The baby is placed directly on a parent's bare chest, and the effects are remarkable: it regulates heart rate, breathing, temperature, and blood sugar, and promotes bonding and breastfeeding. The key part — it's not just for moms. Skin-to-skin with dad is equally beneficial, and many hospitals now encourage fathers to do it immediately if the mother is in recovery. Think of this as something you'll actively participate in, not just witness.
 
-## 🕯️ Shabbat Activity
-Add a personal blessing after the traditional ones this Shabbat. Take turns sharing one thing you're grateful for about the pregnancy and one intention for the coming week. It can be as simple as "I'm grateful the baby is healthy" and "This week I want to make sure we take a walk together every evening." Making space for gratitude keeps you both grounded.
+## 🙏 Rest & Gratitude
+You're 21 weeks in — more than halfway. Your baby is healthy and growing. You and your partner are navigating this together. Not everything has to be perfect or figured out. You're doing this, one day at a time, and that's enough.
+
+## 🔭 Next Week Preview
+Week 22 brings exciting changes: your baby will be about the size of a papaya (around 11 inches, 15 ounces) and will start looking like a miniature newborn. Lips and eyelids become more distinct, the touch sense develops rapidly, and your baby's grip will be strong enough to grab the umbilical cord. We'll also talk about changing body image, preparing for the glucose screening test, and how to start thinking about birth preferences.

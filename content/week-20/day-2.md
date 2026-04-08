@@ -1,31 +1,34 @@
 ---
-subject: "Week 20, Day 2 — Baby Can Hear You Now — Talk, Sing, Read! 🗣️"
+subject: "Week 20, Day 3 — Skin Is Thickening: Baby's Building Layers 🧱"
 week: 20
-day: 2
+day: 3
 ---
 
-# Week 20, Day 2
-
-## 🎉 Fun Fact
-Researchers at the University of Helsinki found that babies regularly exposed to a specific melody in the womb showed neural recognition when the same melody was played after birth — even months later. Babies who weren't exposed showed no such response. Your baby is forming musical memories right now.
+# Week 20, Day 3
 
 ## 👶 Baby Development
-Your baby's hearing is now developed enough to pick up sounds from outside the womb — your voice, music, even the dog barking. The auditory cortex is processing these sounds and building recognition patterns, which is why newborns can distinguish their parents' voices from a stranger's within hours of birth. That recognition starts here, at 20 weeks. Your baby is also practicing facial expressions and may smile or frown in response to different stimuli.
+Your baby's skin is going through a transformation. Until now it's been thin and almost translucent — blood vessels visible right through it. Now additional layers are forming, making it thicker and more opaque. The vernix caseosa continues to protect this developing skin from the amniotic fluid, while fat accumulates underneath, smoothing out wrinkles and giving your baby a rounder appearance. Eventually the skin will have four distinct layers, complete with a unique pattern of fingerprint ridges and pigmentation.
+
+## 🎉 Fun Fact
+Your baby's skin already contains melanin, but the full amount isn't produced yet. Most babies are born with lighter skin than they'll eventually have, and skin tone continues to change over the first year. Some babies arrive with blue or gray eyes that later darken, and hair color can shift too. The person your baby will eventually look like is still a work in progress.
 
 ## 🤰 What Mom Might Be Feeling
-The Mom is likely feeling definite, unmistakable kicks now. She might start to notice patterns — active after meals, quiet in the mornings, a full dance routine at 11 PM. These patterns are the first glimpse of your baby's personality. If the anatomy scan has already happened, there may be a deep sense of relief knowing everything looks healthy. Physically, some shortness of breath is common as the uterus pushes up on the diaphragm.
+The Mom's skin is going through changes of its own. Stretch marks may be appearing on the belly, breasts, and thighs. The linea nigra is probably clearly visible now, and some women experience melasma — dark patches on the face triggered by sun exposure combined with hormonal changes. Sunscreen and a hat are the best prevention. On the brighter side, she might notice her nails are growing faster and stronger than usual.
 
-## 🤔 Q&A: Yesterday's Answer
-**What is meconium?** Meconium is your baby's first bowel movement, and it's nothing like what comes later. It's a dark, greenish-black, tar-like substance made up of everything your baby has been swallowing in the womb: amniotic fluid, mucus, skin cells, lanugo hair, and bile. It accumulates throughout pregnancy and is typically passed in the first 24-48 hours after birth. If passed before birth, it can sometimes be inhaled into the lungs (meconium aspiration syndrome), which is more common in overdue babies. For now, at 20 weeks, meconium is quietly accumulating while your baby happily processes amniotic fluid.
+## 🛏️ Sleep Tip
+At 20 weeks, the Mom should start consistently sleeping on her side. The optimal setup: left side preferred, a firm pillow under the belly to prevent it from pulling forward, one between the knees for hip alignment, and one behind the back to prevent unconscious rolling. If she's been resisting the pregnancy pillow, now is the time — better sleep pays dividends in energy and mood.
+
+## 💼 Workplace Tip
+With the pregnancy now very visible, the Mom may be fielding unsolicited advice and personal questions at work. A simple "Thanks, I'll keep that in mind" ends most unwanted advice politely. For overly personal questions, "That's personal, but thanks for your interest" works well. She gets to decide what she shares and with whom.
 
 ## 🍽️ Nutrition Tip
-Potassium helps regulate blood pressure and fluid balance — both especially important at 20 weeks. Bananas are the obvious source (fitting for banana week), but sweet potatoes, spinach, beans, yogurt, and coconut water are all excellent options too. A quick potassium boost: a banana with trail mix and a cup of coconut water. Simple, portable, and delivers over 1,000 mg of potassium.
+A one-pan Mediterranean chicken is a great weeknight option: place chicken breasts on a sheet pan with cherry tomatoes, artichoke hearts, olives, and sliced zucchini. Season with oregano, garlic, lemon zest, salt, pepper, and a drizzle of olive oil. Bake at 200 C for 25 minutes. It delivers lean protein, vitamin C, fiber, and healthy fats, and takes about five minutes to prep.
 
 ## 💪 Exercise & Movement
-A gentle prenatal yoga flow works well today. Start in cat-cow for a minute, move to a modified downward dog with knees bent, then step into warrior I and warrior II (five breaths each side), followed by tree pose using a wall for balance. Finish in child's pose with knees wide for a minute. The whole sequence takes about ten minutes and builds strength, balance, and calm.
+The supported deep squat is one of the most functional labor-preparation exercises. Hold onto a sturdy chair or door frame, squat down as low as comfortable with feet flat on the floor (place a rolled towel under the heels if they lift). Hold for 30 seconds with deep breaths, then come back up. Repeat three to five times. This position opens the hips and strengthens the legs beautifully.
 
 ## 💡 Tip for Dad
-Now that your baby can hear you, establish a daily voice routine. Pick a consistent time — maybe when you get home or right before bed — and spend a few minutes talking directly to the bump. Tell the baby about your day, what you had for lunch, anything at all. The content doesn't matter; the consistency does. Your voice is becoming part of your baby's world.
+If the anatomy scan showed everything is healthy — which it does in the vast majority of cases — take a moment to let that relief truly land. You might have been carrying more worry than you realized. And if the scan revealed something that needs follow-up, remember: doctors mention things because they want to monitor them, not because disaster is imminent. Most findings are manageable. Ask questions, get information, and trust your medical team.
 
 ## 💬 Conversation Starter
-Now that you're halfway, make a list of things you want to accomplish before the baby arrives. Not just nursery and gear — think trips, experiences, couple goals, personal goals. You have about 20 weeks. What's on the list?
+Now that you can feel the baby move, does it change how you think about pregnancy? For the Mom, how does it feel emotionally to have these constant reminders of the baby's presence? And what's it like to see her react to those kicks?

@@ -1,37 +1,37 @@
 ---
-subject: "Week 23, Day 5 — Building Your Support Village 🏘️"
+subject: "Week 23, Day 6 — Shabbat Shalom, Dreaming Baby 🕯️"
 week: 23
-day: 5
+day: 6
 ---
 
-# Week 23, Day 5
+# Week 23, Day 6
 
 ## 👶 Baby Development
-Your baby is continuing to build neural connections at an incredible pace. The brain is the fastest-growing organ right now, developing the connections needed for all the senses — hearing, touch, taste, and light sensitivity are all active, even with the eyes still closed. The startle reflex is getting stronger too, and the Mom might feel a sudden jerk in the belly after a loud noise. The lungs continue their gradual development, building toward the day they'll need to inflate and exchange oxygen.
+As Shabbat arrives, your one-pound baby is nestled in the womb, cycling between alert periods and rest. During waking moments, your baby is moving, stretching, and responding to sounds. During sleep, the brain is consolidating new neural connections. The cycle of stimulus and rest is essential — it's how the brain grows efficiently. Your baby's proportions are slowly shifting too; the head is becoming more proportionate as the body catches up.
 
 ## 🎉 Fun Fact
-Your baby's hearing is selective — they respond most strongly to their parents' voices, the sounds they hear most frequently. After birth, newborns prefer their parents' voices over strangers' and can even distinguish their native language from a foreign one. All that talking to the belly is literally wiring your baby's brain for your family's sounds.
+Babies in the womb have been observed smiling during sleep states. Using 4D ultrasound, researchers have captured what appears to be genuine smiles — not just random facial movements. While we can't confirm they're smiling because they're "happy," the fact that facial muscles are practicing emotional expressions is incredibly endearing. Your baby might be smiling right now.
 
 ## 🤰 What Mom Might Be Feeling
-The Mom might be experiencing early "nesting instincts" — a sudden urge to organize, clean, and prepare the home. While nesting peaks in the third trimester, some women start early. She might want to reorganize closets, deep clean, or start sorting through baby items. This is healthy and productive, as long as she's not overdoing it physically. Help her channel the energy without exhausting herself — heavy lifting, climbing, and harsh chemicals should be avoided.
+End-of-week tiredness might be hitting the Mom harder now. The combination of carrying extra weight, disrupted sleep, and the ongoing physical demands of pregnancy can make Fridays feel like a marathon finish line. She might also notice increased pelvic pressure as the uterus gets heavier. A warm (not hot) bath can relax tense muscles, and a maternity support belt can help take pressure off the pelvis during the day.
 
 ## 🍽️ Nutrition Tip
-Both the Mom and baby benefit from vitamin C, which supports immune function and iron absorption. A simple tip: add a colorful bell pepper to any meal. One red bell pepper has more vitamin C than an orange. Slice it into strips for snacking with hummus, dice it into a stir-fry, or roast it as a side dish. Easy, crunchy, and nutritious.
+A Shabbat one-pot chicken and rice: layer diced onion, cubed chicken, rinsed rice, diced carrots and sweet potato, a can of chickpeas, and season with salt, turmeric, cumin, and paprika. Add chicken broth, bring to a boil, reduce heat, cover, and simmer 25 minutes until the rice is fluffy. This complete meal delivers protein, complex carbs, fiber, and multiple vitamins. Make extra — it's even better the next day.
 
 ## 💪 Exercise & Movement
-Gentle, flowing movements inspired by tai chi are wonderful at this stage. Stand with feet shoulder-width apart, slowly raise and lower the arms while breathing deeply, then step side to side with arms flowing naturally. Continue for five to ten minutes. These deliberate movements improve balance, reduce stress, and increase body awareness — all increasingly important as the belly grows.
+A gentle pre-Shabbat stretch sequence to transition from the busy week: child's pose with wide knees for two minutes, cat-cow stretches for a minute, seated side stretches with a gentle reach overhead (30 seconds each side), gentle neck rolls, seated butterfly stretch for two minutes, and finish with deep breathing — four counts in, six counts out — for two minutes.
 
 ## 💡 Tip for Dad
-Start building your "village." Identify the people who will be your support system: who will bring meals and help with practical tasks, who you can call at 2 AM when you're overwhelmed, which experts you'll rely on (pediatrician, lactation consultant), and which friends understand what you're going through. Don't wait until after the birth to have these conversations. Let people know you'll need help — and accept it gracefully when it's offered.
+Stock the Shabbat pantry. Keep a running list of staples you can restock automatically each week — challah, grape juice or wine, candles, and the ingredients for the Mom's favorite Shabbat meal. Eliminating the "what do we need?" stress on Friday makes the whole evening smoother. Bonus: pick up flowers for the table.
 
 ## 💬 Conversation Starter
-"Who are the five people we'll lean on most when the baby comes? Let's make sure we're nurturing those relationships now."
+"What's one thing that happened this week that made you feel like we're going to be really good at this parenting thing?"
 
-## 🤔 Q&A: Yesterday's Answer
-**What is the glucose screening test?** Between weeks 24-28, the Mom will be offered a glucose screening test. She drinks a sweet glucose solution, and after one hour blood is drawn to measure blood sugar levels. If the result is above the threshold, a follow-up three-hour test confirms the diagnosis. Gestational diabetes affects about 5-10% of pregnancies, and with proper management (usually diet and exercise, sometimes medication), outcomes are excellent for both mom and baby. The condition typically resolves after birth. Your role: go to the test if you can — the wait is boring, and company helps.
+## 💰 Health Insurance Check
+Now is a great time to review your health insurance coverage for the birth. Check whether your kupat cholim covers the hospital where you plan to deliver, what the standard maternity package includes versus what costs extra, and whether services like lactation consultants or a doula are covered. Understanding the financial side now prevents surprises later.
 
-## 🧠 Mental Health Check-In
-Up to 10-15% of new fathers experience depression, and anxiety rates may be even higher. The triggers are real: financial pressure, fear of inadequacy, relationship changes, and feeling sidelined. You don't need to be in crisis to check in with yourself. Ask honestly: Am I sleeping okay? Am I eating well? Do I feel connected to my partner? Am I looking forward to things? If any answers concern you, talking to someone is a sign of strength.
+## 🧘 Mindfulness Moment
+Tonight, as the candles are lit, try this visualization together: close your eyes and imagine your baby inside the womb — warm, safe, floating gently. Imagine their tiny fingers, their closed eyes, their peaceful face. Imagine whispering: "We're here. We love you. We can't wait to meet you." Sit with that image for a full minute.
 
-## 💕 Intimacy & Connection
-Try the "six-second kiss" tonight — relationship expert Dr. John Gottman suggests that a kiss lasting at least six seconds creates a moment of genuine connection. Not a peck, not a make-out session — just six meaningful seconds of presence. Couples who do this regularly report feeling significantly more connected. No agenda, no pressure. Just presence.
+## 🕯️ Shabbat Activity
+Each of you write a short letter to the baby. It doesn't have to be poetic — just genuine. Tell them about this week, what you're feeling, what the world is like right now. Include a detail about today. Seal the letters in an envelope with today's date. You'll give them to your child someday, and these handwritten snapshots will be among your most treasured keepsakes.

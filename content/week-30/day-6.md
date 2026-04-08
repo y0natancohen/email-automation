@@ -1,46 +1,43 @@
 ---
-subject: "Week 30, Day 6 — Winding Down for Shabbat 🕯️"
+subject: "Week 30, Day 7 — Only 10 Weeks to Go! 🎯"
 week: 30
-day: 6
+day: 7
 ---
 
-# Week 30, Day 6
+# Week 30, Day 7
 
 ## 👶 Baby Development
-Your baby's brain growth this week has been extraordinary. The cerebral cortex — the part responsible for thinking, remembering, and feeling — is developing more and more gyri (wrinkles), dramatically increasing its processing capacity. Your baby can now process information from multiple senses simultaneously: feeling the warm amniotic fluid, hearing your voices, and detecting changes in light. The brain is also developing the ability to regulate breathing and body temperature — essential skills for survival outside the womb.
+As week 30 wraps up, your baby is thriving at about 3 pounds. The major development this week — those brain wrinkles — represents an incredible leap in cognitive potential. Every day, billions of neural connections are forming, laying the groundwork for everything from recognizing faces to learning language. The lungs continue to mature, the bones continue to strengthen, and the body continues to store fat. Your baby is in a phase of rapid preparation for life on the outside.
 
 ## 🤰 What Mom Might Be Feeling
-By Friday, your partner might feel like she's been on her feet for a year. Third-trimester fatigue compounds throughout the week, and by Shabbat, rest becomes genuinely necessary, not just nice. She may also notice that her hands feel stiff or swollen in the morning (carpal tunnel symptoms) and that her feet have gone up half a shoe size (thanks to relaxin hormone and fluid retention — and yes, this can be permanent for some women!).
+Ten weeks to go. Your partner might be counting down, especially on days when physical discomfort is high. She might feel enormous (even though she'll get bigger!), tired, and emotionally ready to be "done with pregnancy" — while simultaneously not feeling ready at all. This is the duality of late pregnancy. Validate both feelings when she expresses them. "I can't wait to not be pregnant anymore" and "I'm scared about the birth" can absolutely coexist.
 
 ## 🍽️ Nutrition Tip
-**Comforting Shabbat Soup: Butternut Squash Soup**
-- 1 large butternut squash, peeled and cubed
-- 1 onion, diced
-- 2 cloves garlic, minced
-- 4 cups chicken or vegetable broth
-- 1/2 teaspoon cinnamon, 1/2 teaspoon nutmeg
-- Salt and pepper
-- Drizzle of cream or coconut milk to finish
+Weekend meal prep is a great habit for the last stretch of pregnancy. Spend an hour or two today preparing:
+- A big batch of soup or stew that can be portioned and frozen
+- Pre-washed and cut vegetables for quick snacking
+- Hard-boiled eggs (a protein-packed grab-and-go snack)
+- A large salad base that can be customized throughout the week
 
-Saut onion and garlic, add squash and broth, simmer until soft (20-25 minutes), blend until silky. The cinnamon and nutmeg give it a warm, comforting flavor. Serve with challah — because Shabbat. This soup is rich in vitamin A, vitamin C, and potassium.
+Having healthy food ready to eat removes the "too tired to cook, let's get chips" situation that hits at 8 PM.
 
 ## 💪 Exercise & Movement
-Today, the best exercise is rest. Seriously. Your partner's body is working incredibly hard, and if she can spend part of Friday afternoon with her feet up, that's exactly what she should do. If she feels restless, gentle stretching or a few minutes of prenatal yoga is fine. But there's no guilt in resting. Growing a baby is a full-body endurance event.
+A gentle weekend walk is the perfect activity today. If you can walk somewhere with a nice view or some nature, even better. Fresh air and sunlight improve mood, and the gentle movement helps with circulation, digestion, and sleep. Hold hands. Talk. Enjoy the quiet before the beautiful storm of parenthood.
 
 ## 💡 Tip for Dad
-Make Shabbat prep easy this week. If cooking, choose something simple (like the soup above — it's one pot!). If not cooking, arrange delivery or takeout without your partner having to think about it. Set the table, light the candles, create a peaceful atmosphere. These small acts of care are how you build a home together. And right now, that home is about to get a lot more lively.
+Start thinking about your support network. When the baby arrives, you'll need help. This isn't a sign of weakness — it's wisdom. Who can bring meals? Who can help with laundry or cleaning? Who can visit to hold the baby while you both nap? Who is good in a crisis? It might feel early, but lining up your village now means you won't be too proud or too tired to ask later.
 
 ## 💬 Conversation Starter
-"Let's play a game: each of us guess — boy or girl, hair color, eye color, who the baby will look like more, what time of day they'll be born. Write it down and seal it. We'll open our predictions after the birth."
+"What's one thing you want to make sure we do together in these last 10 weeks — just the two of us?"
 
 ## 🎉 Fun Fact
-Your baby weighs about 3 pounds now — roughly the same as a large bag of flour. But unlike a bag of flour, your baby can kick, roll, hiccup, suck their thumb, dream, and respond to your voice. When you think about the journey from a microscopic fertilized egg to a 3-pound, fully-formed little person in just 30 weeks, it's nothing short of miraculous.
+At 30 weeks, your baby has roughly the same sleep patterns as a newborn — sleeping about 90% of the time! During the wakeful periods, your baby is incredibly active: practicing breathing, sucking, gripping, kicking, and stretching. And during REM sleep (which makes up a large portion of sleep time), the brain is consolidating and processing all the sensory information from the day. Your baby is busy even when they're resting!
 
-## 💰 Financial Tip
-This is a good time to review your health insurance coverage for the birth and postpartum period. In Israel, the birth itself is covered by the national health insurance system, but there may be options for upgraded rooms, specific hospitals, or additional services that require supplementary insurance (Biituach Mashlim). Check what your current plan covers, whether you need to pre-register at the hospital, and whether there are any out-of-pocket costs to expect. Better to know now than to be surprised later.
+## 🔮 After-Birth Preview: Feeding in the First Days
+Whether your partner plans to breastfeed, formula feed, or combination feed, the first few days are a learning curve. If breastfeeding, the first milk (colostrum) is thick, golden, and comes in tiny amounts — but it's packed with antibodies and exactly what your baby needs. Mature milk usually "comes in" around days 3-5 after birth. This transition can be emotional and physical (hello, engorgement). If formula feeding, the hospital will have supplies, but bring your preferred brand if you have one. Either way, your role is to support your partner, fetch things she needs, and make sure she's eating and drinking while she feeds the baby. A partner who keeps water, snacks, and an extra pillow within arm's reach during feedings is worth their weight in gold.
 
-## 🧘 Mindfulness Moment
-As Shabbat begins, practice "arrival." This means consciously transitioning from the busyness of the week to the restfulness of Shabbat. After lighting candles, each of you take three slow breaths. With each exhale, mentally let go of something from the week: a work worry, a to-do item, a source of stress. By the third breath, try to arrive fully in the present moment — here, with each other, with your baby growing between you. This practice of arrival is something you can carry into parenthood: arriving home, arriving at a meal, arriving at bedtime. Being present wherever you are.
+## 🙏 Rest & Gratitude
+Thirty weeks. You've been on this journey together for seven and a half months. The baby you were imagining at the beginning is now a real, kicking, hiccuping, dreaming little person. There are challenges ahead — birth, sleepless nights, learning everything from scratch — but there's also unimaginable joy. Rest today. Recharge. The best is yet to come.
 
-## 🕯️ Shabbat Activity
-**Baby Playlist Creation:** Put on some music and create a playlist for your baby. Include songs that are meaningful to your relationship, songs from your own childhoods, and songs you imagine singing as lullabies. This playlist can be playing during labor (if that appeals to your partner), in the nursery, or during those late-night feedings. Music is one of the first things babies respond to, and the songs you choose now may become the soundtrack of your child's earliest memories.
+## 📅 Next Week Preview
+Week 31 is big: all five senses are now fully developed! Your baby can see, hear, smell, taste, and feel — processing information from all senses simultaneously. Fingernails are fully grown, and rapid eye movement sleep is increasing. We'll also start getting more specific about hospital bag contents and birth preparation. See you Sunday!

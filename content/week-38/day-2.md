@@ -1,60 +1,36 @@
 ---
-subject: "Week 38, Day 2 — Past the Due Date? Here's What Happens 📅"
+subject: "Week 38, Day 3 — Cord Blood, Last-Minute Prep & Sleep Survival 🩸"
 week: 38
-day: 2
+day: 3
 ---
 
-# Week 38, Day 2
-
-## 👶 Baby Development
-Baby is gaining about an ounce per day — mostly fat. This isn't just cosmetic; the fat is critical for temperature regulation, energy reserves, and brain development (the brain is about 60% fat). The myelin coating on baby's nerves is thickening, which speeds up signal transmission. This myelination process continues well into early childhood but is accelerating right now.
-
-## 🤰 What Mom Might Be Feeling
-Your partner might notice a change in the quality of her Braxton Hicks — they might feel stronger, more uncomfortable, and occasionally rhythmic before fading away. The cervix may be softening and thinning (effacement), which the care provider can check at appointments. She might also feel an emotional surge — alternating between feeling powerfully ready and deeply vulnerable. Both states are preparing her for the intensity of birth and motherhood.
-
-## 🍽️ Nutrition Tip
-Raspberry leaf tea has been traditionally used in late pregnancy to tone the uterine muscles. While scientific evidence is mixed, many midwives recommend starting 1-2 cups per day from 36 weeks onward. It's not believed to induce labor, but may help the uterus contract more efficiently during labor. If your partner enjoys it, it's a pleasant, caffeine-free option. Always check with the care provider first.
-
-## 💪 Exercise & Movement
-**Exercise Focus: Labor positions refresher.** Run through these one more time:
-- **Standing and swaying** (leaning on you for support) — great for early labor
-- **Hands and knees** — relieves back labor
-- **Side-lying** — for resting between contractions
-- **Squatting** (supported) — opens the pelvis during pushing
-- **Sitting on birth ball** — comfortable for active labor
-
-Try each position for 2-3 minutes. Talk about which ones feel most comfortable for your partner. The positions she gravitates toward now are likely what she'll want during labor.
-
-## 💡 Tip for Dad
-If your partner hasn't delivered by the due date, don't panic. Here's what to know:
-
-**Due dates aren't deadlines.** Only about 5% of babies arrive on their exact due date. Most first-time babies arrive between 39-41 weeks. Going past the due date doesn't mean something is wrong.
-
-**What happens if you go overdue:**
-- **40 weeks:** Your care provider will likely schedule more frequent monitoring (non-stress tests to check baby's heart rate and activity)
-- **41 weeks:** Discussion about induction will begin. The care provider will assess the cervix using the Bishop score (readiness for induction)
-- **41+ weeks:** Most providers recommend induction by 41-42 weeks, as risks of placental aging increase
-
-**Induction methods:**
-- **Membrane sweeping:** Care provider sweeps a finger around the cervix to release prostaglandins. Done in the office. Uncomfortable but quick.
-- **Cervical ripening agents:** Medication (like Cervidil or Cytotec) placed near the cervix to soften it
-- **Pitocin (oxytocin):** IV medication that stimulates contractions. Dosage is gradually increased until regular contractions establish
-- **Artificial rupture of membranes:** Breaking the water to encourage labor
-
-**Natural methods people try (evidence varies):**
-- Walking, stair climbing, bouncing on a birth ball
-- Eating dates, spicy food, pineapple
-- Intimacy (prostaglandins in semen, oxytocin from orgasm)
-- Nipple stimulation (can trigger oxytocin release)
-- Acupressure
-
-**Your role:** Be patient. Don't ask "any signs yet?" every hour. Don't let well-meaning family pressure you with "is the baby here yet?" texts. Shield your partner from that noise.
-
-## 💬 Conversation Starter
-"If we go past our due date, how do we want to handle the 'Is the baby here yet?' messages from everyone?" Setting up a strategy now (maybe a group text update once a day, or a code word that means "stop asking") saves a lot of irritation.
+# Week 38, Day 3
 
 ## 🎉 Fun Fact
-The average first-time mom delivers at 40 weeks and 5 days — almost a week past the "due date." The due date is really more of a "due window." Babies come when they're ready, and first babies tend to take a little extra time getting the memo.
+Vernix — the waxy white coating that's been protecting your baby's skin for months — also has antibacterial properties. Some hospitals now recommend leaving it on the baby for several hours after birth rather than washing it off immediately. It continues to protect the skin and helps with temperature regulation, so if you see that coating on your newborn, it's a good thing.
 
-## 🤔 Yesterday's Answer
-**Going past the due date — covered in today's Tip for Dad above!** The key takeaway: due dates are estimates, going past them is common (especially with first babies), and your care team has clear protocols for monitoring and, if needed, helping things along safely.
+## 👶 Baby Development
+Your baby's nervous system is completing its final refinements. Nerve cells are forming more connections, and the myelin sheath — the insulating layer that speeds up signal transmission — continues to thicken. This process will carry on for years after birth, but the foundation being laid now is critical. Baby's movements might feel different at this stage: more rolling, stretching, and pushing against the walls rather than the kicks and jabs of earlier weeks. Less room, but movements should still be consistent.
+
+## 🤰 What Mom Might Be Feeling
+Cervical checks at weekly appointments might show dilation and effacement — or they might not. Either way is normal. The Mom might feel frustrated by a lack of "progress" or excited to hear she's already a couple of centimeters dilated, but these numbers are snapshots, not predictions. Intense Braxton Hicks that occasionally require pausing and breathing through them are common now. If they become regular, time them.
+
+## 🍽️ Nutrition Tip
+A great make-ahead snack for the hospital bag and early postpartum: banana oat cookies. Mash ripe bananas, mix with rolled oats, flaxseed meal, a bit of coconut oil, cinnamon, and chocolate chips. Drop spoonfuls onto a baking sheet and bake at 350 degrees for about 12 minutes. They freeze beautifully and are perfect for one-handed snacking. The oats and flaxseed are also associated with supporting milk production.
+
+## 💪 Exercise & Movement
+The most important exercise right now: pelvic floor awareness — and not just Kegels. During birth, those muscles need to release and stretch. Practice this: squeeze the pelvic floor, hold for 3 seconds, then consciously soften for 6 seconds. Focus on the release. Learning to let go instead of tighten is surprisingly important for pushing.
+
+## 💡 Tip for Dad
+Cord blood banking is a decision you need to make before delivery — you cannot decide afterward. You have three options. Private banking stores your baby's cord blood for your family's exclusive use, typically costing around $1,500-2,500 upfront plus annual storage fees, though the chance of ever needing it is small. Public donation makes the cord blood available to anyone who needs it, at no cost to you. Or you can skip banking entirely, which is what most families choose.
+
+One thing to discuss with your care team: delayed cord clamping has proven benefits for baby but reduces the amount of blood available for collection. If you're interested in banking, make the call this week and have the kit ready.
+
+## 💬 Conversation Starter
+"What are we going to do about cord blood? And have we finalized our thoughts on delayed cord clamping?" A quick, practical conversation that needs to happen before the big day.
+
+## 🛏️ Sleep Tip
+Start thinking about sleep survival for the first weeks with baby. The golden rule: sleep when the baby sleeps. Beyond that, take shifts — if the Mom is breastfeeding, she can pump a bottle so you can handle a nighttime feed, or she feeds while you do the diaper change and resettling. Try to protect one four-hour block of unbroken sleep for each of you per night. And when someone offers to help, say yes — let them hold the baby while you both nap.
+
+## 💼 Workplace Tip
+If you haven't already, send a heads-up email to your key contacts: "Our baby is due any day. If I'm suddenly unreachable, here's who to contact." Include a backup person for urgent matters and set expectations that you may be off the grid for one to two weeks.

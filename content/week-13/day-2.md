@@ -1,31 +1,34 @@
 ---
-subject: "Week 13, Day 2 — Vocal Cords Are Forming: A Voice in the Making 🎤"
+subject: "Week 13, Day 3 — Your Baby's Jaw Muscles Are Practicing Mouth Movements 😊"
 week: 13
-day: 2
+day: 3
 ---
 
-# Week 13, Day 2
+# Week 13, Day 3
 
-## 🎤 Baby Development
-The larynx (voice box) is developing, and within it, your baby's vocal cords are taking shape. These delicate folds of tissue will eventually produce every sound your child makes — the first cry, the first babble, the first "mama" and "abba," the first laugh. Right now, they're thin ridges of tissue being built with extraordinary precision, and the muscles that control them are wiring up simultaneously. Your baby is also growing rapidly — gaining about 1-2 grams per day.
+## 👶 Baby Development
+Your baby's facial muscles are developing and connecting to the brain, and mouth movements are becoming more active. The jaw muscles are practicing — your baby can squint and make mouth movements, like practice runs for the more complex expressions that will emerge next week. These early movements mean the facial muscles and the nerves that control them are wiring up correctly. Meanwhile, the head is now about one-third of the total body length (down from one-half a few weeks ago), and the body is catching up fast.
 
 ## 🎉 Fun Fact
-The answer to yesterday's fingerprint question: yes, all identical multiples have different fingerprints — always. Even identical quintuplets would each have unique prints. Fingerprint patterns aren't determined solely by DNA — they're influenced by the micro-environment in the womb: exact pressure on each finger, density and position of amniotic fluid, and precise timing of ridge development. DNA provides the blueprint, but the execution is always unique.
+Your baby's intestines are now fully settled inside the abdomen, and they've started producing meconium — the dark, tarry substance that will become your baby's first bowel movement after birth. Meconium is made up of amniotic fluid, mucus, skin cells, bile, and lanugo. It's sterile and odorless, and passing it after birth is a sign that the digestive system is working properly. Fair warning: it's impressively sticky.
 
 ## 🤰 What Mom Might Be Feeling
-Energy! Many women describe the second trimester as feeling like a fog has lifted. The Mom might suddenly want to clean, organize, plan, or exercise — things that felt impossible just a week or two ago. This boost comes partly because the placenta has taken over hormone production, stabilizing the hormonal rollercoaster. Certain first-trimester food aversions may be fading, and her libido may also start to return.
+The Mom's belly is likely becoming more noticeable, especially to her. She might be transitioning into maternity clothes — or at least stretchy waistbands. The transition can feel awkward: she might not feel "pregnant enough" for maternity wear but too big for her regular wardrobe. A few versatile pieces — stretchy leggings, flowy tops, belly bands — can bridge the gap. Cravings in the second trimester tend to be more pleasant than first-trimester aversions.
 
 ## 🍽️ Nutrition Tip
-Now that appetite is returning, it's a good time to focus on balanced meals rather than survival eating. The second trimester requires about 340 extra calories per day — roughly a cup of yogurt with granola and fruit. A simple framework: fill half the plate with vegetables, a quarter with protein, and a quarter with whole grains.
+One-pan roasted chicken thighs with vegetables make for an easy, nutritious dinner with minimal cleanup. Season chicken thighs with paprika, oregano, garlic, olive oil, salt, and pepper, then nestle them on a baking sheet surrounded by broccoli, sweet potato, bell pepper, and zucchini. Roast at 200C for 35-40 minutes. Chicken thighs are richer in iron and zinc than breast meat and stay moist and flavorful.
 
 ## 💪 Exercise & Movement
-A second-trimester strength workout can be done in 20 minutes: goblet squats with a light weight, incline push-ups on a bench, light deadlifts, seated overhead presses, and modified side planks on the knees. These build functional strength for carrying a baby — both in and out of the womb. Always warm up first and stop if anything feels wrong.
-
-## 🏋️ Glute Strength Focus
-Strong glutes support the pelvis, stabilize the lower back, and help carry the increasing weight of the baby. Weak glutes can lead to lower back pain and pelvic instability later in pregnancy. Best exercises: bridges (hold and squeeze at the top), clamshells with a resistance band, step-ups on a low bench, and donkey kicks from all fours. Aim for 2-3 glute-focused sessions per week throughout the second trimester.
+Goddess pose (Utkata Konasana) is a powerful prenatal stretch. Stand with feet wide apart, toes turned out at 45 degrees, and bend the knees deeply, sinking the hips. Bring hands together at chest in prayer position. Hold for 30 seconds, rise, rest, repeat three times. It strengthens the legs, opens the hips, and builds stamina — all useful for labor.
 
 ## 💡 Tip for Dad
-Plan a date night this week. Not a big production — just intentional time together that isn't about the pregnancy. Go to a restaurant, see a movie, take a long walk, cook something new together. You're still a couple, not just parents-in-training. Nurturing your relationship is one of the best things you can do for your future family.
+If the Mom is shopping for maternity clothes, be enthusiastic and supportive. This transition can be emotionally loaded — she might feel like she's "giving up" her normal wardrobe. Genuine, specific compliments go a long way: "that color looks amazing on you" or "you look really comfortable in that." Avoid "you don't even look pregnant yet" — even if well-meant, it can feel dismissive.
 
 ## 💬 Conversation Starter
-What's a hobby or interest you want to continue after the baby arrives? And what's something new you might want to try as a family? Maintaining individual identities within parenthood is important.
+What family traditions — yours or mine — are non-negotiable for raising your kid? And what new traditions should you create that are uniquely yours?
+
+## 😴 Sleep Tip
+As the Mom's belly grows, finding a comfortable sleep position becomes an ongoing project. A configuration worth trying: lie on the left side (optimal for blood flow), pillow between the knees (aligns hips), thin pillow under the belly (supports weight), and optionally one behind the back (prevents rolling). It sounds like a pillow fortress, but many women swear by it.
+
+## 💼 Workplace Pregnancy Tip
+If the Mom has announced at work, she might start getting unsolicited advice from coworkers. A useful boundary phrase: "Thank you for sharing — I'll definitely look into that." It acknowledges without committing. She doesn't owe anyone details about her birth plan, feeding choices, or medical decisions.

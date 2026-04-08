@@ -1,39 +1,37 @@
 ---
-subject: "Week 28, Day 5 — Baby Might Be Getting Into Position 🔄"
+subject: "Week 28, Day 6 — A Well-Earned Rest 🕯️"
 week: 28
-day: 5
+day: 6
 ---
 
-# Week 28, Day 5
+# Week 28, Day 6
 
 ## 👶 Baby Development
-Some babies begin shifting into a head-down position around this time, though many won't settle into their final birth position for several more weeks. There's still room to somersault, flip, and rotate, so don't worry if the baby is currently breech or transverse. Fat layers continue building, preparing for temperature regulation outside the womb.
+Your baby's lungs continue to mature, producing more surfactant while blood vessels develop for that first breath of air. Fat is accumulating steadily under the skin, smoothing out wrinkles and giving your baby that adorable newborn roundness. The skin is transitioning from translucent to more opaque as the fat layers build.
 
 ## 🎉 Fun Fact
-Your baby's adrenal glands are now producing cortisol, which helps the lungs mature. It's a brilliant design: the baby's own body is preparing itself for breathing air. Each day in the womb means more surfactant production, making that first breath easier.
-
-## 🤔 Weekly Q&A — Answer
-Wednesday's question: Is it normal for the baby to have hiccups frequently?
-
-Absolutely normal. Fetal hiccups are caused by the diaphragm contracting as it practices breathing movements. They can happen several times a day and are a sign of healthy development. The Mom will feel them as rhythmic, repetitive tapping — very different from kicks or rolls. They usually last a few minutes and stop on their own.
+Your baby can now blink — and not just open and close the eyes. The eyelids are fully functional, squinting and even furrowing the brow. These facial expressions are reflexes for now, but they're practicing the same expressions that will charm you after birth.
 
 ## 🤰 What Mom Might Be Feeling
-If the Mom is Rh-negative and the baby might be Rh-positive, she may receive a RhoGAM injection around now to prevent complications in future pregnancies. It's a quick, routine step. Beyond that, increased back pain is common at this stage — a maternity support belt can help distribute the weight more evenly.
+By Friday, the Mom might be feeling the cumulative weight of the week. Third-trimester fatigue is different from first trimester — it's more about physical discomfort than hormonal drowsiness. She might feel like she can't get comfortable in any position. Encourage rest without guilt. Growing a human is a full-time job on top of whatever else she's doing.
 
 ## 🍽️ Nutrition Tip
-Protein needs are higher in the third trimester — about 75-100 grams per day. Great sources beyond meat: Greek yogurt (15g per cup), lentils (18g per cup cooked), eggs (6g each), chickpeas (15g per cup), and cottage cheese (14g per half cup). A chickpea salad with an egg on top is an easy way to hit 20+ grams in one meal.
+A warming sweet potato and chickpea stew is perfect for Shabbat: sauté onion and garlic, add curry powder and cumin, then cubed sweet potatoes and chickpeas. Pour in coconut milk and simmer 20-25 minutes. Stir in spinach at the end and serve over rice or with crusty bread. Full of iron, fiber, and vitamin A.
 
 ## 💪 Exercise & Movement
-The pelvic tilt is excellent for back pain relief. On hands and knees, inhale and let the belly drop slightly, then exhale, tuck the pelvis under and round the back. Repeat 10 times slowly. This gently mobilizes the spine, strengthens supporting core muscles, and can help encourage the baby into an optimal position.
+Today, focus on relaxation. A warm (not hot) bath with Epsom salts can work wonders for aching muscles and swollen feet — the magnesium absorbs through the skin and helps with muscle cramps. Keep the water comfortable and limit bath time to about 20 minutes.
 
-## 🧠 Mental Health Check-In
-Let's talk about "imposter syndrome" as a parent-to-be. That voice that says "Am I really ready for this?" — almost every first-time parent hears it. The fact that you're worried about being a good parent is itself evidence that you'll be one. You're going to make mistakes — every parent does — and you'll learn from them. Perfection isn't the goal. Love, presence, and effort are.
+## 💰 Financial Tip
+Start looking into baby health insurance. In Israel, all children are covered under the national health insurance system, but you'll need to register the baby with a Kupat Cholim after birth. Research the different funds — Clalit, Maccabi, Meuhedet, and Leumit — and compare their supplementary services for infants. Some offer welcome packages for newborns. Making this decision now means one less thing to figure out in those hazy first weeks.
 
 ## 💡 Tip for Dad
-Have a candid conversation about the birth plan this week — not a formal document yet, just a talk. How does the Mom feel about pain medication? Does she want to try natural pain management first? Who does she want in the room? Listen more than you talk. This is about understanding her vision so you can support it.
+As Shabbat begins, take over the evening prep. Light candles together, or handle dinner so the Mom can rest. Creating a peaceful space at the end of the week is a form of care for your growing family — and good practice for after the baby arrives.
 
-## 💕 Intimacy Note
-The third trimester often brings a shift in desire. The Mom might feel too uncomfortable, too tired, or simply not in the mood — and that's completely okay. Don't take it personally. Try a foot massage tonight with some lotion. It's nurturing, helps with swelling, and communicates love without any pressure.
+## 🧘 Mindfulness Moment
+Tonight, try a body scan together. Lie down comfortably and slowly bring attention to each part of the body, from the toes upward, noticing sensations without judgment. It takes about 10 minutes and is incredibly calming. For the Mom, it can help her reconnect with her body in a positive way during a time when it might feel taken over.
 
 ## 💬 Conversation Starter
-"What kind of dad do you think I'll be? What kind of mom do you think you'll be? Let's be honest and encouraging."
+"What was the best advice someone has given us about becoming parents? What was the worst?"
+
+## 🕯️ Shabbat Activity
+Before or after dinner, take a slow gratitude walk together. As you walk, take turns naming things you're grateful for — big or small. This simple practice shifts focus from anxiety to appreciation, and the walking helps with circulation too.

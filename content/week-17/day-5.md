@@ -1,37 +1,40 @@
 ---
-subject: "Week 17, Day 5 — Every Joint Is Moving — Your Baby's Got Moves! 🕺"
+subject: "Week 17, Day 6 — Shabbat Shalom: Growing Stronger Together 🕯️"
 week: 17
-day: 5
+day: 6
 ---
 
-# Week 17, Day 5
+# Week 17, Day 6
 
 ## 👶 Baby Development
-Your baby can now move every joint in the body — and is doing so enthusiastically. Fingers curl and uncurl, wrists rotate, elbows bend, knees flex, and toes wiggle. These movements help develop the muscles and joints needed for everything from grasping your finger to taking those first steps. The face is becoming more defined too, with a distinct nose bridge and ear shape.
-
-## 🎉 Fun Fact
-Your baby's fingerprints have been forming since around week 13, and by now they're essentially complete. These prints are entirely unique — no one in history has ever had or will ever have the same fingerprints as your baby. They form based on pressure and movement in the womb, making them a one-of-a-kind biological signature even before birth.
+As the week winds down, your pomegranate baby has accomplished a lot: joints are fully mobile, fat stores are building, the skeleton is hardening, and hearing is developing. Baby is also growing eyelashes and eyebrows — tiny, delicate hairs forming even though they won't be visible for a while. The brain is growing rapidly, with nerve pathways getting more complex every day.
 
 ## 🤰 What Mom Might Be Feeling
-The Mom's belly might be itching as the skin stretches — a good unscented moisturizer applied after showering can help. She might also notice nasal congestion worsening, as pregnancy rhinitis tends to peak during the second trimester (saline spray is safe and effective). On the positive side, many women at 17 weeks report feeling more emotionally balanced than the hormonal roller coaster of the first trimester.
+Friday energy dip is real, especially at 17 weeks. The Mom's body is working around the clock to build a human, and by the end of the work week, she might feel genuinely wiped out. She may also notice some mild swelling in her hands and feet by end of day — elevating feet, staying hydrated, and removing rings if they're getting tight are all good moves. If swelling is sudden or severe (especially in the face), that warrants a call to the doctor.
 
-## 🤔 Yesterday's Answer
-Should you worry if the Mom hasn't felt movement at 17 weeks? Not at all. For first-time moms, feeling movement before 18-20 weeks would actually be unusually early. Most first-timers first notice it between 18 and 22 weeks. Experienced moms identify it sooner because they know what to look for. The position of the placenta also matters: an anterior placenta acts as a cushion between baby and belly, which can delay when movements are felt by a few additional weeks. Bottom line: baby is definitely moving in there, and the Mom will feel it when the time is right.
+## 💰 Financial Tip
+Start a dedicated "baby fund" if you haven't already — even a small automatic transfer each week adds up. Consider the costs that come in the first few months: diapers, wipes, potential formula, pediatric visits, and unexpected expenses that always pop up. Even 100-200 shekels per week for the next 23 weeks creates a meaningful buffer.
 
-## 🧠 Mental Health Check-In
-Let's talk about the "comparison trap." It's tempting to compare your pregnancy journey to others — friends, family, social media. Every pregnancy is genuinely different, and comparing only creates unnecessary anxiety. Focus on your own journey, your own baby, and your own timeline. If social media is making either of you feel bad, it's okay to mute pregnancy accounts for a while.
+## 🍼 Gear Tip
+Let's talk car seats — this is the one piece of gear you absolutely must get right. In Israel, a rear-facing car seat is required by law. Look for one that meets European safety standards (ECE R44/04 or R129 i-Size). Key features to prioritize: easy installation (ISOFIX is worth it), good head support for newborns, and compatibility with your car. Install it at least 2-3 weeks before the due date so you're not fumbling with it when contractions have started.
 
-## 💕 Intimacy
-Here's a topic many couples avoid: how body changes affect attraction and desire. The Mom's body is changing rapidly, and she might feel self-conscious about it. Many partners find the pregnant body incredibly attractive — if that's you, tell her. Be specific. And if you're both navigating uncertain feelings about intimacy, that's normal too. Keep talking about it, without pressure or expectation.
+## 🧘 Mindfulness Moment
+Before Shabbat, try the 5-4-3-2-1 grounding exercise together. Name 5 things you can see, 4 things you can touch, 3 things you can hear, 2 things you can smell, and 1 thing you can taste. It takes about two minutes and brings you completely into the present moment.
 
 ## 🍽️ Nutrition Tip
-B vitamins (especially B6 and B12) support baby's brain and nervous system development, and B6 can also help with any lingering nausea. Good sources include bananas, chicken, fish, potatoes, and fortified cereals. A simple B-vitamin boost: baked potato topped with tuna salad (canned light tuna is fine in moderation) and a side of steamed broccoli.
+Shabbat dinner idea: herb-crusted lamb chops (or chicken). Mix breadcrumbs with fresh rosemary, thyme, garlic, salt, and pepper, press onto the meat, sear for 2 minutes per side, then finish in the oven at 400F (200C) for 10 minutes. Serve with roasted potatoes and a simple green salad. Lamb is an excellent source of iron, zinc, and B12 — three nutrients your baby needs right now.
 
 ## 💪 Exercise & Movement
-Calf raises are simple but effective for preventing leg cramps and swelling. Stand on a flat surface, slowly rise up on your toes, hold for 2 seconds, lower slowly. Do 3 sets of 15 — hold onto a counter or chair for stability. These improve circulation in the lower legs, and the Mom can do them while brushing her teeth or waiting for the kettle to boil.
+Partner stretch session: sit on the floor facing each other, legs in a wide V. Hold hands and gently pull each other forward, alternating who leans in. Then sit back-to-back and twist gently in opposite directions. Finish with seated side bends, hands interlaced above your heads. Stretching together is intimate, relaxing, and great for both of your bodies.
 
 ## 💡 Tip for Dad
-Plan something that has nothing to do with the baby this week. Take your partner to a restaurant you both love, see a show, go bowling — whatever you used to do together before pregnancy took over your conversations. You're still a couple, not just parents-in-training.
+This Shabbat, express gratitude to the Mom specifically for something she's doing during this pregnancy. Not just "you're doing great" — something specific. Specific appreciation lands deeper than general praise.
 
 ## 💬 Conversation Starter
-What's one skill you want to learn before the baby comes? CPR? Basic baby first aid? Cooking a few go-to meals? Swaddling? Pick one each and learn it together in the coming weeks.
+What's a promise you want to make to your child? Not a material promise — something about the kind of parent you'll be or the kind of home you'll create. Share one promise each and hold space for it.
+
+## 🕯️ Shabbat Couple Activity
+Write a letter to your future baby — not on a screen, but with pen and paper. Each of you writes your own. Tell baby about this time in your lives, what you're feeling, what you hope for them. Seal them in envelopes and save them. You'll give these to your child someday, and they'll be among the most treasured things you ever create.
+
+## 🎉 Fun Fact
+In Korea, there's a beautiful tradition called "Taegyo" — prenatal education — where parents actively talk, read, and play music to the baby during pregnancy, believing it shapes the child's character and intelligence. Modern Korean parents often start Taegyo journals early in pregnancy, recording their thoughts, the music they played, and the conversations they had with their growing baby.

@@ -1,31 +1,34 @@
 ---
-subject: "Week 12, Day 2 — Fingernails Are Starting to Grow! 💅"
+subject: "Week 12, Day 3 — The Intestines Are Moving Back Inside Where They Belong 🏠"
 week: 12
-day: 2
+day: 3
 ---
 
-# Week 12, Day 2
+# Week 12, Day 3
 
-## 💅 Baby Development
-Tiny fingernails are beginning to form on your baby's fingertips — they'll grow slowly throughout the pregnancy, and some babies are born with nails long enough to need trimming right away. Toenails will follow a bit later. Meanwhile, the bone marrow is now producing white blood cells, the soldiers of the immune system. The pituitary gland at the base of the brain is beginning to produce hormones, adding another layer of complexity to this rapidly developing little person.
+## 🏠 Baby Development
+The big migration is underway. The intestines, which had been looping into the umbilical cord because the abdomen was too small, are settling into their permanent position as the abdominal cavity grows to accommodate them. They're also starting to practice peristalsis — the wave-like muscle contractions that push food through the digestive system. Your baby's face is looking more proportional too: the chin is more defined, the forehead is less dominant, and the profile on ultrasound now shows a recognizably baby-like silhouette.
 
 ## 🎉 Fun Fact
-A newborn has about 270-300 bones, while an adult has only 206. The extra bones don't disappear — they fuse together as the child grows. The skull, for example, starts as several separate plates connected by soft spots (fontanelles), which gradually fuse over the first 18 months. This flexibility allows the skull to compress slightly during birth and the brain to grow rapidly in the first year.
+Your baby's vocal cords are beginning to form this week, though they won't be used until birth. The first cry is powered by the lungs taking in air for the first time and pushing it past the vocal cords — a process that happens within seconds of delivery. That first cry signals that the respiratory system has successfully transitioned from fluid to air.
 
 ## 🤰 What Mom Might Be Feeling
-If the Mom has her NT scan this week, she might be feeling a mix of excitement and anxiety — completely normal, even when everything is going perfectly. Physically, she might notice that her belly is developing a very slight curve below the belly button. Varicose veins can start to appear, especially in the legs, due to increased blood volume and pressure from the growing uterus. Support stockings and elevating the legs when sitting can help.
+The Mom might notice a subtle shift in energy this week — not a dramatic change, but a slight lifting of the first-trimester fog. The placenta is beginning to take over hormone production from the corpus luteum, and this hormonal transition is partly why many women start feeling better around now. Skin changes may continue — sunscreen is more important than ever during pregnancy because the skin is more sensitive to UV damage.
 
 ## 🍽️ Nutrition Tip
-Zinc is important for cell division, which is happening at an astronomical rate right now. Good sources include beef, pumpkin seeds, chickpeas, yogurt, and cashews. A handful of pumpkin seeds makes an excellent snack — they provide zinc, magnesium, iron, and healthy fats. Sprinkle them on salads, soups, or yogurt. The pregnancy RDA for zinc is 11 mg/day.
+Sweet potato and black bean tacos make for comforting, nutrient-packed comfort food. Toss diced sweet potato with olive oil, cumin, paprika, and salt, then roast until tender. Warm black beans with a pinch of cumin, assemble on tortillas with avocado, sour cream, fresh cilantro, and lime. Sweet potatoes are rich in beta-carotene (crucial for eye development), fiber, and potassium.
 
 ## 💪 Exercise & Movement
-A prenatal strength circuit can build total-body strength in about 20 minutes. Try wall sits, modified push-ups, sumo squats (wide stance, toes turned out), calf raises, and bird dogs (on all fours, extending opposite arm and leg). Do each for 45 seconds with 15-second rest, repeat twice. Always skip any exercise that causes pain or discomfort.
-
-## 🏋️ Diastasis Recti Prevention
-As the belly grows, the two sides of the rectus abdominis can separate — this is called diastasis recti, and it affects about two-thirds of pregnant women. Reduce the severity by avoiding traditional crunches during pregnancy, strengthening the deep core with pelvic tilts and bird dogs, rolling to the side when getting up from lying down, and being mindful of posture. These habits support recovery postpartum.
+The seated hip opener is gentle enough to do at a desk. Sit on a chair with feet flat, cross one ankle over the opposite knee (figure-4 position), sit tall, and gently lean forward from the hips until you feel a stretch in the outer hip. Hold 20 seconds, switch sides, repeat three times. It targets the piriformis muscle, which can get tight during pregnancy and contribute to lower back pain.
 
 ## 💡 Tip for Dad
-After the NT scan (or any medical appointment), don't just ask "how did it go?" Sit down together and process the experience. What did the doctor say? How did it feel to see the baby? What questions came up? These conversations deepen your connection to the pregnancy. If results come with any flagged concerns, discuss how you feel and what steps come next, together.
+If the pregnancy news is still private, you're carrying a secret — and that can be isolating. Consider telling one trusted person — a close friend, a sibling, or a parent. Having someone you can talk to outside the pregnancy makes a difference. Ask the Mom who she's comfortable with you telling. Sometimes the secret itself becomes a source of stress.
 
 ## 💬 Conversation Starter
-What do you think your baby looks like right now? Pull up a week-12 fetal development image online and look together. Your baby has a face, fingers, toes, and is actively moving. It makes the abstract concrete.
+What do you think your child's first word will be? What do you want it to be? Spoiler: it'll probably be something random like "light" or "dog." But dreaming about it is half the fun.
+
+## 😴 Sleep Tip
+If the Mom is a stomach sleeper, she may be finding that position increasingly uncomfortable. A pregnancy pillow can make a huge difference — U-shaped ones provide support for both back and belly, while C-shaped ones offer side support without taking up the entire bed. This might be worth investing in now, before the belly really starts growing.
+
+## 💼 Workplace Pregnancy Tip
+If the Mom is considering when to tell her workplace, week 12 or 13 is a common time (after screening results). Telling a supervisor before colleagues gives them time to plan for coverage during maternity leave. In Israel, the Mom is entitled to 26 weeks of maternity leave (15 weeks paid by Bituach Leumi, the remainder unpaid but protected), and she can start leave up to 7 weeks before the due date.

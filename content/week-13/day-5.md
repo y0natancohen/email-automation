@@ -1,34 +1,37 @@
 ---
-subject: "Week 13, Day 5 — Fingerprints Are Forming: Your Baby's Unique Identity 🔍"
+subject: "Week 13, Day 6 — Shabbat Shalom: Celebrating the Second Trimester 🕯️"
 week: 13
-day: 5
+day: 6
 ---
 
-# Week 13, Day 5
+# Week 13, Day 6
 
-## 🔍 Baby Development
-The friction ridges on your baby's fingertips continue to form, creating the swirls, loops, and arches that make up fingerprints. By the end of this week, the basic pattern will be set. Your baby's skin is still translucent — blood vessels are visible beneath it — but it's thickening. A fine layer of lanugo is beginning to sprout across the body, and those vocal cords are now fully formed, even though they won't produce sound until birth.
+## 👶 Baby Development
+Your baby's body proportions are shifting noticeably. The arms have reached their relative length — they'll grow longer in absolute terms but are now proportional to the body. The legs are still catching up but lengthening rapidly. The neck is more defined, allowing the head to move more freely — tilting, turning, and nodding. If you could watch your baby right now, it would look like a tiny person in constant, graceful, underwater motion.
 
 ## 🎉 Fun Fact
-Yesterday we asked: will your newborn recognize your voice? The answer: yes. Research found that newborns not only recognize their mother's voice but also their father's — if the father has been present and talking regularly during pregnancy. Babies who heard their father's voice frequently in the womb showed measurable recognition responses after birth. So keep talking to the belly. Your voice is becoming familiar and comforting.
+Your baby can now swallow about 2 tablespoons of amniotic fluid per day. Relative to body size, that's the equivalent of an adult drinking several liters. The swallowing practices the digestive system, develops the swallowing reflex, contributes to kidney function, and helps maintain the correct volume of fluid. Your baby is running a continuous internal recycling program.
 
 ## 🤰 What Mom Might Be Feeling
-The second trimester glow might be kicking in. Increased blood circulation gives the skin a rosy flush, and oil glands working overtime can create a dewy appearance. Not every woman experiences the glow — some get acne instead — but the increased blood flow is universal. The Mom might also notice sharper mental clarity this week, as the hormonal stabilization from the placental takeover helps with cognitive function. She might feel like she's emerging from a tunnel.
+The Mom might be settling into the pregnancy now — emotionally and physically. The first-trimester anxiety is easing, the body is adapting, and a new kind of confidence often emerges. Round ligament pain may continue — those sharp, brief pains on the sides of the lower abdomen caused by ligaments stretching to support the growing uterus. Sneezing, coughing, or sudden movements can trigger it. A warm bath or heating pad can provide relief.
 
 ## 🍽️ Nutrition Tip
-Magnesium helps with muscle relaxation, sleep quality, and preventing leg cramps — a common pregnancy complaint. Foods rich in magnesium include dark chocolate, avocados, nuts (especially cashews and almonds), bananas, leafy greens, and whole grains. A square of dark chocolate and a handful of almonds before bed can help with both magnesium intake and evening cravings. The pregnancy target is 350-360 mg per day.
+If the Mom is craving fruit, lean into it. Fruit is nature's candy and provides vital vitamins, fiber, and hydration. Excellent pregnancy choices: oranges (vitamin C, folate), bananas (potassium, B6), berries (antioxidants, fiber), avocado (healthy fats, folate), kiwi (more vitamin C per gram than oranges), and dates (iron, fiber — and in the third trimester, some studies link date consumption to easier labor). Keep washed, cut fruit in the fridge for easy snacking.
 
 ## 💪 Exercise & Movement
-Try adding short intervals to your walk today. Walk at a normal pace for 3 minutes, then pick up to a brisk pace for 1 minute, then return to normal. Repeat for 20-25 minutes. This gentle interval training boosts cardiovascular fitness without overexertion. The "talk test" is the simplest way to gauge intensity — the Mom should still be able to talk during the fast intervals.
+Try a partner stretching session — about 10 minutes. Sit back-to-back on the floor and breathe deeply, feeling each other's breath. Then sit facing each other, hold hands, and lean to opposite sides for a seated side stretch. Follow with a seated forward fold, soles of feet touching, gently pulling each other forward. Stretching together is both physically beneficial and emotionally connecting.
 
 ## 💡 Tip for Dad
-Start a "things to research" list in your phone. As questions come up — about strollers, car seats, daycare, parenting philosophies — write them down instead of falling into a Google spiral at 11 PM. Then set aside 20 minutes once or twice a week to work through the list. Methodical beats manic.
+This weekend, do something that makes the Mom laugh. Not just smile — really laugh. Watch a comedy together, share funny videos, or do something playfully absurd. Laughter reduces cortisol, releases endorphins, and strengthens emotional bonds. In the landscape of pregnancy — where so much feels serious — laughter is medicine.
 
 ## 💬 Conversation Starter
-How do you want to handle screen time for your child? What are your instincts? Thinking about it now — when you're not exhausted and desperate for 20 minutes of peace — leads to more intentional decisions later.
+If money and logistics were no obstacle, where in the world would you want to raise your child — and why? Dream big. The conversation reveals what you each value in a community and environment.
 
-## 🧠 Mental Health Check-In
-As the pregnancy becomes more real — visible belly, ultrasound images — some dads experience a surge of anxiety about their ability to provide. Financial worries, career concerns, and the weight of new responsibility can feel heavy. A few things to remember: you don't need everything figured out before the baby arrives. Your parents probably felt the same way, and they figured it out. Asking for help is a sign of strength, not weakness.
+## 💰 Financial Tip
+Look into paternity leave beyond the statutory minimum. In Israel, you're entitled to 7 days of paid paternity leave at birth, and the Mom can transfer up to 7 weeks of her maternity leave to you. Consider the financial implications: can you afford additional unpaid leave? Many fathers who take extended leave report it was one of the best decisions they ever made.
 
-## 💕 Intimacy Note
-Now that the Mom may be feeling more energetic, this could be a good time to reconnect physically — if she's interested. Some women experience heightened desire in the second trimester; others still feel tired. There's no "normal." What matters is open communication and willingness to adapt. Physical intimacy during pregnancy is safe for most couples throughout all trimesters unless a doctor has specifically advised otherwise.
+## 🧘 Mindfulness Moment
+Try a loving-kindness meditation — just 3 minutes. Sit quietly, close your eyes, and silently repeat: "May I be healthy, happy, and safe. May you be healthy, happy, and safe. May our baby be healthy, happy, and safe." Repeat the cycle three times. Simple, ancient, and surprisingly powerful.
+
+## 🕯️ Shabbat Couple Activity
+The Name Game, round 2: pull out the lists from week 11. Each of you can add 3 new names and remove 2. See if any names have grown on you. Are there any that appear on both lists? That's your shortlist. Many couples don't finalize a name until they see the baby's face — the journey of choosing is part of the fun.

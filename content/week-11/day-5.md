@@ -1,37 +1,37 @@
 ---
-subject: "Week 11, Day 5 — Your Baby's Face Is Looking Unmistakably Human 👤"
+subject: "Week 11, Day 6 — Shabbat Shalom: Almost Out of the First Trimester 🕯️"
 week: 11
-day: 5
+day: 6
 ---
 
-# Week 11, Day 5
+# Week 11, Day 6
 
 ## 🎉 Fun Fact
-Your baby's bone marrow is starting to produce white blood cells — the foundation of the immune system. But newborns are born with very little immune protection of their own. Instead, they rely on antibodies passed from the mother through the placenta during the third trimester and through breast milk after birth. This "borrowed" immunity protects the baby during their most vulnerable first months.
+In ultrasounds at this stage, babies are frequently seen grabbing, squeezing, and playing with the umbilical cord — it's one of the only objects in their environment, and they're fascinated by it. Don't worry — the cord is tough and designed to withstand being tugged on.
 
-## 👤 Baby Development
-If you could see your baby right now, you'd recognize a human face. The eyes are closer together, ears are nearly in their final position, and the nose has a distinct bridge and tip. The mouth can open and close, and the tongue is fully formed and busy exploring. Your baby weighs about 8 grams — roughly two sheets of paper — but is gaining mass rapidly as bones harden and muscles develop.
+## 👶 Baby Development
+Your baby's muscles are getting stronger, and movements are becoming more complex — actual stretches and reaches, not just twitches. The diaphragm is practicing contractions that mimic breathing, though the lungs won't function for many more months. The liver is enormous relative to body size — about 10% of total body weight — because it's currently responsible for producing blood cells, a job that will gradually shift to the bone marrow.
 
 ## 🤰 What Mom Might Be Feeling
-The Mom might be in that awkward in-between stage — clothes fitting differently but no obvious bump. The uterus is rising above the pelvic bone, and bloating adds to the effect. Elastic waistbands, belly bands, and the hair-tie-through-the-buttonhole trick can bridge the gap until maternity wear makes sense. Some women also experience increased saliva production (ptyalism), which is annoying but harmless.
+The Mom might notice a slight reduction in nausea this week, though every pregnancy is different and some women deal with it well into the second trimester. She may also be feeling anxious about upcoming screening tests — it's normal to be nervous, and it's okay to acknowledge that anxiety rather than push it away. Skin changes like melasma or darkening moles are common at this stage, driven by increased melanin, and usually fade after delivery.
 
 ## 🍽️ Nutrition Tip
-Choline is often overlooked but critical for brain development. The recommended intake during pregnancy is 450 mg per day, and many prenatal vitamins don't contain enough. Best food sources: eggs (about 150 mg each), chicken, fish, and soybeans. Two eggs at breakfast plus a cup of broccoli gets you well on your way.
+Constipation continues to be a common complaint. Beyond fiber, magnesium-rich foods can help: dark chocolate (in moderation), avocados, black beans, almonds, and bananas. A warm glass of water with lemon first thing in the morning can stimulate digestion, and prune juice remains the classic remedy — even a small glass genuinely works. Remember that fiber without adequate water can actually worsen things.
 
 ## 💪 Exercise & Movement
-The butterfly stretch is a simple way to open the hips and stretch the inner thighs. Sit on the floor with the soles of the feet together, knees out to the sides, and gently press knees toward the floor using the elbows. Hold for 20-30 seconds. Follow with a seated spinal twist for good measure. Both can be done while watching TV.
+Take a Shabbat stroll together — 20-30 minutes, no agenda, no destination, no phones if possible. Walking is consistently rated one of the best exercises during pregnancy: gentle, effective, and available to everyone. If the weather cooperates, end at a park bench and sit together for a few minutes.
 
 ## 💡 Tip for Dad
-Take something completely off her plate today — not a shared task, but something that's been her responsibility. Booking an appointment, researching car seats, organizing a closet. Don't offer to help — own it entirely. The mental load of pregnancy planning falls disproportionately on women, and actively taking things over changes that dynamic.
-
-## 💡 Yesterday's Q&A Answer
-Yesterday we asked: does fetal heart rate predict the baby's sex? The answer is no. A large study analyzing over 10,000 pregnancies found no significant difference in heart rate between male and female fetuses at any gestational age. Fun to guess, but not reliable science.
+This Shabbat, add a quiet moment of intention — whether that's lighting candles or simply pausing to acknowledge the week you've had and the life you're creating. Hold her hands, look at each other. No words necessary. Then eat something good.
 
 ## 💬 Conversation Starter
-Who do you want in the delivery room? Some couples want it to be just the two of them; some want a mother or doula present. Aligning expectations now prevents surprises later.
+What's one thing I've done during this pregnancy that made you feel supported? And what's one thing I could do more of? Listen without defending. Adjust. Grow.
 
-## 🧠 Mental Health Check-In
-You might feel like a spectator in this pregnancy — watching the Mom go through physical changes while you stand on the sidelines. That feeling is common among expectant fathers. But you're a participant every time you attend an appointment, manage a worry, handle logistics, or simply show up. Your role looks different from hers, but it's not less important.
+## 💰 Financial Tip
+Start looking into maternity and baby gear secondhand. Strollers, cribs, high chairs, and baby clothes are used for such a short time that secondhand items are often in excellent condition. Facebook groups, Yad2, and local parents' WhatsApp groups are great resources in Israel. One important exception: always buy a new car seat — secondhand seats may have been in accidents, and they have expiration dates.
 
-## 💕 Intimacy Note
-Physical touch doesn't always have to lead somewhere. The Mom might crave a long hug, having her hair played with, a foot rub, or just lying together — without it being a prelude to anything. For many pregnant women, the need for non-sexual physical affection increases during the first trimester. Sometimes the most intimate thing you can do is hold her while she falls asleep.
+## 🧘 Mindfulness Moment
+Try a five-minute body scan together. Lie down or sit comfortably, close your eyes, and slowly move attention from the top of the head downward — forehead, jaw, neck, shoulders, chest, belly, hips, legs, feet. At each spot, notice tension and consciously soften it. When you reach the belly, spend an extra moment there.
+
+## 🕯️ Shabbat Couple Activity
+The Name Game, round one: each of you secretly writes down five baby names. At dinner or dessert, take turns revealing one at a time. No immediate vetoes — just listen and let each name sit. You don't need to agree tonight. This is the opening round of what might be one of the most fun (and sometimes heated) conversations of the whole pregnancy.

@@ -1,37 +1,31 @@
 ---
-subject: "Week 15, Day 1 — Your Baby Can See the Light! 🍎"
+subject: "Week 15, Day 2 — Those Tiny Bones Are Getting Stronger 💪"
 week: 15
-day: 1
+day: 2
 ---
 
-# Week 15, Day 1
-
-## 🌒 This Week at a Glance
-Welcome to week 15! Your baby is about the size of an apple — roughly 4 inches from crown to rump and weighing around 2.5 ounces. This week is all about movement and senses. Those tiny eyelids are still sealed shut, but your baby can already sense light through them. Bones are hardening through ossification, the legs have outgrown the arms, and taste buds are forming, giving your baby a preview of flavors through the amniotic fluid. Inside that cozy space, baby is rolling, flipping, and doing somersaults the Mom probably can't feel just yet.
-
-## 🎉 Fun Fact
-Your baby is producing urine now — and yes, peeing into the amniotic fluid, then swallowing it, then peeing again. It sounds surprising, but this recycling loop is actually crucial for kidney and digestive system development.
+# Week 15, Day 2
 
 ## 👶 Baby Development
-The skeleton is going through ossification — cartilage turning into real bone — a process that will continue well after birth. If the Mom shines a flashlight at her belly, baby might actually turn away from the brightness. The face is becoming more proportional, and all that tumbling is helping muscles and coordination develop day by day.
+Your baby's skeleton continues transforming from soft cartilage into harder bone — a process that will actually continue well after birth. Those little legs are pumping away, growing longer and stronger every day. Muscles are developing nicely, and baby is practicing all sorts of movements: flexing, extending, and even sucking a thumb. Your apple-sized baby is becoming a tiny gymnast.
+
+## 🎉 Fun Fact
+Your baby's taste buds are developing this week, and research shows that flavors from the Mom's diet actually pass into the amniotic fluid. Studies suggest that babies whose mothers ate certain foods during pregnancy were more accepting of those flavors after birth. So if she's craving garlic hummus, baby might end up loving it too.
 
 ## 🤰 What Mom Might Be Feeling
-The second trimester is often called the "honeymoon period," and many women start feeling noticeably better around now. Morning sickness is likely fading, energy levels are picking up, and appetite may be returning. The Mom might notice a stuffy nose — pregnancy rhinitis is common thanks to increased blood flow. And maternity jeans are becoming less of a "maybe" and more of a "must."
+The Mom might notice round ligament pain — sharp or jabbing sensations on one or both sides of the lower belly, especially when changing positions quickly. This is completely normal and happens because the ligaments supporting the uterus are stretching. She might also notice bleeding gums when brushing teeth, since pregnancy hormones increase blood flow everywhere. A softer toothbrush can help.
 
 ## 🍽️ Nutrition Tip
-Calcium is essential right now as baby's bones are hardening — the Mom needs about 1,000 mg daily. A quick calcium-packed smoothie is an easy win: blend yogurt, a handful of spinach, banana, almond butter, and a splash of fortified orange juice. For something heartier, try sesame-crusted tofu with broccoli and brown rice — tofu, sesame seeds, and broccoli together deliver a serious calcium boost.
+Magnesium helps with the leg cramps that often pop up in the second trimester, and it works alongside calcium for bone development. Great sources include pumpkin seeds, dark chocolate (the 70%+ kind), bananas, and avocados. Sprinkle pumpkin seeds on a salad or yogurt for an easy magnesium boost.
 
 ## 💪 Exercise & Movement
-Swimming or water aerobics is one of the best exercises during the second trimester. The buoyancy takes pressure off joints and the growing belly while still providing a full-body workout. Even walking laps in the pool counts. No pool nearby? A 20-minute walk outside works wonders for both energy and mood.
+Today's focus: prenatal stretching for round ligament pain. Stand with feet hip-width apart, place hands on hips, and do slow, gentle hip circles — 10 in each direction. Then, from a hands-and-knees position, try cat-cow stretches: arch the back up (cat), then let the belly drop gently toward the floor (cow). Five slow repetitions can ease tension in the ligaments and lower back.
+
+## 🤔 Q&A: Yesterday's Answer
+At 15 weeks, sleeping on her back is generally still fine. As the uterus gets heavier (usually around week 20+), back sleeping can put pressure on the vena cava, reducing blood flow. The best habit to start building now is sleeping on the left side — it maximizes blood flow to baby. A pillow between the knees makes it much more comfortable. No need to panic if she wakes up on her back — just gently roll over.
 
 ## 💡 Tip for Dad
-This is a great week to start talking to your baby. It might feel awkward at first, but getting into the habit now means it'll feel natural by the time hearing develops. Lean in close and just say hi — tell baby about your day, read a page out loud. It's a bonding moment for all three of you.
+Start a shared note called "Questions for the Doctor." Every time either of you thinks of something to ask at the next appointment, jot it down. It's amazing how quickly those 2 AM questions disappear by the time you're sitting in the waiting room.
 
 ## 💬 Conversation Starter
-Talk about your baby's name list tonight. Have either of you been secretly adding names? Share your top three picks — no vetoing allowed yet, just listening. You might be surprised by what the other person loves.
-
-## 🤔 Question of the Day
-Is it safe for the Mom to sleep on her back at this stage? Think about it, and we'll share the answer tomorrow!
-
-## 👫 Couple Activity
-Since your baby is the size of an apple this week, grab a few different varieties from the store — Fuji, Granny Smith, Honeycrisp, Gala — slice them up and do a blind taste test together. Rate them, pick a favorite. Silly? Absolutely. Fun? Definitely. Bonus: apples are packed with fiber and vitamin C.
+What's one thing about your own childhood that you want to recreate for your baby? And one thing you'd do differently? This isn't about criticizing parents — it's about dreaming up the kind of home you want to build together.

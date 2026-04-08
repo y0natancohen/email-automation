@@ -1,38 +1,36 @@
 ---
-subject: "Week 26, Day 3 — Your Baby Is Practicing Breathing and Building an Immune System 🫁🛡️"
+subject: "Week 26, Day 4 — Your Baby Recognizes Your Voice: The Science of Fetal Hearing 👂🎵"
 week: 26
-day: 3
+day: 4
 ---
 
-# Week 26, Day 3
+# Week 26, Day 4
 
 ## 👶 Baby Development
-Your baby is breathing — not air, but amniotic fluid — in rhythmic practice sessions that strengthen the diaphragm and lungs. These breathing movements are visible on ultrasound: the chest rises and falls in a steady pattern, sometimes for 20-30 minutes at a time. Meanwhile, the immune system is developing rapidly, with antibodies transferring from the Mom through the placenta — a process that will accelerate dramatically in the third trimester. These borrowed antibodies will protect your baby during the first vulnerable months after birth.
-
-Perhaps most remarkably, brain wave activity is now measurable and consistent. Researchers can detect distinct patterns for sleeping and waking states. Your baby has a functioning brain that processes information, responds to stimuli, and cycles through recognizable states of consciousness.
+Your baby's hearing has reached a remarkable level of sophistication. The auditory system is now mature enough to distinguish between different voices, react to sudden loud sounds with a visible startle reflex, and show preferences for certain types of sound. Studies show that the fetal heart rate changes in response to the mother's voice versus a stranger's — your baby already knows who their parents are, based solely on the sound of voices filtering through amniotic fluid, tissue, and muscle. Lower frequencies travel more clearly through the womb, so a deep voice may actually be easier for baby to detect than higher-pitched sounds.
 
 ## 🎉 Fun Fact
-The antibodies passing through the placenta carry "memory" of every infection the Mom has ever fought off. Her immunity to chickenpox, measles, flu strains, and dozens of other pathogens is being transferred as biological information. By birth, your baby will carry protection from diseases they've never encountered, using their mother's immune experience as a shield. This passive immunity lasts about six months — exactly when babies start building their own immune memory through exposure and vaccinations.
+The language spoken most during pregnancy actually shapes your baby's crying patterns. A study in Current Biology found that French newborns cry with a rising melody mimicking French intonation, while German newborns cry with a falling melody mimicking German. Babies were already imitating their native language's melodic patterns in their very first cries. If the Mom speaks Hebrew, your baby's first cry will carry the subtle musicality of Hebrew intonation — a language learned before the first breath.
+
+## 🔬 The Science of Fetal Hearing
+Sound reaches the womb through the abdominal wall, uterus, and amniotic fluid. Low-frequency sounds below 500 Hz travel most efficiently, which is why bass notes, heartbeats, and the rumble of speech penetrate better than high-pitched sounds. The womb itself is far from quiet — a constant backdrop of maternal heartbeat, rushing blood, and digestive sounds creates roughly 70-80 decibels of ambient noise, similar to the volume of a vacuum cleaner.
+
+Research has revealed just how much babies learn through sound before birth. In a landmark 1980 study, DeCasper and Fifer demonstrated that newborns prefer their mother's voice within hours of birth. Later research found that babies exposed to a specific story read aloud during the last six weeks of pregnancy showed a clear preference for that story after birth. And a University of Helsinki study found that newborns showed enhanced brain responses to music they'd heard in the womb, up to four months later. The prenatal brain doesn't just hear — it learns, remembers, and forms preferences.
 
 ## 🤰 What Mom Might Be Feeling
-The end of the second trimester often brings a mix of "I've got this" confidence and "wait, there's still so much to do" anxiety. The Mom might notice her belly button starting to pop outward as the uterus pushes from behind. Skin stretching can cause itching — moisturizing the belly, breasts, and hips with a rich cream or oil helps. She might also feel the baby hiccupping: a rhythmic, repetitive tapping that lasts a few minutes and can happen several times a day. Hiccups are a sign the diaphragm is developing properly.
+As the second trimester wraps up, the Mom might feel the baby respond to sounds — a kick when a door slams, movement when music plays, or increased activity when someone speaks near the belly. She might notice increased vaginal discharge, which is normal and helps prevent infection. Her skin may be changing too — a dark line down the center of the belly (linea nigra) or darker patches on the face (melasma) are caused by increased melanin production and usually fade after delivery.
 
 ## 🍽️ Nutrition Tip
-Your baby's immune system needs zinc to develop properly. Many pregnant women don't get enough. Great sources include beef, chicken thighs, pumpkin seeds, chickpeas, lentils, and yogurt. A simple zinc boost: sprinkle pumpkin seeds on a salad or stir them into yogurt with honey. One serving of beef provides about 7 mg toward the 11 mg daily pregnancy requirement.
+Your baby's sophisticated hearing requires proper nerve function, which depends on B vitamins — particularly B12 and folate. A B-vitamin powerhouse meal: scrambled eggs with spinach and feta on whole wheat toast. Two eggs provide more than the daily B12 requirement, and a cup of spinach delivers about 260 mcg of folate.
 
-## 😴 Sleep Tip
-As the belly grows, sleeping comfortably becomes an engineering challenge. The single most impactful change is placing a firm pillow between the knees to align the hips and reduce back and pelvic pain. Adding a small pillow under the belly and behind the lower back rounds out the setup. A full-length C-shaped or U-shaped pregnancy pillow provides all of this in one — many women call it the single best pregnancy purchase they made.
-
-## 💼 Planning Ahead: Parental Leave in Israel
-With the third trimester approaching, now is the time to start planning parental leave. The Mom is entitled to 26 weeks of maternity leave — 15 weeks paid by Bituach Leumi and 11 weeks unpaid but job-protected. She can start leave up to 7 weeks before the due date or work until delivery. Partners get a week of paid leave after birth, and the Mom can transfer a portion of her paid leave to the partner from the seventh week onward.
-
-This week, check both employment contracts for any additional benefits, start the Bituach Leumi paperwork (it requires employer confirmation forms), and give your employers approximate start dates. Giving advance notice makes transitions smoother.
+## 🤔 Question of the Day
+What is the glucose screening test, and why is it done around weeks 24-28? Should we be worried about it? Answer coming Thursday!
 
 ## 💪 Exercise & Movement
-Walking remains the most accessible and consistently recommended exercise throughout pregnancy. As the third trimester approaches, aim for 20-30 minutes daily at a conversational pace on flat, even surfaces. Make sure shoes still fit properly — feet may have swollen half a size. Bring water, avoid the hottest part of the day, and walk together as a couple when possible.
+Turn stretching into a moment of connection. Put on some calm music and stretch together: seated side stretches, gentle spinal twists, wall push-ups for arm strength, and calf raises for circulation. Your baby is listening and may move along with the music.
 
 ## 💡 Tip for Dad
-Start a specific, actionable list of everything that needs to happen before the baby arrives: car seat, crib setup, hospital bag, insurance confirmation, birth plan preferences. You have roughly 14 weeks — plenty of time if you start now, not enough if you start at week 37. Break big tasks into small steps and tackle one or two per week. Showing the Mom a plan with items already checked off is one of the most reassuring things you can do.
+Your voice matters more than you might think. Research shows babies recognize their father's voice at birth — but only if they've heard it regularly during pregnancy. Make it a daily habit: talk to the belly. It can feel awkward at first. Some dads read articles, some narrate their day, some just say "Hey, it's your Abba." The content doesn't matter — the frequency does. Your baby's brain is wiring itself to find comfort in your voice.
 
 ## 💬 Conversation Starter
-"Our baby's brain waves are now measurable — they're thinking in there. What do you think is the very first thing a baby thinks? A feeling? A sensation? Pure curiosity?"
+"Our baby can distinguish our voices from strangers' voices right now. If you could say one sentence to the baby and know they'd understand every word, what would it be?"

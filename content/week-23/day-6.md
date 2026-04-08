@@ -1,37 +1,45 @@
 ---
-subject: "Week 23, Day 6 — Shabbat Shalom, Dreaming Baby 🕯️"
+subject: "Week 23, Day 7 — Rest, Reflect & Looking Ahead to the Inner Ear 🔮"
 week: 23
-day: 6
+day: 7
 ---
 
-# Week 23, Day 6
+# Week 23, Day 7
 
 ## 👶 Baby Development
-As Shabbat arrives, your one-pound baby is nestled in the womb, cycling between alert periods and rest. During waking moments, your baby is moving, stretching, and responding to sounds. During sleep, the brain is consolidating new neural connections. The cycle of stimulus and rest is essential — it's how the brain grows efficiently. Your baby's proportions are slowly shifting too; the head is becoming more proportionate as the body catches up.
-
-## 🎉 Fun Fact
-Babies in the womb have been observed smiling during sleep states. Using 4D ultrasound, researchers have captured what appears to be genuine smiles — not just random facial movements. While we can't confirm they're smiling because they're "happy," the fact that facial muscles are practicing emotional expressions is incredibly endearing. Your baby might be smiling right now.
+As Week 23 closes, your baby has crossed the viability threshold, started producing surfactant, possibly experienced their first dreams, and continued to respond to the world of sound around them. At about 1 pound and 11.4 inches, they're still small — but the complexity of their development is staggering. The brain alone is forming connections at a rate of about 250,000 per minute. Every day matters, and every day brings your baby closer to being ready for the world.
 
 ## 🤰 What Mom Might Be Feeling
-End-of-week tiredness might be hitting the Mom harder now. The combination of carrying extra weight, disrupted sleep, and the ongoing physical demands of pregnancy can make Fridays feel like a marathon finish line. She might also notice increased pelvic pressure as the uterus gets heavier. A warm (not hot) bath can relax tense muscles, and a maternity support belt can help take pressure off the pelvis during the day.
+Saturday might bring a mix of reflection and anticipation. Your partner is deep into the second trimester now, and the countdown to the third is getting real. She might feel occasional tightening of the belly (Braxton Hicks), especially after being active. Her center of gravity continues to shift, making balance a conscious effort. Emotionally, weekends can bring space to process the enormity of what's ahead — becoming a mother changes everything, and it's normal to feel waves of excitement alternating with moments of "wait, are we ready for this?"
 
 ## 🍽️ Nutrition Tip
-A Shabbat one-pot chicken and rice: layer diced onion, cubed chicken, rinsed rice, diced carrots and sweet potato, a can of chickpeas, and season with salt, turmeric, cumin, and paprika. Add chicken broth, bring to a boil, reduce heat, cover, and simmer 25 minutes until the rice is fluffy. This complete meal delivers protein, complex carbs, fiber, and multiple vitamins. Make extra — it's even better the next day.
+**Saturday afternoon snack platter:** Keep it simple and nourishing. Arrange on a board: hummus, whole wheat crackers, sliced cucumber, carrot sticks, cherry tomatoes, olives, a few cubes of cheese, and some grapes. Easy to graze on, covers multiple food groups, and requires zero cooking. Pair with sparkling water and a slice of lemon for a fancy-but-effortless feel.
 
 ## 💪 Exercise & Movement
-A gentle pre-Shabbat stretch sequence to transition from the busy week: child's pose with wide knees for two minutes, cat-cow stretches for a minute, seated side stretches with a gentle reach overhead (30 seconds each side), gentle neck rolls, seated butterfly stretch for two minutes, and finish with deep breathing — four counts in, six counts out — for two minutes.
+Today is a rest day. The body does its best repair and growth work during rest. If your partner feels like moving, a slow 10-15 minute walk or some gentle stretching is perfect. But if she wants to curl up on the couch with a book or a show, that's equally valuable. Rest is productive when you're growing a human.
 
 ## 💡 Tip for Dad
-Stock the Shabbat pantry. Keep a running list of staples you can restock automatically each week — challah, grape juice or wine, candles, and the ingredients for the Mom's favorite Shabbat meal. Eliminating the "what do we need?" stress on Friday makes the whole evening smoother. Bonus: pick up flowers for the table.
+Saturday reflection: You're about to enter the back half of the second trimester. Take a moment to check in with yourself. How are you feeling about: your relationship? Your readiness? Your work situation? Your support network? Write down one thing you want to focus on improving in the coming weeks. It could be as simple as "be more patient" or as specific as "research infant CPR classes." Having one intentional focus keeps you moving forward without feeling overwhelmed.
 
 ## 💬 Conversation Starter
-"What's one thing that happened this week that made you feel like we're going to be really good at this parenting thing?"
+"What's one thing that's gone better than expected so far in this pregnancy? And one thing that's been harder than you thought?"
 
-## 💰 Health Insurance Check
-Now is a great time to review your health insurance coverage for the birth. Check whether your kupat cholim covers the hospital where you plan to deliver, what the standard maternity package includes versus what costs extra, and whether services like lactation consultants or a doula are covered. Understanding the financial side now prevents surprises later.
+## 🎉 Fun Fact
+At 23 weeks, your baby's hearing is sensitive enough to distinguish between different types of sounds. Low-pitched sounds (like a bass guitar or a father's voice) travel through the amniotic fluid more easily than high-pitched sounds. That's why babies often respond more noticeably to deeper voices. After birth, newborns have been shown to prefer their father's voice over other male voices — proof that all that belly-talking matters.
 
-## 🧘 Mindfulness Moment
-Tonight, as the candles are lit, try this visualization together: close your eyes and imagine your baby inside the womb — warm, safe, floating gently. Imagine their tiny fingers, their closed eyes, their peaceful face. Imagine whispering: "We're here. We love you. We can't wait to meet you." Sit with that image for a full minute.
+## 🔮 After-Birth Preview: Postpartum Recovery Is Real (For Both of You)
+Nobody talks enough about the postpartum period. Here's a preview so you're not blindsided:
 
-## 🕯️ Shabbat Activity
-Each of you write a short letter to the baby. It doesn't have to be poetic — just genuine. Tell them about this week, what you're feeling, what the world is like right now. Include a detail about today. Seal the letters in an envelope with today's date. You'll give them to your child someday, and these handwritten snapshots will be among your most treasured keepsakes.
+**For your partner:** Physical recovery from birth takes weeks, not days. Whether vaginal or cesarean, her body will need time to heal. Bleeding (lochia) continues for 2-6 weeks. Hormones shift dramatically, which can cause mood swings, night sweats, and hair loss. Breastfeeding, while natural, often requires learning and support.
+
+**For you:** Sleep deprivation is the most immediate challenge. Newborns feed every 2-3 hours around the clock. You will be tired in a way you've never experienced. It's temporary, but it's intense.
+
+**For your relationship:** Communication becomes essential. You'll both be exhausted and emotional. Having a shorthand for "I need help" and "I love you but I'm at my limit" prevents small frustrations from becoming big fights.
+
+The good news? It gets easier. The first 6 weeks are the hardest, and then patterns start to form. Having realistic expectations is the best preparation.
+
+## 🙏 Rest & Gratitude
+Three gratitude shares today — one for the pregnancy, one for your relationship, and one for yourself. Example: "I'm grateful the baby is growing well. I'm grateful for how honest we've been with each other. I'm grateful that I'm learning to ask for help." Your turn.
+
+## 🔭 Next Week Preview
+**Week 24** is exciting. Your baby will be about the size of an ear of corn (11.8 inches, 1.3 lbs) and the inner ear will be fully developed — meaning your baby has a sense of balance! They'll know when your partner is upright, lying down, or doing yoga. The face is fully formed, taste buds are complete, and the brain is growing at an astonishing rate. We'll also talk about the glucose screening test window (24-28 weeks) in more detail. See you tomorrow!

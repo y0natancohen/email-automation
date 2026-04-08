@@ -1,37 +1,31 @@
 ---
-subject: "Week 22, Day 1 — Your Baby Is the Size of a Papaya! 🥭"
+subject: "Week 22, Day 2 — Touch, Grip & Growing Stronger Every Day 🤲"
 week: 22
-day: 1
+day: 2
 ---
 
-# Week 22, Day 1
-
-## 🌒 This Week at a Glance
-Welcome to Week 22! Your baby is now about 11 inches long and weighs around 15 ounces — roughly the size of a papaya. This week marks a visible transformation: your baby is starting to look like a miniature newborn. Lips and eyelids are becoming more distinct, the face is filling out, and the sense of touch is developing rapidly. Your baby is exploring everything within reach — face, feet, umbilical cord — with a grip that's already strong enough to hold on. The lungs are developing but won't be mature for a while yet.
-
-## 🎉 Fun Fact
-Your baby's grip is now strong enough to grab and hold the umbilical cord. This isn't dangerous — the cord is slippery and tough, and the baby is just practicing motor skills. Think of it as your baby's first toy.
+# Week 22, Day 2
 
 ## 👶 Baby Development
-Your baby is starting to look like the person you'll meet in a few months. The lips are more defined, eyebrows are in place, and the eyelids are fully formed though still fused shut. The iris has no pigment yet — eye color comes later. The skin is still wrinkled without enough fat underneath, but that will change in the coming weeks. Touch is the headline development this week: every tactile sensation builds new neural pathways as your baby constantly feels, grabs, and explores.
+Your baby's sense of touch is blossoming this week. Nerve endings in the skin are becoming more sensitive, and your baby is constantly exploring — touching their face, clasping hands together, grabbing feet. This tactile exploration is critical for brain development, as every touch sends signals that build neural pathways. The skin is still wrinkled and covered in fine lanugo hair, which helps the vernix caseosa stick. Your baby looks like a tiny, wise old person — but a very cute one.
+
+## 🎉 Fun Fact
+Your baby's fingerprints and toe prints are now fully formed and completely unique. Even identical twins, who share the same DNA, have different fingerprints — shaped by the interaction of genetics, amniotic fluid pressure, and position in the womb.
 
 ## 🤰 What Mom Might Be Feeling
-At 22 weeks, the belly is clearly visible, and the Mom might be navigating mixed feelings about her changing body — both loving and struggling with it are completely valid reactions. Physical symptoms this week might include continued round ligament pain, backaches, and possibly hemorrhoids from increased blood flow and uterine pressure. Braxton Hicks contractions may become more noticeable too.
+The Mom might be noticing increased swelling in her hands and feet, especially toward the end of the day. This edema comes from the extra blood and fluid her body is carrying — usually normal, but sudden or severe swelling (especially in the face) should be reported to the doctor. Rings might feel tight, and some women switch to wearing them on a chain until after delivery. Appetite is likely hearty as the baby's growth demands more calories.
 
 ## 🍽️ Nutrition Tip
-Shakshuka is the perfect protein vehicle right now. Saute onion and bell pepper in olive oil, add garlic with cumin, paprika, and chili flakes, then pour in crushed tomatoes and simmer until thickened. Make wells in the sauce, crack in the eggs, cover, and cook until set. Top with fresh herbs and crumbled feta, and serve with crusty bread. Each egg delivers about 6 grams of protein plus choline, which is essential for brain development.
+Choline is one of the most under-discussed pregnancy nutrients, but it's crucial for brain development. Eggs are the best source — just two provide over half the daily recommended amount. Other good sources include salmon, chickpeas, and broccoli. If the Mom isn't a big egg eater, a morning smoothie with a handful of chickpeas blended in (sounds odd, tastes neutral) can boost choline intake.
 
 ## 💪 Exercise & Movement
-Prenatal wall push-ups are a safe way to maintain upper body strength — something you'll need for all the baby-carrying ahead. Stand arm's length from a wall, place hands flat at shoulder height, lean in bending the elbows, then push back. Three sets of ten is a great start. They also help with posture as the belly grows.
+Side-lying leg lifts strengthen the outer thighs and hips that support the growing belly. Lie on one side, keep legs straight and stacked, slowly lift the top leg about 12 inches, hold for two seconds, then lower. Repeat 15 times per side. Follow up with standing hip circles — hands on hips, make large slow circles, ten in each direction — to loosen tight hip joints and relieve lower back tension.
 
 ## 💡 Tip for Dad
-Body image during pregnancy is a sensitive topic. Be genuine and specific with compliments — don't say "you don't even look pregnant" (this dismisses her experience). Instead, try "I love watching our baby grow" or "I'm in awe of what your body is doing." If she's struggling, listen without trying to fix. Your consistent appreciation matters more than you know.
+If the Mom's feet are swelling, here's your chance: offer a gentle foot massage in the evening. Use a bit of lotion or coconut oil, focus on the arches and heels, and avoid pressing too hard on the ankles. It helps reduce swelling, promotes relaxation, and shows you're paying attention. Ten minutes can make her whole evening better.
 
 ## 💬 Conversation Starter
-"What's one thing I do that makes you feel most supported right now? And is there something I could do better?"
+"What's one thing about becoming a dad that surprises you — something you didn't expect to think about or feel?"
 
-## 🤔 Q&A: Question of the Day
-People keep telling you about "pregnancy brain" — is it real? Does pregnancy actually affect memory and cognitive function? Answer drops tomorrow!
-
-## 👫 Couple Activity
-Your baby is papaya-sized this week. Buy a papaya, hold it together, and really feel the weight and size — that's your baby right now. Then cut it open and enjoy it (papaya is rich in vitamins A and C, folate, and fiber). Take a photo holding the papaya against the belly for a fun week-by-week memory.
+## 🤔 Q&A: Yesterday's Answer
+**Is "pregnancy brain" real?** Yes, and there's science behind it. Brain imaging studies show that pregnancy actually changes brain structure — gray matter decreases in certain areas, which researchers believe helps the brain become more efficient at parenting tasks like reading social cues and bonding. It's not that the brain is getting worse; it's reorganizing. In practical terms, the Mom might forget where she put her keys or lose her train of thought mid-sentence. This is temporary and normal. Phone reminders, a shared calendar, and patience all help. Some studies suggest dads experience cognitive changes too — so if you've been feeling scattered, you're not alone.

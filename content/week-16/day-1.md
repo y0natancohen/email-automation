@@ -1,37 +1,31 @@
 ---
-subject: "Week 16, Day 1 — Baby's Making Faces! Hello, Avocado 🥑"
+subject: "Week 16, Day 2 — Tiny Toenails and a Fully Pumping Heart 💗"
 week: 16
-day: 1
+day: 2
 ---
 
-# Week 16, Day 1
-
-## 🌒 This Week at a Glance
-Welcome to week 16! Your baby is now the size of an avocado — about 4.6 inches from crown to rump and roughly 3.5 ounces. The big headlines this week: facial muscles are now working, which means your baby can squint, frown, and grimace. The nervous system is connecting to muscles throughout the body, tiny toenails are forming, and the circulatory system is fully functional. Some moms (especially in second pregnancies) start to feel "quickening" — those first fluttery movements. For first-timers, this usually happens closer to weeks 18-20, so no need to worry if the Mom doesn't feel anything yet.
-
-## 🎉 Fun Fact
-Your baby's head is now more upright, and the ears have moved close to their final position. If you could see an ultrasound right now, you'd recognize a real little person in there — a far cry from just a few weeks ago.
+# Week 16, Day 2
 
 ## 👶 Baby Development
-Those facial expressions aren't emotional responses yet — they're the nervous system testing its connections. The eyes are making small movements behind still-closed lids, and a thin layer of fine hair called lanugo is developing all over the body to help regulate temperature. The circulatory system is now fully functional, with heart, blood vessels, and blood all working together as a complete system.
+Those tiny toenails continue forming — delicate, translucent, and impossibly small. Your baby's heart is pumping about 25 quarts of blood per day through a fully formed circulatory system. Movements are becoming more coordinated as the nervous system strengthens its connections — less random twitching, more purposeful reaching and kicking.
+
+## 🎉 Fun Fact
+At 16 weeks, your baby can grasp. If one hand bumps into the other, baby might grab on and hold. Some ultrasound images at this stage catch babies holding onto the umbilical cord — their first "toy."
 
 ## 🤰 What Mom Might Be Feeling
-The Mom's bump is becoming more obviously "pregnant" rather than ambiguous. Many women at 16 weeks start needing maternity clothes for real. She may feel occasional backaches as her center of gravity shifts forward, and some women experience increased skin sensitivity — certain fabrics or products that were fine before might suddenly feel irritating. Switching to fragrance-free, gentle products can help.
+The Mom may start to feel a general heaviness in the pelvic area as the uterus continues to grow — normal, and just means everything is expanding as it should. She might also notice producing more saliva than usual (called ptyalism — it's hormonal). Some women experience mild headaches during the second trimester; staying hydrated and maintaining steady blood sugar usually helps.
+
+## 🤔 Yesterday's Answer
+The hearing structures are forming now, but functional hearing typically kicks in around weeks 18-20 and is well-established by week 25. Studies consistently show that newborns prefer their mother's voice over strangers', and they also recognize their father's voice if he's been talking near the belly regularly. Your voice gets transmitted through the amniotic fluid differently than the Mom's (hers resonates through the body), but baby learns both. So keep talking, reading, or singing — it genuinely matters.
 
 ## 🍽️ Nutrition Tip
-Vitamin D is essential for baby's bone development and immune system, and many people don't get enough. Best sources include sunlight (15-20 minutes of exposure), fortified milk or orange juice, egg yolks, and fatty fish like salmon. If the Mom is indoors a lot or it's winter, ask the OB about a vitamin D supplement — many prenatals don't contain enough.
+Folate isn't just a first-trimester nutrient — it continues to support neural development and new cell growth. Try a quick folate-rich wrap: spread hummus on a whole-wheat tortilla, add baby spinach, sliced avocado, sun-dried tomatoes, and a squeeze of lemon. Portable, delicious, and loaded with folate.
 
 ## 💪 Exercise & Movement
-Wall push-ups are a great way to maintain upper body strength without lying on the floor. Stand about arm's length from a wall, place palms flat at shoulder height, and do push-ups against the wall. Start with 2 sets of 10. This strengthens the chest and arms — which will come in very handy when carrying a baby all day long.
+Side-lying leg lifts are great for hip stability, which becomes increasingly important as the pelvis loosens for birth. Lie on one side with legs stacked, slowly lift the top leg to about 45 degrees, hold for 2 seconds, lower slowly. Do 15 reps on each side, 2 sets. Strong hips and glutes help with posture and reduce lower back pain as the belly grows.
 
 ## 💡 Tip for Dad
-Take a photo of the Mom's bump this week if you haven't started already. Same angle, same spot, once a week. By the end, you'll have an amazing progression you'll both treasure. Some couples turn these into a time-lapse video — it's one of those things everyone wishes they'd done but often forgets to start.
+This week, research one baby item together — like a car seat. Look at safety ratings, read a few reviews, compare prices. You don't have to buy anything yet, but understanding what's out there helps you make confident decisions later. Being the dad who knows the difference between a convertible car seat and an infant carrier is pretty impressive.
 
 ## 💬 Conversation Starter
-What kind of parents do you think you'll be? Laid-back or structured? Adventurous or homebody? You don't have to agree — most great parenting partnerships are a blend of different styles.
-
-## 🤔 Question of the Day
-At what point can your baby actually hear sounds from outside the womb? And will baby recognize your voice after birth? Think about it — answer coming tomorrow!
-
-## 👫 Couple Activity
-Your baby is avocado-sized this week, so lean into it. Make fresh guacamole together from scratch — mash ripe avocados with diced tomato, red onion, cilantro, lime juice, and a pinch of salt. Eat it with chips while you watch a movie you've been meaning to see. Simple, delicious, and a moment of together-time.
+What's one activity or hobby you'd love to share with your kid someday? Teaching them to ride a bike? Cooking together? Playing music? Dreaming about these moments makes the future feel wonderfully real.

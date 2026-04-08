@@ -1,34 +1,37 @@
 ---
-subject: "Week 21, Day 5 — Kicks, Connection & Keeping Close 💕"
+subject: "Week 21, Day 6 — Shabbat Shalom & Starting the Nursery Conversation 🕯️"
 week: 21
-day: 5
+day: 6
 ---
 
-# Week 21, Day 5
+# Week 21, Day 6
 
 ## 👶 Baby Development
-Your baby's movements are becoming more distinct, and the Mom is likely feeling them regularly now. Some describe it as popcorn popping, fish swimming, or gentle tapping. Movements tend to increase after meals and during quiet rest periods. Your baby has definite active and rest cycles, though they don't yet match day and night. The muscular system is strengthening, and the kicks are only going to get more powerful from here.
+As the week wraps up, your baby's nervous system is maturing rapidly. Nerve connections are multiplying, allowing more refined movements and better sensory processing. The skin is still developing layers, and the waxy vernix caseosa now covers it — nature's moisturizer and protective barrier against constant amniotic fluid exposure.
+
+## 🎉 Fun Fact
+The vernix caseosa covering your baby is made of dead skin cells, oils from the baby's glands, and water. It sounds unglamorous, but it's remarkably functional — it waterproofs the skin, has antimicrobial properties, and even helps the baby slide through the birth canal. Some hospitals now recommend delaying the first bath to let the vernix absorb into the newborn's skin.
 
 ## 🤰 What Mom Might Be Feeling
-As the belly grows, the Mom might notice changes in balance and posture. The center of gravity shifts forward, which can bring a touch of clumsiness. Lower back pain is common as the body adjusts, and swelling in the feet and ankles may appear after standing for long periods. Good supportive shoes — and maybe a size up — can make a real difference. On the emotional side, feeling the baby move regularly brings a wonderful sense of connection and reassurance.
-
-## 🤔 Q&A: Yesterday's Answer
-**What does the anatomy scan look for, and should you be there?** The anatomy scan (usually done between weeks 18-22) is one of the most comprehensive ultrasounds of the pregnancy. The technician systematically checks brain structure, heart chambers and blood flow, spine alignment, kidney function, limb measurements, placenta position, amniotic fluid levels, and umbilical cord blood flow. Should you be there? Absolutely. This is often the longest ultrasound (30-45 minutes), and seeing your baby's heart beating, fingers wiggling, and facial profile in detail is an experience you don't want to miss.
+The Mom's body has likely shifted into full pregnancy mode. Clothes that fit last week might feel snug this week — maternity wear accommodates not just the belly but widening hips, a fuller chest, and general expansion. If she hasn't fully transitioned to maternity clothes, now is usually the time. Comfort matters. She might also notice increased vaginal discharge — as long as it's clear or white and odorless, it's normal.
 
 ## 🍽️ Nutrition Tip
-If nighttime leg cramps are an issue, magnesium might help. Great sources include dark chocolate, almonds, bananas, pumpkin seeds, and leafy greens. A handful of almonds and a square of dark chocolate before bed is a delicious magnesium boost. Always check with the doctor before adding supplements, but dietary magnesium is a smart move.
+Salmon is one of the best foods for pregnancy, rich in omega-3 DHA that's critical for your baby's brain and eye development. A simple Shabbat dinner idea: baked salmon with lemon and dill, roasted sweet potatoes for beta-carotene and fiber, and a green salad. Nourishing the whole family around the table, including the newest member.
 
 ## 💪 Exercise & Movement
-Prenatal squats strengthen the legs and glutes, open the pelvis, and are one of the most functional exercises for birth preparation. Stand with feet shoulder-width apart, toes slightly turned out, lower into a squat keeping weight in the heels, hold for three breaths, and stand back up slowly. Repeat ten times, holding onto a chair or counter for balance if needed.
+A gentle Friday afternoon walk can help the Mom unwind before Shabbat. Focus on a slower pace than usual — this isn't about exercise, it's about decompression. Walk somewhere pleasant and breathe deeply. If walking is uncomfortable, gentle stretching at home for ten minutes works beautifully too.
 
 ## 💡 Tip for Dad
-When the Mom talks about aches, pains, or worries, resist the urge to immediately fix or solve. Sometimes she just needs to vent and feel heard. A simple "That sounds really uncomfortable — is there anything I can do?" goes much further than jumping into problem-solving mode. Active listening is one of the most underrated parenting skills — start practicing now.
+You don't need the nursery done yet, but Friday evening is a nice time to start dreaming about it together. Browse some ideas — not to buy anything, just to discover your shared style. Remember: a baby needs far less than the baby industry wants you to believe. A safe sleep space, a changing area, and a comfortable feeding spot cover the essentials.
 
 ## 💬 Conversation Starter
-"What does being a good parent mean to you? Not the Pinterest version — the real, everyday version."
+"If we could give our baby one trait from each of us, what would you pick?"
 
-## 🧠 Mental Health Check-In
-Anxiety about becoming a parent is completely normal — it would be unusual not to feel some. But there's a difference between normal worry and anxiety that's taking over. If racing thoughts are affecting sleep or your ability to enjoy the pregnancy, talk about it — with your partner, a friend, or a professional. Paternal anxiety is real and valid, and addressing it now makes you a stronger parent later.
+## 💰 Financial Tip
+Start a simple baby budget spreadsheet this weekend. Categories to consider: medical costs not covered by insurance, nursery setup, baby gear, clothing, diapers and supplies, and childcare. You don't need exact numbers yet — just getting the categories down helps you see the full picture. The biggest financial impact isn't the stuff — it's the income change if one partner reduces work hours.
 
-## 💕 Intimacy & Connection
-Physical intimacy often changes during pregnancy, and that's okay. Some couples find the second trimester brings renewed desire; others feel uncertain. Sex during a normal pregnancy is safe. But intimacy isn't just about sex — it's holding hands, back rubs, lying together and talking, a forehead kiss before bed. Whatever feels right for both of you, lean into it and keep communicating.
+## 🧘 Mindfulness Moment
+Before lighting Shabbat candles or starting your Friday evening routine, take 60 seconds together. Stand facing each other, hold hands, close your eyes, and take five slow breaths. On each exhale, let go of one thing from the week. After five breaths, open your eyes. You're entering Shabbat as a family of three now.
+
+## 🕯️ Shabbat Activity
+Add a personal blessing after the traditional ones this Shabbat. Take turns sharing one thing you're grateful for about the pregnancy and one intention for the coming week. It can be as simple as "I'm grateful the baby is healthy" and "This week I want to make sure we take a walk together every evening." Making space for gratitude keeps you both grounded.

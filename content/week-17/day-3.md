@@ -1,34 +1,34 @@
 ---
-subject: "Week 17, Day 3 — The Umbilical Cord: Baby's Lifeline Gets Stronger 🔗"
+subject: "Week 17, Day 4 — Hearing Is Coming Online — Baby's First Sounds 🎵"
 week: 17
-day: 3
+day: 4
 ---
 
-# Week 17, Day 3
-
-## 🎉 Fun Fact
-The umbilical cord can stretch up to 2 feet long and is surprisingly strong — it can withstand about 5-6 pounds of force without breaking. About 25-30% of babies are born with the cord loosely around their neck, which sounds scary but is usually harmless. The cord is flexible and slippery, and doctors or midwives easily slip it off. It has no nerve endings, so cutting it after birth is completely painless for both the Mom and baby.
+# Week 17, Day 4
 
 ## 👶 Baby Development
-The umbilical cord is growing thicker and tougher this week. It's now a robust lifeline about the diameter of your finger, containing two arteries and one vein, all wrapped in a protective jelly-like substance called Wharton's jelly that prevents kinking and tangling. Baby is also moving all joints with increasing purpose — flexing fingers, curling toes, bending elbows and knees. These aren't just reflexes anymore; the brain is sending intentional signals.
+This is a landmark development: your baby's hearing is coming online. The tiny bones of the inner ear — the smallest bones in the human body — are hardening, and the auditory system is forming the connections that will eventually let your baby hear the world. Right now, baby can perceive vibrations and some muffled internal sounds: the Mom's heartbeat, blood flowing, digestion. External sounds will become audible in the coming weeks as the brain develops its auditory cortex.
+
+## 🎉 Fun Fact
+The three tiny bones in the inner ear — the hammer, anvil, and stirrup — are the smallest bones in the human body and are the only bones that are fully formed at birth. They never grow bigger. These three bones are responsible for transmitting sound vibrations from the eardrum to the inner ear, and they're taking shape in your baby right now.
+
+## 🌍 Cultural Deep-Dive
+The womb isn't silent — it's actually quite loud, about 80-90 decibels (think of a running vacuum cleaner). Baby hears a constant backdrop of heartbeat, blood flow, and digestive sounds, which is why many newborns find white noise and shushing so soothing — it reminds them of their first home. In India, the ancient practice of "Garbh Sanskar" encourages playing specific ragas and chanting mantras for the developing baby. In Finland, parents often receive a music box that plays a lullaby chosen during pregnancy, creating continuity between womb life and newborn life.
 
 ## 🤰 What Mom Might Be Feeling
-Hormonal changes might be triggering some skin changes. A dark line may be appearing down the center of the Mom's belly — this is called the linea nigra, caused by increased melanin production. It's completely harmless and usually fades after birth. Darkening of the nipples and areolas is also common and actually serves a purpose: it helps the newborn find the breast for feeding, since their eyesight is blurry and the contrast helps. The body is incredibly smart.
+The Mom may notice that she feels her heart beating faster or more noticeably. Cardiac output increases significantly during pregnancy — the heart is pumping about 30-50% more blood than before. Mild palpitations are common and usually harmless, but if they're frequent or accompanied by dizziness or chest pain, it's worth mentioning to the doctor. She might also feel warmer and slightly out of breath with less exertion than usual.
 
-## 🛏️ Sleep Tip
-By week 17, many women find that their regular sleeping position just doesn't work anymore. The ideal position is on the left side, which maximizes blood flow. A comfortable setup: left side, a pillow under the belly, another between the knees, and one behind the back. It's a pillow fortress, but it works. If the Mom keeps waking up on her back, a tennis ball sewn into the back of a sleep shirt can discourage back-sleeping — old trick, but effective.
-
-## 💼 Workplace Tip
-If the Mom is experiencing physical discomfort at work — back pain, swollen feet, round ligament pain — now is a good time to optimize her workspace. A footrest, lumbar support cushion, and frequent standing breaks (every 30-45 minutes) make a big difference at a desk. If her work is physical, talking to a supervisor about temporary accommodations is completely reasonable.
+## 🤔 Question of the Day
+The Mom is 17 weeks pregnant and just found out a friend at a similar stage is already feeling kicks. Should you be worried that she hasn't felt movement yet? We'll discuss this tomorrow!
 
 ## 🍽️ Nutrition Tip
-Iodine supports thyroid function and baby's brain development, and many people don't get enough. Best sources include dairy products, eggs, iodized salt, seaweed (in moderation), and fish. A simple way to boost iodine: use iodized salt when cooking instead of fancy sea salt or Himalayan salt, which often contain very little. Small switch, big impact.
+A hearty chickpea and sweet potato curry makes a perfect midweek dinner. Saute diced onion and garlic in olive oil, add diced sweet potato, a can of chickpeas, coconut milk, curry paste, and a handful of spinach, then simmer for 20 minutes. Serve over rice. This one-pot meal delivers protein, fiber, iron, and vitamin A, and leftovers taste even better the next day.
 
 ## 💪 Exercise & Movement
-The bird-dog exercise is a prenatal core favorite. Start on hands and knees, extend the right arm forward and the left leg back simultaneously, keeping the back flat. Hold for 5 seconds, return to start, then repeat with left arm and right leg. Do 10 per side, 2 sets. This strengthens the deep core muscles and improves balance without putting pressure on the belly.
+Maintaining upper body strength matters — these muscles will be carrying, rocking, and feeding a baby soon. Using light weights or water bottles: bicep curls (2x12), overhead press (2x10), and lateral raises (2x10). Stand with knees slightly bent and core gently engaged. Think of it as practical training. Rest 30 seconds between sets.
 
 ## 💡 Tip for Dad
-Start thinking about the birth plan — not writing it yet, but gathering information. Do you know the options at your hospital or birthing center? What pain management options are available? Would the Mom like a doula? Exploring these topics together now means you can make informed decisions later. Knowledge reduces fear.
+Create a playlist for your baby. Pick songs you love, songs that make you happy, songs you want your baby to know. Play it near the Mom's belly over the coming weeks. There's evidence babies can recognize music they heard in the womb, and beyond the science, it's a beautiful way to share a piece of yourself with your child before they arrive.
 
 ## 💬 Conversation Starter
-If you could have any superpower as a new parent, what would it be? Ability to function on no sleep? Instant baby-calming voice? The power to change a diaper in three seconds? Have fun with it.
+What song would you want playing in the delivery room? Some couples want calm, meditative music. Others want their favorite hype-up song. And some want complete silence. There's no wrong answer — talk about what kind of atmosphere you want for that moment.

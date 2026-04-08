@@ -1,31 +1,34 @@
 ---
-subject: "Week 15, Day 2 — Those Tiny Bones Are Getting Stronger 💪"
+subject: "Week 15, Day 3 — Baby's Rolling Like a Little Acrobat 🤸"
 week: 15
-day: 2
+day: 3
 ---
 
-# Week 15, Day 2
-
-## 👶 Baby Development
-Your baby's skeleton continues transforming from soft cartilage into harder bone — a process that will actually continue well after birth. Those little legs are pumping away, growing longer and stronger every day. Muscles are developing nicely, and baby is practicing all sorts of movements: flexing, extending, and even sucking a thumb. Your apple-sized baby is becoming a tiny gymnast.
+# Week 15, Day 3
 
 ## 🎉 Fun Fact
-Your baby's taste buds are developing this week, and research shows that flavors from the Mom's diet actually pass into the amniotic fluid. Studies suggest that babies whose mothers ate certain foods during pregnancy were more accepting of those flavors after birth. So if she's craving garlic hummus, baby might end up loving it too.
+At 15 weeks, your baby is developing a unique set of fingerprints. These form based on movements and position in the womb, influenced by the amniotic fluid environment. Even identical twins have different fingerprints because of this.
+
+## 👶 Baby Development
+Your baby is having the time of their life in there — rolling, flipping, and doing full somersaults like a tiny astronaut in zero gravity. These movements aren't random; they're building muscles and coordination. The newly hardening bones give each motion more structure every day. The Mom probably can't feel any of this yet (that usually comes a few weeks later for first-time moms), but there is very much a party happening in there.
 
 ## 🤰 What Mom Might Be Feeling
-The Mom might notice round ligament pain — sharp or jabbing sensations on one or both sides of the lower belly, especially when changing positions quickly. This is completely normal and happens because the ligaments supporting the uterus are stretching. She might also notice bleeding gums when brushing teeth, since pregnancy hormones increase blood flow everywhere. A softer toothbrush can help.
+Increased appetite is very common right now. The second trimester often brings back the desire to eat after weeks of nausea, and the body genuinely needs more fuel — about 300-350 extra calories per day. The Mom might also notice skin changes: some women get that famous "pregnancy glow" from increased blood volume, while others deal with breakouts or darkening patches called melasma. Both are normal.
+
+## 🛏️ Sleep Tip
+If the Mom is having trouble getting comfortable at night, this is the week to invest in a pregnancy pillow. A full-body C-shaped or U-shaped pillow supports the belly, back, and knees all at once. If that feels like too much pillow, even a regular one between the knees and one behind the back can make a big difference. Keeping the bedroom cool (around 65-68F / 18-20C) also helps with the temperature regulation issues that come with increased blood volume.
+
+## 💼 Workplace Tip
+If the Mom hasn't shared the pregnancy news at work yet, week 15 is often when women start feeling more comfortable making the announcement — the first trimester risk period is well past, and the bump is getting harder to hide. Thinking about who to tell first and when it feels right can reduce the stress of deciding.
 
 ## 🍽️ Nutrition Tip
-Magnesium helps with the leg cramps that often pop up in the second trimester, and it works alongside calcium for bone development. Great sources include pumpkin seeds, dark chocolate (the 70%+ kind), bananas, and avocados. Sprinkle pumpkin seeds on a salad or yogurt for an easy magnesium boost.
+Iron needs increase significantly during pregnancy. A simple iron-boosting lunch bowl: quinoa topped with sauteed spinach, chickpeas, sliced red bell peppers, and a squeeze of lemon. The vitamin C from the peppers and lemon helps the body absorb plant-based iron much better.
 
 ## 💪 Exercise & Movement
-Today's focus: prenatal stretching for round ligament pain. Stand with feet hip-width apart, place hands on hips, and do slow, gentle hip circles — 10 in each direction. Then, from a hands-and-knees position, try cat-cow stretches: arch the back up (cat), then let the belly drop gently toward the floor (cow). Five slow repetitions can ease tension in the ligaments and lower back.
-
-## 🤔 Q&A: Yesterday's Answer
-At 15 weeks, sleeping on her back is generally still fine. As the uterus gets heavier (usually around week 20+), back sleeping can put pressure on the vena cava, reducing blood flow. The best habit to start building now is sleeping on the left side — it maximizes blood flow to baby. A pillow between the knees makes it much more comfortable. No need to panic if she wakes up on her back — just gently roll over.
+Kegel exercises aren't glamorous, but they're incredibly important. Strong pelvic floor muscles help during delivery and recovery. The basic move: squeeze the muscles you'd use to stop peeing midstream, hold for 5 seconds, release for 5 seconds, repeat 10 times. Do three sets throughout the day — at a desk, on the couch, in the car. Nobody will know.
 
 ## 💡 Tip for Dad
-Start a shared note called "Questions for the Doctor." Every time either of you thinks of something to ask at the next appointment, jot it down. It's amazing how quickly those 2 AM questions disappear by the time you're sitting in the waiting room.
+The Mom's appetite is likely back in full force. Surprise her with her current craving — whether that's a specific takeout dish, a particular snack, or something homemade. It's a small gesture that says "I'm paying attention."
 
 ## 💬 Conversation Starter
-What's one thing about your own childhood that you want to recreate for your baby? And one thing you'd do differently? This isn't about criticizing parents — it's about dreaming up the kind of home you want to build together.
+Where do you want your baby to sleep for the first few months? In your room in a bassinet? In the nursery from the start? There's no single right answer, but it's good to start talking about it now so you can plan the space.

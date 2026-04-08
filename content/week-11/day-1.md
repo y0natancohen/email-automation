@@ -1,37 +1,34 @@
 ---
-subject: "Week 11, Day 1 — Your Baby Is the Size of a Fig and Moving Nonstop 🫨"
+subject: "Week 11, Day 2 — Nasal Passages Are Opening: Your Baby's Nose Is Taking Shape 👃"
 week: 11
-day: 1
+day: 2
 ---
 
-# Week 11, Day 1
-
-## 🌒 This Week at a Glance
-Welcome to week 11. Your baby is now about 4 cm (1.6 inches) long — the size of a fig — and weighing roughly 7 grams. This week, facial features are becoming distinctly human, nasal passages are opening, the tongue and palate are forming, and hair follicles are beginning to appear across the body. Those tiny hands can now open and close into fists. You're nearing the end of the first trimester, and the first-trimester screening window (weeks 11 to 13+6) is now open.
+# Week 11, Day 2
 
 ## 🎉 Fun Fact
-Your baby's hands are developing an early version of the grasp reflex — if something touches the palm, the fingers curl around it. This same reflex will be one of the first things you experience when your newborn wraps their hand around your finger. It's so ancient it's shared with our primate relatives, likely evolved for clinging to caregivers.
+The blood vessels in the placenta, placed end to end, would stretch about 200 miles — roughly the distance from Tel Aviv to Eilat. All of that vasculature exists to deliver oxygen and nutrients to a baby the size of a fig.
 
-## 👶 Baby Development
-If you could peek inside right now, you'd see almost constant movement: somersaults, stretches, little kicks, even hiccups. The movements are becoming more coordinated as the brain builds connections to the muscles. The head is straightening on the neck, the body is lengthening, and overall proportions are slowly becoming more baby-like. External genitalia are developing but still not distinguishable on ultrasound.
+## 👃 Baby Development
+Your baby's nose is starting to take shape — nasal passages are opening at the tip, and the bridge is becoming more defined. The tongue and palate are forming, which will eventually allow your baby to eat, speak, and make faces. The irises of the eyes are developing too, though final eye color won't be determined until months after birth. The overall effect: a face that looks distinctly human now.
 
 ## 🤰 What Mom Might Be Feeling
-Some women start to feel a tiny bit better this week; for others, the nausea lingers — both are normal. The Mom's blood volume has increased significantly, which may cause her to feel warm, flushed, or sweatier than usual. Constipation is common thanks to progesterone slowing the digestive tract, and heightened smell sensitivity may still be making certain scents difficult.
+The Mom might notice her hair looking fuller and more lustrous. Pregnancy hormones slow down the normal shedding cycle, so overall volume increases. (Fair warning: after delivery, that retained hair tends to fall out at once around 3-4 months postpartum — alarming but temporary.) Nails may also grow faster or become more brittle. Hormones are unpredictable.
 
 ## 🍽️ Nutrition Tip
-Fiber is a friend right now, and overnight oats are an easy, make-ahead solution. Combine rolled oats, milk, Greek yogurt, chia seeds, and a pinch of cinnamon in a jar, top with mixed berries, and refrigerate overnight. By morning you've got a breakfast that covers fiber, probiotics, antioxidants, and omega-3s in one go. Add walnuts or granola for crunch.
+Vitamin B6 can help with nausea. Good food sources include bananas, chickpeas, potatoes, poultry, and sunflower seeds. Some OBs recommend a B6 supplement (typically 25 mg, three times daily) when food alone isn't enough — but always check with the doctor first. Quick snack idea: banana slices with sunflower seed butter on whole grain toast.
 
 ## 💪 Exercise & Movement
-Start the week with a 15-20 minute walk, ideally somewhere green — a park, a trail, even a tree-lined street. Time in nature has been shown to lower cortisol levels, and walking also helps with constipation by stimulating the digestive system.
+A simple prenatal Pilates routine can build the core stability that supports the spine as the belly grows. Try pelvic tilts, bridges (lifting hips off the floor and holding), and side-lying leg lifts. Fifteen minutes is plenty, and these exercises translate directly to comfort later in pregnancy.
+
+## 🏋️ Posture Check
+As the uterus grows and the center of gravity shifts, posture matters more. When standing, imagine a string pulling the crown of the head upward, shoulders back and down. When sitting, keep feet flat and support the lower back with a small pillow. When lifting, bend at the knees, not the waist. Good habits now pay off for the rest of the pregnancy.
 
 ## 💡 Tip for Dad
-The Mom's body is changing in ways both visible and invisible. A small but powerful gesture: tell her she looks beautiful — and not just today, but regularly. Many women feel disconnected from their changing bodies during the first trimester, when there's no bump to show for it, just symptoms. Genuine words of admiration go a long way.
+Start researching pediatricians (rofe yeladim). Ask friends with kids for recommendations and consider proximity, availability for urgent visits, and communication style. Some kupot cholim let you choose; others assign by clinic. Understanding the system now saves scrambling later.
 
 ## 💬 Conversation Starter
-What do you think your baby's personality will be like? Calm or wild? Bookworm or adventurer? There's no way to know, but imagining your future child together makes them feel more real.
+What surprised you most about pregnancy so far — something you didn't expect? Compare notes. You might be surprised by each other's answers.
 
-## 🤔 Question of the Day
-Hair follicles are starting to form this week. But is the color of the baby's hair determined entirely at conception, or can it change after birth? Take a guess — we'll share the answer tomorrow.
-
-## 👫 Couple Activity
-Take a walk together (or settle onto the couch) and each share your earliest childhood memory, then your favorite. What were your childhoods like? What do you want to recreate for your child, and what would you do differently?
+## 💡 Yesterday's Q&A Answer
+Yesterday we asked: is hair color determined at conception, or can it change? The answer is both. The genes are set at conception, but their expression can shift over time. Many babies are born with dark hair that falls out and is replaced by a different color, and plenty of blonde toddlers become brunette adults. Hair color is controlled by multiple genes and the melanin they produce, which can change throughout life.

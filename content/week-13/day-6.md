@@ -1,37 +1,37 @@
 ---
-subject: "Week 13, Day 6 — Shabbat Shalom: Celebrating the Second Trimester 🕯️"
+subject: "Week 13, Day 7 — Week 13 Done: Your Baby Has Fingerprints and a Voice Box ✅"
 week: 13
-day: 6
+day: 7
 ---
 
-# Week 13, Day 6
+# Week 13, Day 7
 
 ## 👶 Baby Development
-Your baby's body proportions are shifting noticeably. The arms have reached their relative length — they'll grow longer in absolute terms but are now proportional to the body. The legs are still catching up but lengthening rapidly. The neck is more defined, allowing the head to move more freely — tilting, turning, and nodding. If you could watch your baby right now, it would look like a tiny person in constant, graceful, underwater motion.
+As week 13 wraps up, your baby is the size of a peach — about 2.9 inches and 23 grams — with fingerprints, vocal cords, and increasingly active mouth movements. The intestines are fully inside the body, the digestive system is practicing, the immune system is building, bones are hardening, muscles are strengthening, and the placenta is running the show. Your baby has transitioned from a fragile embryo into a robust, active little person with a unique identity already forming.
 
 ## 🎉 Fun Fact
-Your baby can now swallow about 2 tablespoons of amniotic fluid per day. Relative to body size, that's the equivalent of an adult drinking several liters. The swallowing practices the digestive system, develops the swallowing reflex, contributes to kidney function, and helps maintain the correct volume of fluid. Your baby is running a continuous internal recycling program.
+Your baby's sense of touch is now one of the most developed senses. The entire body surface is becoming sensitive to tactile stimulation, with the most sensitive areas being the palms, soles, and face. Touch is the first sense to develop in human embryos. Skin-to-skin contact after birth triggers a cascade of hormonal responses in both parent and baby — including oxytocin release, which promotes bonding and stabilizes the baby's heart rate and breathing.
 
 ## 🤰 What Mom Might Be Feeling
-The Mom might be settling into the pregnancy now — emotionally and physically. The first-trimester anxiety is easing, the body is adapting, and a new kind of confidence often emerges. Round ligament pain may continue — those sharp, brief pains on the sides of the lower abdomen caused by ligaments stretching to support the growing uterus. Sneezing, coughing, or sudden movements can trigger it. A warm bath or heating pad can provide relief.
+Many women describe week 13 as a turning point. The first-trimester exhaustion is fading, the nausea is lifting, and the pregnancy feels more settled. The Mom might be sleeping better, eating better, and feeling more optimistic. This is also when many women start to "show" — a gentle rounding of the lower abdomen. For first-time mothers, showing often happens a bit later (weeks 14-16), but every body is different.
 
 ## 🍽️ Nutrition Tip
-If the Mom is craving fruit, lean into it. Fruit is nature's candy and provides vital vitamins, fiber, and hydration. Excellent pregnancy choices: oranges (vitamin C, folate), bananas (potassium, B6), berries (antioxidants, fiber), avocado (healthy fats, folate), kiwi (more vitamin C per gram than oranges), and dates (iron, fiber — and in the third trimester, some studies link date consumption to easier labor). Keep washed, cut fruit in the fridge for easy snacking.
+Weekend power pancakes make a hearty breakfast for the second trimester. Mash a ripe banana, mix with an egg, milk, whole wheat flour, ground flaxseed, baking powder, and cinnamon. Cook on a non-stick pan and top with fresh berries and a drizzle of maple syrup. The whole wheat flour provides fiber, banana adds potassium, flaxseed delivers omega-3s, and the egg adds protein.
 
 ## 💪 Exercise & Movement
-Try a partner stretching session — about 10 minutes. Sit back-to-back on the floor and breathe deeply, feeling each other's breath. Then sit facing each other, hold hands, and lean to opposite sides for a seated side stretch. Follow with a seated forward fold, soles of feet touching, gently pulling each other forward. Stretching together is both physically beneficial and emotionally connecting.
+A restful day. If the Mom wants to move, a gentle walk or some light stretching is perfect. But today is also a great day to prioritize rest. The body has been through a lot in the first trimester, and the second will bring its own demands. Rest now builds reserves for later.
 
 ## 💡 Tip for Dad
-This weekend, do something that makes the Mom laugh. Not just smile — really laugh. Watch a comedy together, share funny videos, or do something playfully absurd. Laughter reduces cortisol, releases endorphins, and strengthens emotional bonds. In the landscape of pregnancy — where so much feels serious — laughter is medicine.
+Take a photo together today — not a bump photo, a couple photo. In a few months, your life will be beautifully chaotic, and you'll cherish these quieter moments. Try to take at least one photo together every week or two from now until the birth.
 
 ## 💬 Conversation Starter
-If money and logistics were no obstacle, where in the world would you want to raise your child — and why? Dream big. The conversation reveals what you each value in a community and environment.
+What's the first thing you want to do when you bring the baby home from the hospital? Not in a practical sense — in an emotional sense. Sitting together in silence? Calling grandparents? Playing a specific song? Imagine that first hour at home.
 
-## 💰 Financial Tip
-Look into paternity leave beyond the statutory minimum. In Israel, you're entitled to 7 days of paid paternity leave at birth, and the Mom can transfer up to 7 weeks of her maternity leave to you. Consider the financial implications: can you afford additional unpaid leave? Many fathers who take extended leave report it was one of the best decisions they ever made.
+## 🍼 After-Birth Preview: Postpartum Recovery
+Postpartum recovery is real, and it takes time. Physical recovery from a vaginal delivery typically takes 4-6 weeks; cesarean recovery takes 6-8 weeks. Bleeding occurs for 2-6 weeks regardless of delivery method. Hormonal shifts after delivery are massive, and "baby blues" (tearfulness, mood swings) are normal and affect up to 80% of new mothers in the first two weeks. Postpartum depression is different — more persistent and severe, affecting about 10-15% of new mothers and requiring professional support. Your role is critical: manage the household, bring her food and water, let her sleep, and watch for signs she needs more support.
 
-## 🧘 Mindfulness Moment
-Try a loving-kindness meditation — just 3 minutes. Sit quietly, close your eyes, and silently repeat: "May I be healthy, happy, and safe. May you be healthy, happy, and safe. May our baby be healthy, happy, and safe." Repeat the cycle three times. Simple, ancient, and surprisingly powerful.
+## 🙏 Rest & Gratitude
+Week 13 is done. The first trimester is behind you. Your baby has fingerprints — a unique identity, already forming, unlike any other human who has ever existed. Whatever this week brought, you showed up. And that's what parenting is, at its core: showing up, day after day.
 
-## 🕯️ Shabbat Couple Activity
-The Name Game, round 2: pull out the lists from week 11. Each of you can add 3 new names and remove 2. See if any names have grown on you. Are there any that appear on both lists? That's your shortlist. Many couples don't finalize a name until they see the baby's face — the journey of choosing is part of the fun.
+## 🔮 Next Week Preview
+Week 14 brings more exciting developments. Your baby will be the size of a lemon and can squint, frown, and grimace — real facial expressions. The palate will be fully formed, lanugo starts covering the skin, the thyroid gland begins producing hormones, and your baby will start practicing breathing movements. The Mom's belly will likely become more noticeable, and the second-trimester energy boost should be in full swing.

@@ -1,39 +1,34 @@
 ---
-subject: "Week 34, Day 2 — Real vs. Fake Contractions Decoded 🔍"
+subject: "Week 34, Day 3 — Sleep Hacks for the Final Stretch 😴"
 week: 34
-day: 2
+day: 3
 ---
 
-# Week 34, Day 2
+# Week 34, Day 3
 
 ## 👶 Baby Development
-Your baby's lungs are producing surfactant — the substance that keeps the air sacs from sticking together, and one of the last major milestones before the baby is fully ready to breathe independently. The brain is growing rapidly, its surface developing more grooves and folds that increase the area available for neural connections.
+Your baby's immune system is getting a boost right now. Antibodies continue crossing the placenta from the Mom, building up the passive immunity that will protect your little one in the first weeks after birth. The baby essentially borrows the Mom's immune defenses until their own system is ready to take over.
 
 ## 🎉 Fun Fact
-Your baby is now urinating about a pint a day into the amniotic fluid. It sounds odd, but it's completely normal and actually helps maintain the right fluid volume. The cycle is continuous: the baby swallows fluid, processes it through the kidneys, and sends it back out — a constant recycling system.
+Your baby has functional taste buds and can detect flavors in the amniotic fluid from what the Mom eats. Studies suggest that babies exposed to certain flavors in the womb are more likely to accept those flavors after birth. If she's eating garlic, spices, and a variety of foods, your baby may arrive as an adventurous eater.
 
 ## 🤰 What Mom Might Be Feeling
-Heartburn might be making a fierce comeback as the uterus pushes against the stomach. The Mom may also be noticing more frequent Braxton Hicks contractions, and shortness of breath during simple activities like climbing stairs is common at this stage.
+Sleep is becoming a real challenge. Between the belly size, hourly bathroom trips, leg cramps, and difficulty finding a comfortable position, a full night's rest feels like a distant memory. Hip pain is common as ligaments loosen in preparation for birth, and increased vaginal discharge is normal as the body prepares for labor.
 
 ## 🍽️ Nutrition Tip
-For heartburn relief, smaller and more frequent meals work better than three big ones. Avoid lying down right after eating — wait at least 30 minutes. Ginger tea can settle the stomach, and sleeping slightly propped up reduces nighttime reflux. Steer clear of spicy, fatty, and acidic foods close to bedtime.
+A quick iron-rich one-pan meal: saut garlic for a minute, add rinsed red lentils, diced tomatoes, cumin, and two cups of water. Simmer 15-20 minutes until the lentils are soft, then stir in a big handful of baby spinach until wilted and finish with a squeeze of lemon. Serves two and is packed with iron, folate, and fiber — all crucial right now.
 
 ## 💪 Exercise & Movement
-Pelvic floor exercises are the Mom's best friend right now. Kegels strengthen the muscles that support the uterus, bladder, and bowels — all under serious pressure at this point. The technique: squeeze the muscles used to stop the flow of urine, hold for five seconds, release for five seconds, repeat ten times, three times a day. These same muscles will be important for postpartum recovery.
-
-Add a few gentle supported squats (holding onto a chair) to help open the pelvis. Even five to ten a day makes a difference.
+If the Mom is experiencing hip pain at night, gentle hip circles during the day can help. Standing with feet hip-width apart, slowly circle the hips like using a hula hoop — ten circles in each direction. Cat-cow stretches on all fours are also great for relieving lower back pressure and keeping the spine mobile.
 
 ## 💡 Tip for Dad
-Learn the signs of preterm labor — not to scare you, but to empower you. If the Mom experiences regular contractions (every 10 minutes or more frequently), fluid leaking from the vagina, persistent pelvic pressure, or lower back pain that doesn't go away, call your care provider. At 34 weeks, being cautious is always the right call.
+Start sleeping more now. Seriously. Bank rest while you can. Once the baby arrives, you'll be running on less sleep than you thought possible. If you can, go to bed 30 minutes earlier this week. Your future self will thank you.
 
 ## 💬 Conversation Starter
-"Is there anything about labor or delivery that you're nervous about that we haven't talked about yet?" Creating a safe space to share fears — without trying to fix them — can be incredibly bonding.
+"What's one thing from your own childhood that you definitely want to do with our baby? And one thing you'd do differently?"
 
-## 🤔 Yesterday's Answer
-Real contractions vs. Braxton Hicks — here's how to tell:
+## 🛏️ Sleep Tip
+The pillow fort strategy: the Mom needs one pillow between the knees, one supporting the belly, one behind the back, plus the head pillow. Left side is generally recommended for blood flow to the uterus. Keep a water bottle by the bed to avoid full trips to the kitchen. A full-body pregnancy pillow simplifies the whole setup if she doesn't have one already.
 
-Braxton Hicks (practice contractions) are irregular with no consistent pattern, usually painless with just uncomfortable tightness, and they stop when you change position, walk around, or drink water. They're usually felt in the front of the abdomen and don't get stronger over time.
-
-Real labor contractions come at regular intervals that get closer together, get progressively stronger and longer, and don't stop when you move, rest, or hydrate. They often start in the back and radiate to the front, and may be accompanied by other signs like water breaking, bloody show, or intense pressure.
-
-The 5-1-1 rule: head to the hospital when contractions are 5 minutes apart, lasting 1 minute each, for at least 1 hour. Confirm your provider's specific guidelines at the next appointment.
+## 💼 Workplace Tip
+If the Mom is still working, now is the time to finalize her maternity leave handover — key tasks, passwords, ongoing projects, and contacts all documented. For you, start confirming paternity leave plans with your employer. Know exactly how many days you're taking and when your leave starts — you don't want to be sorting this out while rushing to the hospital.

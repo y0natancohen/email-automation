@@ -1,38 +1,31 @@
 ---
-subject: "Week 24, Day 1 — Your Baby Has a Sense of Balance! ⚖️"
+subject: "Week 24, Day 2 — Taste Buds Complete: Your Baby's Full Flavor Profile 👅"
 week: 24
-day: 1
+day: 2
 ---
 
-# Week 24, Day 1
-
-## 🌒 This Week at a Glance
-Welcome to Week 24! Your baby is now about 11.8 inches long and weighs approximately 1.3 pounds — roughly the size of an ear of corn. This week brings a landmark sensory development: the inner ear is fully developed, giving your baby a true sense of balance. They know when the Mom is standing, sitting, lying down, or bending over. The face is fully formed with all features in place, taste buds are complete, and the brain is growing rapidly with visible folds and grooves developing on its surface. This is also the beginning of the glucose screening window (24-28 weeks). Your baby is approaching viability — every day and every week from here significantly strengthens the odds.
+# Week 24, Day 2
 
 ## 🎉 Fun Fact
-The vestibular system is one of the first sensory systems to fully develop, and it's critical for brain wiring. The rocking motion a baby experiences as the Mom walks, moves, and even breathes stimulates this system and helps build the foundations for motor coordination. This is also why rocking a baby after birth is so soothing — it recreates the constant gentle motion they experienced in the womb.
+Studies have shown that babies whose mothers ate a lot of garlic during pregnancy were more accepting of garlic-flavored breast milk after birth. Similarly, babies exposed to carrot flavor in the womb showed more enjoyment of carrot-flavored cereal when they started solids. The Mom's diet right now is literally shaping your baby's future food preferences.
 
 ## 👶 Baby Development
-The inner ear reaching full development is a game-changer. The vestibular system — responsible for balance and spatial orientation — is now functional. Your baby can sense gravity and movement, which is why some women notice the baby moving more when they change positions or lie down after being upright. The tiny semicircular canals in the inner ear shift fluid with movement, sending signals to the brain about position and motion. Your baby is essentially doing vestibular training, getting ready for a world where up and down matter.
+Your baby's taste buds are now fully formed — all the taste receptor cells are in place across the tongue, capable of detecting sweet, salty, sour, bitter, and umami. Combined with weeks of swallowing flavored amniotic fluid, your little one has a remarkably developed sense of taste. Research shows these early taste experiences influence food preferences after birth — babies exposed to a variety of flavors in the womb tend to be more adventurous eaters as toddlers.
 
 ## 🤰 What Mom Might Be Feeling
-At 24 weeks, the Mom's uterus is about the size of a soccer ball, sitting at or just above the belly button. Back pain may be increasing as the additional weight shifts her posture, and the hormone relaxin continues to loosen joints. Appetite might be strong, and gaining about a pound per week is normal and expected. Energy levels are generally still good, though they may start declining as the third trimester approaches.
+The Mom might be experiencing Braxton Hicks contractions more noticeably now — the belly tightening and hardening for 30-60 seconds, then relaxing. They're usually painless and irregular, unlike real labor contractions which are regular, get closer together, and increase in intensity. Staying hydrated reduces their frequency. She might also notice the baby responds to the tightening, sometimes moving or changing position.
 
 ## 🍽️ Nutrition Tip
-With the glucose test approaching, it's a great time to focus on balanced blood sugar eating. A Mediterranean bowl does this beautifully: layer cooked quinoa with grilled chicken, roasted sweet potato, arugula, cherry tomatoes, and a drizzle of tahini thinned with lemon juice. Top with pomegranate seeds. The combination of protein, complex carbs, healthy fats, and fiber keeps blood sugar stable without spikes.
+Since your baby's taste buds are actively sampling the amniotic fluid, now is the perfect time to eat a wide variety of flavors. Herbs like basil, cilantro, and mint; spices like cumin, cinnamon, and ginger; umami-rich foods like mushrooms and aged cheese; sour foods like yogurt and citrus; and bitter options like dark leafy greens and dark chocolate. Today's quick suggestion: a handful of mixed olives and a piece of dark chocolate. Two distinct flavors, zero cooking, maximum taste exposure.
 
 ## 💪 Exercise & Movement
-Balance-focused exercises are especially fitting this week. Try the single leg stand (near a wall for support, lift one foot slightly, hold 10-15 seconds, switch sides, five times each) and heel-toe walking (placing the heel of one foot directly in front of the toes of the other for ten steps forward and back). As the Mom's center of gravity shifts, practicing balance helps prevent falls and builds movement confidence.
+Dancing is one of the most underrated pregnancy exercises — it improves cardiovascular health, builds endurance, releases endorphins, and is genuinely fun. Put on three favorite upbeat songs and move however feels good: sway, step side to side, roll shoulders. Keep one foot on the ground for stability. The baby feels the rhythmic movement and the music vibrations. It's a multi-sensory experience for all three of you.
 
 ## 💡 Tip for Dad
-Take over the glucose test logistics this week. Find out when the appointment is, offer to drive, and bring snacks for afterward — she'll likely be hungry and possibly nauseated from the sugary drink. Having you there makes the one-hour wait less tedious. It's a small gesture that shows you're in this together for the routine stuff, not just the exciting milestones.
+Pay attention to what the Mom eats this week and help expand the variety. If dinners have fallen into a rotation of the same five meals, suggest or cook something different — try a new cuisine. The variety doesn't just benefit the baby's palate development; it ensures a wider range of nutrients. Plus, cooking something new together breaks the routine.
 
 ## 💬 Conversation Starter
-"What do you think our baby thinks is happening when you stand up quickly or bend over? They can feel it now — that's wild."
+"What are the top five foods we want our kid to love? And what food would be a total win if they loved it?"
 
-## 🤔 Q&A: Question of the Day
-**Our friends keep asking if we've "done" the nursery yet. How important is it really to have a dedicated nursery, and what does a newborn actually need?**
-Answer coming Tuesday!
-
-## 👫 Couple Activity
-Since your baby is developing their sense of balance, challenge each other to some playful balance activities. Try standing on one foot while brushing your teeth, or hold a tree pose together. The person who wobbles first gives the other a back massage. It's silly, physical, and connects you to what your baby is experiencing this week.
+## 🤔 Q&A: Yesterday's Answer
+**How important is a dedicated nursery?** Here's the honest truth: a newborn doesn't need a Pinterest-perfect nursery. They need a safe place to sleep, a place to be changed, and you. What you actually need: a safe sleep space (crib, bassinet, or co-sleeper with a firm mattress and nothing else in the sleep area), a changing pad on any stable surface, storage for clothes and supplies, and a comfortable feeding chair. Everything else — decorating, matching furniture, excessive toys — can wait. Most pediatricians recommend the baby sleeping in your room for at least the first six months anyway.

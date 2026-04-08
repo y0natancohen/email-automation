@@ -1,39 +1,33 @@
 ---
-subject: "Week 27, Day 1 — Welcome to the Third Trimester! 🎉"
+subject: "Week 27, Day 2 — Your Baby's Brain Is Buzzing with Activity 🧠"
 week: 27
-day: 1
+day: 2
 ---
 
-# Week 27, Day 1
-
-## 🌒 This Week at a Glance
-Welcome to the third trimester — the home stretch. Your baby is about 14.4 inches long and weighs around 2 pounds, roughly the size of a cauliflower. The brain is surging with new development, the eyes can open and close, and sleep-wake cycles are becoming more regular. Hiccups are common this week — tiny rhythmic pulses that the Mom may start to recognize as part of the baby's daily routine. Braxton Hicks contractions may also make an appearance, but these are just practice contractions and nothing to worry about.
-
-## 🎉 Fun Fact
-Your baby can already recognize both your voice and the Mom's voice. Babies at this stage show different heart rate patterns when they hear familiar voices versus unfamiliar ones. So keep talking and reading to that belly — your baby is already getting to know you.
+# Week 27, Day 2
 
 ## 👶 Baby Development
-The brain is going through a major growth spurt. Its surface, which was relatively smooth until recently, is starting to develop the characteristic folds and grooves that allow for vastly more neural connections. Your baby has regular sleep and wake cycles — and tends to be most active right when the Mom is trying to sleep. The lungs are still immature but steadily developing, producing more and more surfactant, the substance that will help them inflate after birth.
+Neural connections are forming at an astonishing rate, and higher brain functions are coming online. During REM sleep, the brain is firing away — some researchers believe babies may even be dreaming at this stage, probably processing the sounds, sensations, and rhythms of their cozy world.
+
+## 🎉 Fun Fact
+Your baby hiccups in the womb, and the Mom can feel them — tiny, rhythmic taps that are very different from kicks. They happen because the diaphragm is practicing its movements. Some babies hiccup multiple times a day, and it's a sign of healthy development.
 
 ## 🤰 What Mom Might Be Feeling
-The Mom may feel a mix of excitement and "wow, this is getting real." Physically, she might notice more back pain as the belly grows, leg cramps at night, and possibly the start of Braxton Hicks — those irregular tightening sensations across the belly that usually ease with movement or rest. Swelling in the feet and ankles is common, and energy levels may start dipping again after the second-trimester boost.
+The Mom might notice her belly feeling tight from time to time — likely Braxton Hicks contractions. Heartburn may be picking up as the growing uterus pushes against the stomach, and small, frequent meals can help. Some women notice increased shortness of breath, which is normal as the body works harder to supply oxygen to both mom and baby.
 
 ## 🍽️ Nutrition Tip
-Iron becomes extra important now as blood volume increases significantly. A spinach and lentil power bowl — with avocado, cherry tomatoes, a squeeze of lemon for vitamin C, and a drizzle of olive oil — packs plant-based iron, fiber, and healthy fats into one satisfying meal.
-
-The baby's brain is also hungry for DHA, the omega-3 fatty acid that's the primary building block of brain tissue. Sardines are one of the richest sources and low in mercury. Try walnut-crusted baked sardines: press a mixture of chopped walnuts, breadcrumbs, parsley, garlic, and lemon zest onto sardine fillets and bake at 400°F/200°C for 12-15 minutes until golden. Sardines and walnuts together deliver a double dose of omega-3s plus calcium and vitamin D for bone growth.
+Omega-3 fatty acids are crucial right now during peak brain-building time. Great sources include salmon, sardines, walnuts, chia seeds, and flaxseeds. If the Mom isn't a fan of fish, a prenatal DHA supplement (with a doctor's okay) can bridge the gap. Even adding a tablespoon of ground flaxseed to morning oatmeal or a smoothie makes a difference.
 
 ## 💪 Exercise & Movement
-Third-trimester exercise is about maintaining comfort and stamina. Walking remains one of the best options, and swimming is fantastic — the buoyancy takes pressure off joints and the back. Gentle prenatal yoga can help with flexibility and breathing techniques useful during labor. The key is listening to the body and slowing down when something feels off.
+Pelvic floor exercises continue to be the Mom's best friend. Kegels strengthen the muscles that support the uterus, bladder, and bowels — crucial for birth and recovery. The routine: squeeze the pelvic floor muscles for 5 seconds, release for 5, and repeat 10 times, three times a day. These can be done anywhere, anytime.
 
 ## 💡 Tip for Dad
-The third trimester can feel overwhelming — suddenly birth feels very real and close. Take a breath. You have about 13 weeks to go, and you'll be more ready than you think. This week, consider signing up for a childbirth preparation class together if you haven't already. They're genuinely helpful — not just for her, but for you too.
+Start thinking about your birth support toolkit. Learn what helps during labor: counter-pressure on the lower back, breathing techniques, having a playlist ready, knowing when to offer water and when to just be quiet and present. You'll learn more in childbirth class, but starting to think about it now gives you time to prepare.
 
 ## 💬 Conversation Starter
-"Now that we're in the third trimester, what feels most exciting to you? And what feels scariest? Let's talk about both."
+"Have you thought about who you'd want in the delivery room with us? Let's talk about what kind of support would make you feel most comfortable."
 
-## 🤔 Weekly Q&A
-**Question of the week:** What exactly are Braxton Hicks contractions, and how can you tell them apart from real labor contractions? (Answer coming tomorrow!)
+## 🤔 Weekly Q&A — Answer
+Yesterday's question: What are Braxton Hicks contractions, and how do you tell them from real labor?
 
-## 👫 Couple Activity
-**Third Trimester Kickoff Date:** Celebrate entering the final stretch. Order your favorite takeout, lay out a blanket on the living room floor, and have a picnic at home. While you eat, each of you write down three things you're most looking forward to about becoming parents. Share them — and keep the notes. You'll love reading them after the baby arrives.
+Braxton Hicks are "practice" contractions that help tone the uterine muscle. They're usually irregular, don't get closer together, and often stop if the Mom changes position, walks around, or drinks water. Real labor contractions are regular, get progressively closer and stronger, and don't stop with movement or rest. A helpful rule: if she can talk through it and it goes away, it's likely Braxton Hicks. If contractions are regular and increasing in intensity, that's worth a call to the doctor.

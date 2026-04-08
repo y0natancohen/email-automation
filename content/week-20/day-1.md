@@ -1,37 +1,31 @@
 ---
-subject: "Week 20, Day 1 — HALFWAY THERE! 🍌🎉 Welcome to the Banana Week!"
+subject: "Week 20, Day 2 — Baby Can Hear You Now — Talk, Sing, Read! 🗣️"
 week: 20
-day: 1
+day: 2
 ---
 
-# Week 20, Day 1
-
-## 🌒 This Week at a Glance
-YOU'RE HALFWAY THERE! Week 20 is a milestone worth celebrating. Your baby is the size of a banana — about 6.3 inches from crown to rump and weighing around 10 ounces. Here's the incredible thing: baby is now fully formed. Every organ, every limb, every system is in place. From this point forward, it's all about growing bigger and stronger. Your baby can hear your voice clearly now, is swallowing more amniotic fluid and producing meconium (the first poop, which stays inside until after birth). Your partner's uterus has reached her belly button, and she should be feeling definite kicks. The anatomy scan typically happens this week if it hasn't already. This is a week to celebrate how far you've come — and get excited for what's ahead.
-
-## 👶 Baby Development
-At 6.3 inches and 10 ounces, your banana-sized baby is fully formed. Let that sink in — every finger, every toe, every organ is there and accounted for. The remaining 20 weeks are dedicated to growth, maturation, and fine-tuning. Baby is swallowing amniotic fluid regularly now, which helps develop the digestive system and produces meconium — a dark, tar-like substance that accumulates in the intestines and becomes baby's very first bowel movement after birth. The skin is getting thicker, with more layers developing. And the big one: baby can hear your voice. Not just vibrations — actual sounds. Your conversations, your laughter, the music you play — baby is listening.
-
-## 🤰 What Mom Might Be Feeling
-This is the week when your partner's uterus reaches the level of her belly button — a physical marker of the halfway point. She's probably feeling definite kicks and movements now, not just flutters. Some women describe them as "thumps" or "pokes." She might be getting used to the pregnancy body — second-trimester confidence is real, and many women feel strong and powerful at this stage. She might also feel some pelvic pressure and continued lower back discomfort as the belly grows.
-
-## 🍽️ Nutrition Tip
-Celebrate the halfway point with a **Banana Split Parfait** (because banana week!). Layer sliced banana, Greek yogurt, granola, a drizzle of dark chocolate sauce, a spoonful of peanut butter, and fresh strawberries in a glass. It looks like a dessert but delivers protein, calcium, potassium, and fiber. Make two and toast to the halfway mark.
-
-## 💪 Exercise & Movement
-**Celebration Walk!** Today, take a slightly longer walk than usual — 30-40 minutes if your partner is up for it. Walk through a park, a neighborhood you like, or somewhere meaningful to both of you. As you walk, talk about highlights from the first half: the funniest moment, the scariest moment, the most beautiful moment. Moving forward, literally and figuratively.
-
-## 💡 Tip for Dad
-Today is a day to be proud. You're halfway through this journey, and you've been showing up — reading these emails, supporting your partner, learning about your baby, and preparing for fatherhood. Take a moment to acknowledge yourself. Then take a moment to acknowledge your partner — she's been building a human being from scratch for 20 weeks. Tell her she's amazing. Mean it.
-
-## 💬 Conversation Starter
-What's been the biggest surprise of the first half of pregnancy? For each of you — something you didn't expect, didn't know, or didn't see coming. Surprises are great storytelling material for the future.
-
-## 🤔 Q&A: Question of the Day
-**What exactly is meconium? Why is it dark? And is there ever a concern if baby passes it before birth?** We'll break this down tomorrow!
-
-## 👫 Couple Activity
-**Halfway Celebration Dinner!** Go out to a restaurant you love, or cook a special meal at home. This is a date night with purpose — celebrating 20 weeks of growth, change, and love. Take a photo of the bump. Take a selfie together. Write the date on it. Someday you'll show this photo to your child and say, "This was the night we were halfway to meeting you."
+# Week 20, Day 2
 
 ## 🎉 Fun Fact
-At 20 weeks, your baby is about the length of a banana but weighs less than one — about 10 ounces. By birth, baby will weigh about 7-8 pounds on average, meaning there's roughly 6.5 pounds of growing to go. Most of that weight comes in the third trimester, when baby gains about half a pound per week. Right now, your baby is fully formed — just tiny. Every additional week from here is about preparation for life on the outside.
+Researchers at the University of Helsinki found that babies regularly exposed to a specific melody in the womb showed neural recognition when the same melody was played after birth — even months later. Babies who weren't exposed showed no such response. Your baby is forming musical memories right now.
+
+## 👶 Baby Development
+Your baby's hearing is now developed enough to pick up sounds from outside the womb — your voice, music, even the dog barking. The auditory cortex is processing these sounds and building recognition patterns, which is why newborns can distinguish their parents' voices from a stranger's within hours of birth. That recognition starts here, at 20 weeks. Your baby is also practicing facial expressions and may smile or frown in response to different stimuli.
+
+## 🤰 What Mom Might Be Feeling
+The Mom is likely feeling definite, unmistakable kicks now. She might start to notice patterns — active after meals, quiet in the mornings, a full dance routine at 11 PM. These patterns are the first glimpse of your baby's personality. If the anatomy scan has already happened, there may be a deep sense of relief knowing everything looks healthy. Physically, some shortness of breath is common as the uterus pushes up on the diaphragm.
+
+## 🤔 Q&A: Yesterday's Answer
+**What is meconium?** Meconium is your baby's first bowel movement, and it's nothing like what comes later. It's a dark, greenish-black, tar-like substance made up of everything your baby has been swallowing in the womb: amniotic fluid, mucus, skin cells, lanugo hair, and bile. It accumulates throughout pregnancy and is typically passed in the first 24-48 hours after birth. If passed before birth, it can sometimes be inhaled into the lungs (meconium aspiration syndrome), which is more common in overdue babies. For now, at 20 weeks, meconium is quietly accumulating while your baby happily processes amniotic fluid.
+
+## 🍽️ Nutrition Tip
+Potassium helps regulate blood pressure and fluid balance — both especially important at 20 weeks. Bananas are the obvious source (fitting for banana week), but sweet potatoes, spinach, beans, yogurt, and coconut water are all excellent options too. A quick potassium boost: a banana with trail mix and a cup of coconut water. Simple, portable, and delivers over 1,000 mg of potassium.
+
+## 💪 Exercise & Movement
+A gentle prenatal yoga flow works well today. Start in cat-cow for a minute, move to a modified downward dog with knees bent, then step into warrior I and warrior II (five breaths each side), followed by tree pose using a wall for balance. Finish in child's pose with knees wide for a minute. The whole sequence takes about ten minutes and builds strength, balance, and calm.
+
+## 💡 Tip for Dad
+Now that your baby can hear you, establish a daily voice routine. Pick a consistent time — maybe when you get home or right before bed — and spend a few minutes talking directly to the bump. Tell the baby about your day, what you had for lunch, anything at all. The content doesn't matter; the consistency does. Your voice is becoming part of your baby's world.
+
+## 💬 Conversation Starter
+Now that you're halfway, make a list of things you want to accomplish before the baby arrives. Not just nursery and gear — think trips, experiences, couple goals, personal goals. You have about 20 weeks. What's on the list?

@@ -1,40 +1,37 @@
 ---
-subject: "Week 19, Day 6 — Shabbat Shalom: Savoring the Final Stretch Before Halfway 🕯️"
+subject: "Week 19, Day 7 — Tomorrow You're HALFWAY There! 🔮🎉"
 week: 19
-day: 6
+day: 7
 ---
 
-# Week 19, Day 6
+# Week 19, Day 7
 
 ## 👶 Baby Development
-As this mango week nears its end, your baby has been on a developmental tear. Sensory brain regions are wired and active, the vernix coating is thickening, hair is growing on the scalp, and the proportions finally look newborn-like. The nervous system is increasingly sophisticated — baby can now respond to light, sound, touch, taste, and possibly even smell through scent molecules in the amniotic fluid. At 6 inches and growing, your baby is becoming a sensory being, tuned in to their watery world.
+Week 19 is done, and your mango baby has had a spectacular run. The sensory brain regions are now wired and developing rapidly, hair is growing, the vernix caseosa is protecting that delicate skin, and baby's proportions are fully human-looking. At 6 inches, baby is also getting strong enough that your partner can almost certainly feel those kicks and rolls now — or will very soon. Every system is coming online, and the next week marks the incredible halfway point of this journey.
 
 ## 🤰 What Mom Might Be Feeling
-Friday tiredness is probably hitting a little harder these days. The belly is getting heavier, and simple tasks like tying shoes or picking something up from the floor require creative maneuvering. The Mom might also notice some skin itchiness on the belly and breasts as the skin stretches — moisturizing generously helps. If the itching is intense, especially on the hands and feet, mention it to the doctor, as severe itching can rarely indicate a liver condition called cholestasis that needs monitoring.
+Saturday is for rest, and your partner has earned it. She might notice that she needs to pee more frequently as the growing uterus puts more pressure on the bladder. She might also feel some Braxton Hicks contractions — the belly tightens and then relaxes. These are normal "practice contractions." She might also notice increased energy on some days and complete exhaustion on others — the second trimester is a mix, and every day is different.
 
-## 💰 Financial Tip
-Take a look at your monthly spending and identify one subscription or recurring expense you can cut or reduce. Every shekel saved now becomes part of your baby cushion. Also, start collecting hand-me-downs if offered — babies grow so fast that secondhand clothes are often barely worn. There's zero shame in a practical approach.
-
-## 🍼 Gear Tip
-Let's talk breastfeeding gear (even if the Mom is still deciding). If she plans to breastfeed, the essentials are: a quality nursing bra (get fitted around week 36 since size will change), breast pads for leaks, lanolin cream for sore nipples in the early days, and a nursing pillow for positioning. If she's considering pumping, research breast pumps now — some insurance plans cover them, and understanding the options takes time.
-
-## 🧘 Mindfulness Moment
-This Shabbat, do a joint gratitude meditation. Sit together, close your eyes, and take turns saying one thing you're grateful for — out loud, alternating back and forth for 3 minutes. The rule: no repeating, and it can be anything big or tiny. It ends up being surprisingly moving and often funny.
+## 🔮 After-Birth Preview: Postpartum Recovery
+Let's talk honestly about what happens to your partner's body after birth. Recovery from vaginal birth typically takes 4-6 weeks; C-section recovery is usually 6-8 weeks. She'll experience postpartum bleeding (lochia) for 2-6 weeks. Breastfeeding can be physically demanding. Hormones will shift dramatically, which can affect mood, sleep, and energy. The "fourth trimester" (the first 3 months after birth) is as much about mom's recovery as it is about baby's needs. Your role during this time is enormous — handling as much as possible so she can heal and bond with the baby. It's not glamorous, but it's some of the most important work you'll ever do.
 
 ## 🍽️ Nutrition Tip
-Shabbat dinner: shakshuka — a perfect Israeli comfort meal. Saute diced onion, bell pepper, and garlic in olive oil. Add crushed tomatoes, cumin, paprika, and a pinch of cayenne, then simmer for 10 minutes. Make wells in the sauce and crack eggs into them, cover and cook until set. Serve with challah for dipping. Protein, iron, vitamin C, and lycopene — and it brings everyone around the table.
+Prebiotics feed the good bacteria in the gut, which is important for your partner's digestive health (constipation, remember?) and for building baby's gut microbiome. Great prebiotic foods: garlic, onions, bananas, asparagus, and oats. A simple way to incorporate them: add garlic and onions to whatever you're cooking tonight. They're in almost every savory dish, so this one's easy to nail without changing anything.
 
 ## 💪 Exercise & Movement
-Gentle partner yoga: sit back-to-back on the floor. Inhale together, raising arms overhead. Exhale together, folding forward gently (one person at a time while the other provides back support). Take turns for 5 rounds each. Then sit facing each other, hold hands, and gently twist to the same side, then the other. It's about connection through movement, not flexibility.
+Rest day movement: **Gentle Neck and Shoulder Release**. Roll the head slowly side to side, then ear to shoulder (each side, 3 times). Shrug shoulders up to ears, hold for 3 seconds, release. Roll shoulders backward 10 times. Clasp hands behind the back and gently lift the arms to open the chest. Hold for 20 seconds. This 5-minute routine releases the tension that builds up in the neck and shoulders from pregnancy posture changes.
+
+## 😌 Rest & Gratitude
+Tomorrow is the halfway point — week 20! Take this moment to reflect on the past 19 weeks. The positive pregnancy test. The first heartbeat. The first ultrasound. Choosing names. Telling friends and family. The early exhaustion and nausea. The relief of the second trimester. All of those moments have led you here, to the edge of halfway. Whatever you're feeling — excitement, nervousness, awe — feel it fully. You've earned this moment.
 
 ## 💡 Tip for Dad
-Shabbat is a perfect time to practice being present without screens. Put the phone in another room. Look at the Mom when she talks. Listen fully. This skill — being truly present — will be one of the most important things you can give your child. Babies and children don't need perfect parents. They need present ones.
+Tomorrow kicks off the second half of pregnancy. Use today to do something symbolic: write down your biggest hope and your biggest fear about fatherhood on two separate pieces of paper. Fold the hope and put it somewhere visible (wallet, nightstand). Fold the fear and put it somewhere out of sight (bottom of a drawer). Hopes up front; fears acknowledged but not in the driver's seat. Cheesy? Maybe. Effective? Definitely.
 
 ## 💬 Conversation Starter
-What do you want your home to feel like when people walk in? Not how it looks — how it feels. Warm? Lively? Calm? Full of music? What atmosphere do you want to create for your family?
+What's one thing about the first half of this pregnancy that you want to remember forever? And one thing you're glad is over? Celebrate both — the beautiful and the hard are both part of your story.
 
-## 🕯️ Shabbat Couple Activity
-Write a joint letter to each other — not to baby, but to each other. Tell your partner what you've admired about her during this pregnancy. Tell each other what you've learned about yourselves in these 19 weeks. Seal the letters and agree not to read them until the baby is born. On that incredible day, you'll have these letters waiting — a time capsule from the journey that got you there.
+## 🔭 Next Week Preview
+WEEK 20 — HALFWAY! Your baby will be the size of a banana, about 6.3 inches and 10 ounces. Baby is fully formed — from here on, it's all about growing bigger and stronger. Baby can now hear your voice, is swallowing more amniotic fluid, and is producing meconium (baby's first poop, which won't come out until after birth). Your partner's uterus is at belly button level, and kicks should be clearly felt. This is one of the most celebratory weeks of the entire pregnancy.
 
 ## 🎉 Fun Fact
-In Maori culture in New Zealand, the placenta (whenua) is traditionally buried in the land after birth, symbolizing the baby's connection to the earth and their ancestral home. The word "whenua" means both "placenta" and "land" — a beautiful linguistic connection between new life and the ground it belongs to.
+By week 19, your baby has developed a sleeping pattern that takes up about 18-20 hours per day. The remaining 4-6 hours are spent in active periods — kicking, stretching, rolling, and exploring. This sleep-wake pattern will continue after birth, which is why newborns sleep so much (and why those 4-6 hours of wakefulness are spread across 24 hours, not conveniently during the day. Prepare yourself!).

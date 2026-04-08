@@ -1,34 +1,37 @@
 ---
-subject: "Week 17, Day 4 — Hearing Is Coming Online — Baby's First Sounds 🎵"
+subject: "Week 17, Day 5 — Every Joint Is Moving — Your Baby's Got Moves! 🕺"
 week: 17
-day: 4
+day: 5
 ---
 
-# Week 17, Day 4
+# Week 17, Day 5
 
 ## 👶 Baby Development
-This is a landmark development: your baby's hearing is coming online. The tiny bones of the inner ear — the smallest bones in the human body — are hardening, and the auditory system is forming the connections that will eventually let your baby hear the world. Right now, baby can perceive vibrations and some muffled internal sounds: the Mom's heartbeat, blood flowing, digestion. External sounds will become audible in the coming weeks as the brain develops its auditory cortex.
+Your baby can now move every joint in the body — and is doing so enthusiastically. Fingers curl and uncurl, wrists rotate, elbows bend, knees flex, and toes wiggle. These movements help develop the muscles and joints needed for everything from grasping your finger to taking those first steps. The face is becoming more defined too, with a distinct nose bridge and ear shape.
 
 ## 🎉 Fun Fact
-The three tiny bones in the inner ear — the hammer, anvil, and stirrup — are the smallest bones in the human body and are the only bones that are fully formed at birth. They never grow bigger. These three bones are responsible for transmitting sound vibrations from the eardrum to the inner ear, and they're taking shape in your baby right now.
-
-## 🌍 Cultural Deep-Dive
-The womb isn't silent — it's actually quite loud, about 80-90 decibels (think of a running vacuum cleaner). Baby hears a constant backdrop of heartbeat, blood flow, and digestive sounds, which is why many newborns find white noise and shushing so soothing — it reminds them of their first home. In India, the ancient practice of "Garbh Sanskar" encourages playing specific ragas and chanting mantras for the developing baby. In Finland, parents often receive a music box that plays a lullaby chosen during pregnancy, creating continuity between womb life and newborn life.
+Your baby's fingerprints have been forming since around week 13, and by now they're essentially complete. These prints are entirely unique — no one in history has ever had or will ever have the same fingerprints as your baby. They form based on pressure and movement in the womb, making them a one-of-a-kind biological signature even before birth.
 
 ## 🤰 What Mom Might Be Feeling
-The Mom may notice that she feels her heart beating faster or more noticeably. Cardiac output increases significantly during pregnancy — the heart is pumping about 30-50% more blood than before. Mild palpitations are common and usually harmless, but if they're frequent or accompanied by dizziness or chest pain, it's worth mentioning to the doctor. She might also feel warmer and slightly out of breath with less exertion than usual.
+The Mom's belly might be itching as the skin stretches — a good unscented moisturizer applied after showering can help. She might also notice nasal congestion worsening, as pregnancy rhinitis tends to peak during the second trimester (saline spray is safe and effective). On the positive side, many women at 17 weeks report feeling more emotionally balanced than the hormonal roller coaster of the first trimester.
 
-## 🤔 Question of the Day
-The Mom is 17 weeks pregnant and just found out a friend at a similar stage is already feeling kicks. Should you be worried that she hasn't felt movement yet? We'll discuss this tomorrow!
+## 🤔 Yesterday's Answer
+Should you worry if the Mom hasn't felt movement at 17 weeks? Not at all. For first-time moms, feeling movement before 18-20 weeks would actually be unusually early. Most first-timers first notice it between 18 and 22 weeks. Experienced moms identify it sooner because they know what to look for. The position of the placenta also matters: an anterior placenta acts as a cushion between baby and belly, which can delay when movements are felt by a few additional weeks. Bottom line: baby is definitely moving in there, and the Mom will feel it when the time is right.
+
+## 🧠 Mental Health Check-In
+Let's talk about the "comparison trap." It's tempting to compare your pregnancy journey to others — friends, family, social media. Every pregnancy is genuinely different, and comparing only creates unnecessary anxiety. Focus on your own journey, your own baby, and your own timeline. If social media is making either of you feel bad, it's okay to mute pregnancy accounts for a while.
+
+## 💕 Intimacy
+Here's a topic many couples avoid: how body changes affect attraction and desire. The Mom's body is changing rapidly, and she might feel self-conscious about it. Many partners find the pregnant body incredibly attractive — if that's you, tell her. Be specific. And if you're both navigating uncertain feelings about intimacy, that's normal too. Keep talking about it, without pressure or expectation.
 
 ## 🍽️ Nutrition Tip
-A hearty chickpea and sweet potato curry makes a perfect midweek dinner. Saute diced onion and garlic in olive oil, add diced sweet potato, a can of chickpeas, coconut milk, curry paste, and a handful of spinach, then simmer for 20 minutes. Serve over rice. This one-pot meal delivers protein, fiber, iron, and vitamin A, and leftovers taste even better the next day.
+B vitamins (especially B6 and B12) support baby's brain and nervous system development, and B6 can also help with any lingering nausea. Good sources include bananas, chicken, fish, potatoes, and fortified cereals. A simple B-vitamin boost: baked potato topped with tuna salad (canned light tuna is fine in moderation) and a side of steamed broccoli.
 
 ## 💪 Exercise & Movement
-Maintaining upper body strength matters — these muscles will be carrying, rocking, and feeding a baby soon. Using light weights or water bottles: bicep curls (2x12), overhead press (2x10), and lateral raises (2x10). Stand with knees slightly bent and core gently engaged. Think of it as practical training. Rest 30 seconds between sets.
+Calf raises are simple but effective for preventing leg cramps and swelling. Stand on a flat surface, slowly rise up on your toes, hold for 2 seconds, lower slowly. Do 3 sets of 15 — hold onto a counter or chair for stability. These improve circulation in the lower legs, and the Mom can do them while brushing her teeth or waiting for the kettle to boil.
 
 ## 💡 Tip for Dad
-Create a playlist for your baby. Pick songs you love, songs that make you happy, songs you want your baby to know. Play it near the Mom's belly over the coming weeks. There's evidence babies can recognize music they heard in the womb, and beyond the science, it's a beautiful way to share a piece of yourself with your child before they arrive.
+Plan something that has nothing to do with the baby this week. Take your partner to a restaurant you both love, see a show, go bowling — whatever you used to do together before pregnancy took over your conversations. You're still a couple, not just parents-in-training.
 
 ## 💬 Conversation Starter
-What song would you want playing in the delivery room? Some couples want calm, meditative music. Others want their favorite hype-up song. And some want complete silence. There's no wrong answer — talk about what kind of atmosphere you want for that moment.
+What's one skill you want to learn before the baby comes? CPR? Basic baby first aid? Cooking a few go-to meals? Swaddling? Pick one each and learn it together in the coming weeks.

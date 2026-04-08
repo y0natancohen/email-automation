@@ -1,37 +1,31 @@
 ---
-subject: "Week 18, Day 1 — Sweet Potato Baby & The Anatomy Scan Awaits! 🍠"
+subject: "Week 18, Day 2 — Myelin Magic: Baby's Nerves Are Getting Faster ⚡"
 week: 18
-day: 1
+day: 2
 ---
 
-# Week 18, Day 1
-
-## 🌒 This Week at a Glance
-Welcome to week 18 — one of the most exciting weeks of the entire pregnancy! Your baby is the size of a sweet potato, about 5.6 inches long and weighing around 6.7 ounces, and developing at an incredible pace. The ears have reached their final position on the sides of the head, and myelin — a fatty coating that insulates nerve fibers — is beginning to form, which will speed up nerve signals throughout the body. Baby is yawning, hiccupping, and stretching. If you're having a girl, her uterus and fallopian tubes are now in place; if a boy, the genitals may be visible on ultrasound. And the big event: the anatomy scan is typically scheduled between weeks 18-22, and it's one of the most memorable appointments of the entire journey.
-
-## 🎉 Fun Fact
-Your baby can now yawn — and researchers have observed that yawning in the womb may serve a different purpose than after birth. While postnatal yawning is linked to tiredness, fetal yawning may help develop the jaw and facial muscles and could play a role in brain development. Baby is literally yawning their way to a more developed brain.
+# Week 18, Day 2
 
 ## 👶 Baby Development
-Myelin, the protective coating around nerve fibers (like insulation on a wire), is starting to form. This is huge — myelin allows nerve signals to travel faster and more efficiently, and its development will continue well after birth. Baby is also doing some very human things: yawning, hiccupping, and rolling from side to side. Hearing is improving rapidly now that the ears are in their final position.
+Myelin production is ramping up, and this is a game-changer. With myelin insulating the nerve fibers, signals travel faster and more reliably — meaning baby's reflexes are getting quicker, movements are more coordinated, and sensory systems are becoming more efficient. The process of myelination is so important that it continues well into your child's twenties, but it's starting right now at 18 weeks.
+
+## 🎉 Fun Fact
+The anatomy scan uses ultrasound waves — sound at frequencies too high for humans to hear. These waves bounce off baby's structures and create an image. It's completely safe (no radiation involved) and has been used since the 1950s. Some babies seem to react to the ultrasound probe — waving, kicking, or even turning away. Don't be surprised if yours puts on a show.
 
 ## 🤰 What Mom Might Be Feeling
-The Mom might feel the baby's first movements this week — or sometime very soon. For first-time moms, quickening typically happens between weeks 18-22. Those first flutters are magical but confusing — many women describe them as bubbles, gas, or a gentle tapping from inside. Physically, the belly is unmistakably pregnant now, and she might feel lower back pain as the weight distribution changes.
+Leg cramps might be getting more frequent, especially at night — possibly related to the extra weight, changes in circulation, or mineral levels. The Mom might also feel some tightness or pressure low in the belly as the uterus grows. Braxton Hicks contractions (practice contractions) can start showing up now — they feel like the belly getting very tight for 30-60 seconds and then releasing. They're irregular, not painful, and completely normal.
+
+## 🤔 Yesterday's Answer
+The anatomy scan is so much more than finding out the sex. It's the most comprehensive ultrasound of the pregnancy. The sonographer checks the brain structure, all four heart chambers and blood flow, the spine, kidneys, stomach, bladder, limb length and bone structure, placenta position and health, umbilical cord vessels, and amniotic fluid volume. They'll also measure baby from head to toe to confirm growth is on track. Finding out the sex is optional — and honestly, almost a footnote compared to everything else being evaluated. The scan usually takes 30-45 minutes and gives enormous peace of mind.
 
 ## 🍽️ Nutrition Tip
-Sweet potatoes are the star this week (fitting, right?). They're loaded with beta-carotene, which the body converts to vitamin A — essential for baby's eye, skin, and immune system development. Try a loaded sweet potato: bake one at 400F (200C) for 45 minutes, split it open, and top with black beans, corn, avocado, a dollop of sour cream, and a squeeze of lime. A complete meal that's as delicious as it is nutritious.
+DHA (an omega-3 fatty acid) is especially important right now as myelin forms — it's a key component of the myelin sheath and brain tissue. If fish hasn't been appealing, try walnut banana oatmeal: cook oats with milk, stir in a mashed banana, top with crushed walnuts and a drizzle of honey. Walnuts are one of the best plant sources of omega-3s — quick, warm, and brain-boosting.
 
 ## 💪 Exercise & Movement
-The "Clam" exercise strengthens the outer hips and glutes. Lie on your side, knees bent at 45 degrees, feet together. Keeping feet touching, lift the top knee as high as you can without rotating the pelvis, then lower slowly. Do 15 per side, 2 sets. This helps with hip stability and can reduce pelvic pain as the pelvis loosens for birth.
+Seated rowing strengthens the upper back, which helps with posture as the belly pulls the spine forward. Sit with feet flat, hold light weights or resistance bands, pull elbows back squeezing shoulder blades together, then extend forward. Do 3 sets of 12. Strong upper back muscles counteract the "hunching forward" tendency that comes with a growing belly.
 
 ## 💡 Tip for Dad
-The anatomy scan might be coming up soon. Before you go, discuss with the Mom: do you want to find out the sex of the baby? Make sure you're both aligned before you're in the room and the sonographer asks. Whatever you decide is the right decision.
+Before the anatomy scan, write down any questions you want to ask. Common ones: Is the placenta in a good position? Is baby measuring on track? Are there any areas of concern? Is the amniotic fluid level normal? Having questions ready means you walk out feeling informed, not wishing you'd asked something.
 
 ## 💬 Conversation Starter
-Do you want to find out if baby is a boy or a girl — or wait for the surprise? If you've already decided, talk about why. If you disagree, talk about that too. There's something to be said for both choices.
-
-## 🤔 Question of the Day
-What exactly does the anatomy scan check? Is it just about finding out the sex, or is there more to it? We'll break it down tomorrow!
-
-## 👫 Couple Activity
-Sweet Potato Cook-Off! Each of you prepares a sweet potato dish — any recipe you want, simple or elaborate. Then taste-test each other's creation and vote on a winner. The loser does the dishes. A fun, low-pressure way to spend an evening together.
+What's the first trip you want to take as a family of three? It doesn't have to be far — even a weekend away counts. Planning something to look forward to beyond the birth gives you both a happy horizon to aim toward.

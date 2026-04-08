@@ -1,34 +1,34 @@
 ---
-subject: "Week 12, Day 3 — The Intestines Are Moving Back Inside Where They Belong 🏠"
+subject: "Week 12, Day 4 — Your Baby Can Now Suck and Swallow: Reflexes Are Online 🍼"
 week: 12
-day: 3
+day: 4
 ---
 
-# Week 12, Day 3
+# Week 12, Day 4
 
-## 🏠 Baby Development
-The big migration is underway. The intestines, which had been looping into the umbilical cord because the abdomen was too small, are settling into their permanent position as the abdominal cavity grows to accommodate them. They're also starting to practice peristalsis — the wave-like muscle contractions that push food through the digestive system. Your baby's face is looking more proportional too: the chin is more defined, the forehead is less dominant, and the profile on ultrasound now shows a recognizably baby-like silhouette.
+## 🍼 Baby Development
+Reflexes are coming alive. Your baby can now suck and swallow — two skills that will be essential from the very first feeding after birth. On ultrasound, babies at this stage are sometimes seen bringing their hands to their mouths and even sucking their thumbs. The rooting reflex (turning the head toward something that touches the cheek) is also beginning to wire up. Your baby's face is showing more movement, though true voluntary expressions won't come for another couple of weeks.
 
 ## 🎉 Fun Fact
-Your baby's vocal cords are beginning to form this week, though they won't be used until birth. The first cry is powered by the lungs taking in air for the first time and pushing it past the vocal cords — a process that happens within seconds of delivery. That first cry signals that the respiratory system has successfully transitioned from fluid to air.
+Your baby's kidneys are now producing urine — and they'll keep doing it for the rest of the pregnancy. By full term, your baby will produce about 500-700 ml of urine per day, making up a significant portion of the amniotic fluid. This urine is very different from adult urine — it's mostly water with minimal waste products, since the placenta handles the heavy-duty filtering.
 
 ## 🤰 What Mom Might Be Feeling
-The Mom might notice a subtle shift in energy this week — not a dramatic change, but a slight lifting of the first-trimester fog. The placenta is beginning to take over hormone production from the corpus luteum, and this hormonal transition is partly why many women start feeling better around now. Skin changes may continue — sunscreen is more important than ever during pregnancy because the skin is more sensitive to UV damage.
+The uterus has grown to the point where a healthcare provider can feel it above the pubic bone during an abdominal exam. The Mom might be able to feel the firm top of the uterus (the fundus) by pressing gently above the pubic bone. Food cravings might be getting specific and intense — as long as she's not craving non-food items (like dirt, chalk, or ice — which can indicate iron deficiency and should be mentioned to the doctor), indulging cravings is perfectly fine.
 
 ## 🍽️ Nutrition Tip
-Sweet potato and black bean tacos make for comforting, nutrient-packed comfort food. Toss diced sweet potato with olive oil, cumin, paprika, and salt, then roast until tender. Warm black beans with a pinch of cumin, assemble on tortillas with avocado, sour cream, fresh cilantro, and lime. Sweet potatoes are rich in beta-carotene (crucial for eye development), fiber, and potassium.
+Manganese is a trace mineral that helps form your baby's bones and cartilage. It's found in whole grains, nuts, soybeans, leafy greens, and pineapple. A simple way to get more: switch from white rice to brown rice, and snack on pecans or hazelnuts. A cup of cooked oatmeal provides about 1.4 mg of the 2 mg daily target.
 
 ## 💪 Exercise & Movement
-The seated hip opener is gentle enough to do at a desk. Sit on a chair with feet flat, cross one ankle over the opposite knee (figure-4 position), sit tall, and gently lean forward from the hips until you feel a stretch in the outer hip. Hold 20 seconds, switch sides, repeat three times. It targets the piriformis muscle, which can get tight during pregnancy and contribute to lower back pain.
+A prenatal yoga flow is a great way to build flexibility and reduce stress. Try moving through mountain pose, modified warrior II, triangle pose, cat-cow, a modified pigeon pose, and finish with child's pose for a minute of deep breathing. Fifteen minutes covers flexibility, strength, and calm. Many communities in Israel offer prenatal yoga classes (yoga herayon).
 
 ## 💡 Tip for Dad
-If the pregnancy news is still private, you're carrying a secret — and that can be isolating. Consider telling one trusted person — a close friend, a sibling, or a parent. Having someone you can talk to outside the pregnancy makes a difference. Ask the Mom who she's comfortable with you telling. Sometimes the secret itself becomes a source of stress.
+Start reading about the stages of labor — not to become an expert, but to understand what the Mom will go through. Knowing the difference between early labor, active labor, and the pushing stage helps you be a better support person. Knowledge replaces fear with preparedness. Ask about birth preparation courses (hachana l'leida) through your kupat cholim.
 
 ## 💬 Conversation Starter
-What do you think your child's first word will be? What do you want it to be? Spoiler: it'll probably be something random like "light" or "dog." But dreaming about it is half the fun.
+What's one thing you want to make sure you DON'T do as parents? Sometimes knowing what to avoid is as valuable as knowing what to aspire to. This conversation helps establish shared boundaries.
 
-## 😴 Sleep Tip
-If the Mom is a stomach sleeper, she may be finding that position increasingly uncomfortable. A pregnancy pillow can make a huge difference — U-shaped ones provide support for both back and belly, while C-shaped ones offer side support without taking up the entire bed. This might be worth investing in now, before the belly really starts growing.
+## 🔬 Deep Dive: The Incredible Placenta
+The placenta is arguably the most remarkable organ in human biology. It's the only organ built from scratch for a single purpose and then discarded. By full term, it will be about 22 cm in diameter and weigh about 500 grams, containing roughly 200 miles of blood vessels. It transfers oxygen, nutrients, and antibodies to the baby while removing waste, produces hormones that maintain the pregnancy, and acts as a barrier against many harmful substances — all while keeping the mother's and baby's blood supplies completely separate. Right now, it's taking over hormone production from the corpus luteum, which is partly why many women start feeling better around this time.
 
-## 💼 Workplace Pregnancy Tip
-If the Mom is considering when to tell her workplace, week 12 or 13 is a common time (after screening results). Telling a supervisor before colleagues gives them time to plan for coverage during maternity leave. In Israel, the Mom is entitled to 26 weeks of maternity leave (15 weeks paid by Bituach Leumi, the remainder unpaid but protected), and she can start leave up to 7 weeks before the due date.
+## 🤔 Question of the Day
+Your baby is surrounded by amniotic fluid, which is mostly water. But amniotic fluid also contains some interesting components. Can you guess what else is in there besides water? (Hint: it includes proteins, sugars, and something else you might not expect.) Answer tomorrow.

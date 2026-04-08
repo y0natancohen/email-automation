@@ -1,41 +1,34 @@
 ---
-subject: "Week 35, Day 2 — Group B Strep: What You Need to Know 🧪"
+subject: "Week 35, Day 3 — The Art of the Third Trimester Nap 💤"
 week: 35
-day: 2
+day: 3
 ---
 
-# Week 35, Day 2
+# Week 35, Day 3
 
 ## 👶 Baby Development
-Your baby's skull bones are developed but not yet fused — by design. The separate plates can overlap slightly during birth, allowing the head to fit through the birth canal. This is why some newborns have a slightly cone-shaped head at first; it rounds out within a few days. The fontanelles will remain open for months after birth to allow the brain to continue growing.
-
-## 🎉 Fun Fact
-Your baby is swallowing up to a liter of amniotic fluid per day. This helps develop the digestive system and contributes to the formation of meconium — baby's first poop, which makes its debut in the first day or two after birth. Fair warning: meconium is dark, sticky, and tar-like. Normal, but memorable.
+Fat stores are increasing rapidly, and not just for the cute chubby look. This fat serves two critical purposes: insulation for temperature regulation after birth, and energy reserves for the first days of life before breastfeeding is fully established. The skin is becoming smoother and less wrinkled as these fat deposits fill out underneath.
 
 ## 🤰 What Mom Might Be Feeling
-Frequent urination is probably at an all-time high — the Mom might feel like she just went and already needs to go again. Heartburn, back pain, and difficulty sleeping continue to be the not-so-fun trio of late pregnancy. Emotionally, the nesting urge may feel intense — wanting everything perfect and ready. Let her nest, but make sure she's not lifting heavy things or climbing ladders.
+Edema — swelling in the feet, ankles, and hands — might be at its worst. Rings may feel tight, shoes may feel small. This is due to increased blood volume and fluid retention, and it's generally harmless. However, if swelling is sudden or severe (especially in the face) or accompanied by headache or vision changes, call the care provider immediately, as this could be a sign of preeclampsia.
 
 ## 🍽️ Nutrition Tip
-Fiber remains the Mom's best friend. Constipation in late pregnancy is incredibly common due to hormones and uterine pressure on the intestines. High-fiber foods to keep stocked: oatmeal, berries, pears, broccoli, lentils, and whole grain bread. Pair with plenty of water — at least eight to ten glasses a day. Dried prunes are a natural and effective remedy when things are really backed up.
+No-bake date energy balls make a perfect grab-and-go snack: blend pitted dates into a paste, mix with oats, almond butter, cocoa powder, chia seeds, honey, and a pinch of salt, then roll into small balls and refrigerate. Makes about 15 — packed with iron, fiber, and natural energy. Stash a few in the hospital bag too.
 
 ## 💪 Exercise & Movement
-Starting around 35-36 weeks, perineal massage can help prepare the tissues for stretching during birth and may reduce the risk of tearing. Using a natural oil (olive or coconut), gently massage and stretch the perineal area for about five to ten minutes, a few times per week. It's not glamorous, but research supports its benefits for first-time moms. Keep up daily walks and pelvic floor exercises alongside it.
+If the Mom is dealing with swollen feet and ankles, elevating the legs for 15-20 minutes several times a day helps. Ankle circles and foot pumps (pointing toes up and down) while lying down improve circulation. Avoid prolonged standing, keep feet up on a stool when sitting, and compression socks can be surprisingly effective.
 
 ## 💡 Tip for Dad
-Learn about the "golden hour" — the first hour after birth. During this time, the baby is placed skin-to-skin on the Mom's chest (or on you, if she's unable). This hour is crucial for bonding, regulating the baby's temperature, and initiating breastfeeding. Knowing about it means you can advocate for it in the delivery room. Let your birth team know it matters to you.
+Start preparing freezer meals — one of the most practical things you can do before the baby arrives. Cook double portions of soups, stews, casseroles, and pasta sauces and freeze them in labeled containers. Aim for at least 7-10 meals in the freezer by the due date. When the baby arrives and cooking feels impossible, you'll pull out a home-cooked meal in minutes.
 
 ## 💬 Conversation Starter
-"What do we want the first hour after birth to look like? Who do we want in the room? What are our priorities?"
+"What are we most looking forward to about the first year? What milestone are you most excited for?" First smile? First laugh? First steps? Dreaming about the good stuff counterbalances the anxiety.
 
-## 🤔 Yesterday's Answer
-Group B Strep (GBS) — here's the deal:
+## 🎉 Fun Fact
+Babies practice breathing in the womb by inhaling and exhaling amniotic fluid, and occasionally they get hiccups from this. Fetal hiccups feel like small, rhythmic pulses — different from kicks — and can last 15-20 minutes, happening multiple times a day.
 
-GBS is a type of bacteria that about 25% of healthy women carry in their vaginal or rectal area. It's completely harmless to the mother but can potentially be passed to the baby during delivery. In rare cases, it can cause infection in newborns.
+## 🛏️ Sleep Tip
+For the 3 AM wakeup (and it will happen): instead of lying there frustrated, get up, use the bathroom, sip water, do five minutes of gentle stretching or slow breathing, then return to bed with a boring podcast or audiobook — not a screen. The key is accepting wakefulness without fighting it, since resistance creates more tension. A banana before bed can help too, as it contains tryptophan and magnesium, both of which promote sleep.
 
-The test is simple — a swab of the vagina and rectum, done between weeks 35 and 37. Results take a couple of days.
-
-If positive, the Mom will receive IV antibiotics during labor (usually penicillin). The antibiotics are very effective at preventing transmission. She won't need antibiotics before labor — only during active labor.
-
-If negative, no antibiotics needed for GBS.
-
-Should you worry? Not really. GBS is common, the test is easy, and the treatment is straightforward. It's standard screening to keep the baby safe. Ask about timing at the next prenatal appointment.
+## 💼 Workplace Tip
+Make sure your workplace knows you might need to leave suddenly in the coming weeks. Prepare for your most important tasks: who takes over what, where key files are, how to reach you. Set up an out-of-office message template now so you can activate it with one click. The peace of mind from being professionally prepared is worth the planning time.

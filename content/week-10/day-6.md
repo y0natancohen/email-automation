@@ -1,36 +1,37 @@
 ---
-subject: "Week 10, Day 6 — Shabbat Shalom: A Moment to Breathe and Connect 🕯️"
+subject: "Week 10, Day 7 — Week 10 Complete: All Major Organs Are in Place ✅"
 week: 10
-day: 6
+day: 7
 ---
 
-# Week 10, Day 6
+# Week 10, Day 7
 
 ## 🎉 Fun Fact
-Your baby is now producing its own blood type, which may be different from both of yours. Blood type is determined by a combination of alleles inherited from each parent, so your baby could be type A, B, AB, or O. If the Mom is Rh-negative and the father is Rh-positive, the baby might be Rh-positive too — the doctor will manage this with a Rhogam injection later in pregnancy.
+Your baby now has functioning kidneys producing tiny amounts of urine, which is excreted into the amniotic fluid and becomes part of what the baby swallows. This swallow-and-recycle loop is essential for lung development and maintaining the right fluid balance. It's a beautifully self-sustaining system.
 
 ## 👶 Baby Development
-The diaphragm — the muscle that will eventually control breathing — is forming today. Your baby won't take a real breath until birth (oxygen comes through the placenta), but the body is already building the equipment. The intestines are growing so rapidly that they temporarily loop into the umbilical cord, since there isn't room in the tiny abdomen yet — they'll migrate back inside over the next couple of weeks. Genitals are beginning to differentiate, though it's still too early to tell the sex on ultrasound.
+As week 10 wraps up, every major organ system is now in place. From here on out, it's about growth and maturation rather than formation. The face is becoming more recognizably human — eyes have moved toward the front of the head, eyelids are fused shut (they'll stay that way until about week 27), and the upper lip and nose are fully formed.
 
 ## 🤰 What Mom Might Be Feeling
-As the week winds down, the Mom may be emotionally drained as well as physically tired. First-trimester mood swings are real — tears over a commercial, irritation over nothing, deep tenderness followed by frustration. These shifts are driven by massive hormonal changes and are completely normal. Some women also notice increased thirst as the body demands more fluids to support expanded blood volume.
+The Mom is firmly in the back half of the first trimester now. For many women, weeks 8-10 are the peak of nausea, so there's hope on the horizon — most find symptoms begin to ease between weeks 12 and 14. She may also notice her gums bleeding when she brushes (pregnancy gingivitis), caused by increased blood flow and hormonal changes. It's very common.
 
 ## 🍽️ Nutrition Tip
-Hydration is more important than ever right now. The Mom should aim for about 10 cups (2.3 liters) of fluids per day. If plain water triggers nausea, try infusing it with cucumber and mint or frozen berries. Coconut water is a good natural electrolyte option, and soups and smoothies count too. Dehydration can worsen nausea, headaches, and fatigue — three things she's probably already dealing with.
+Vitamin D helps with calcium absorption, and many people don't get enough — especially when spending most of the day indoors. Good sources include sunlight (15 minutes a few times a week), fortified milk or orange juice, egg yolks, and fatty fish. Most prenatal vitamins include some vitamin D, but often not enough. Worth asking about at the next appointment.
 
 ## 💪 Exercise & Movement
-Rest day. If the Mom has been active this week, today is a great day to slow down. A gentle stretch or a short walk is plenty. The guiding principle: movement should feel good, not punishing.
+If there's a pool nearby, prenatal swimming is one of the best pregnancy exercises. The water supports body weight, reduces strain on joints, works all major muscle groups, and the buoyancy can bring real relief from aches. Even floating quietly for 15 minutes can feel heavenly. Many pools in Israel offer prenatal water exercise classes (hitamlut mayim).
 
 ## 💡 Tip for Dad
-Tonight, handle dinner entirely — cook, order in, or set up a picnic on the living room floor. Decision fatigue is real, and removing even small choices can be a huge relief. Keep it simple and based on whatever she can stomach right now.
+Start a pregnancy photo tradition today — same spot, same angle, every week or two. These photos become incredibly meaningful over time. Make it fun: hold up a piece of fruit that matches the baby's current size. This week's prop: a strawberry.
 
 ## 💬 Conversation Starter
-What does a perfect regular day look like with your baby, a year from now? Not holidays or special occasions — just a Tuesday. Morning routine, who does what, how the day flows. This conversation helps you start building a shared vision.
+What's one thing you want to do before the baby arrives — just the two of you? It doesn't have to be a fancy trip. A specific restaurant, a hike, a lazy weekend, or a project you want to finish together. Start building your list.
 
-## 💰 Financial Tip
-Start a baby budget spreadsheet while there's no rush. The main categories: one-time costs (stroller, car seat, crib, monitor), monthly costs (diapers at roughly 200-300 NIS/month, plus formula if needed and eventually childcare), and medical costs (check kupat cholim coverage vs. supplementary insurance). In Israel, mothers get 15 weeks of paid maternity leave, and partners get 7 days of paid paternity leave with the option for the mother to transfer some of her remaining leave.
+## 🍼 After-Birth Preview: The Golden Hour
+The first hour after birth is called the "golden hour." Placing the newborn skin-to-skin on the mother's chest immediately after delivery stabilizes the baby's temperature, heart rate, and breathing, promotes bonding, and helps initiate breastfeeding. Many hospitals in Israel support this practice. Dads can do skin-to-skin too — and it's equally magical.
 
-## 🕯️ Shabbat Moment
-Before Shabbat begins, try sitting facing each other, closing your eyes, and taking five deep breaths — in for 4 counts, out for 6. Then open your eyes and look at each other for 30 seconds without speaking. It sounds simple, but it's surprisingly powerful.
+## 🙏 Rest & Gratitude
+You've completed 10 weeks — one quarter of the journey. Your baby went from a cluster of cells to a miniature human with a beating heart, functioning organs, and tiny fingers that can bend. Whatever this week brought, you both showed up. Rest well today.
 
-For a weekly ritual, try the Gratitude Exchange: each of you shares three things you're grateful for this week — one about yourself, one about each other, and one about the pregnancy. Two minutes, and it shifts focus from stress to wonder.
+## 🔮 Next Week Preview
+Week 11 is coming. Your baby will be the size of a fig, moving almost constantly, with facial features becoming more distinct, nasal passages opening, and hair follicles beginning to form. If you're doing first-trimester screening, it may happen in the next couple of weeks.

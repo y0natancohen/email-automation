@@ -1,34 +1,34 @@
 ---
-subject: "Week 11, Day 3 — Hair Follicles Are Forming All Over Your Baby's Body 💇"
+subject: "Week 11, Day 4 — Those Tiny Hands Can Now Open and Close Into Fists ✊"
 week: 11
-day: 3
+day: 4
 ---
 
-# Week 11, Day 3
+# Week 11, Day 4
 
 ## 🎉 Fun Fact
-Your baby's intestines are growing so rapidly that they temporarily extend into the umbilical cord — there simply isn't enough room in the abdomen yet. This happens to every human during development and is completely normal. Over the next week or two, the intestines will migrate back inside as the body grows to accommodate them.
+Your baby can already hiccup, and it's happening regularly. These are caused by sudden contractions of the developing diaphragm — essentially practice for the breathing movements needed after birth. You can't feel them yet, but later in pregnancy, fetal hiccups show up as a rhythmic, repetitive tapping, distinctly different from kicks and rolls.
 
-## 👶 Baby Development
-Hair follicles are forming across the entire body this week. These will eventually produce lanugo — a fine downy hair that covers the baby starting around week 14. Lanugo helps regulate body temperature and keeps the vernix caseosa (a waxy protective coating) anchored to the skin. Most of it sheds before birth, but some babies arrive with traces on the shoulders and back. Meanwhile, your baby's posture is straightening out — less curled-up shrimp, more tiny human.
+## ✊ Baby Development
+Those tiny fingers can now open wide and close into fists. The movements are still reflexive, but the motor pathways between brain and muscles are forming rapidly. The palms are developing touch sensitivity, and the head now makes up about half the body length, down from two-thirds just a few weeks ago. Proportions are shifting toward something more recognizably baby-like.
 
 ## 🤰 What Mom Might Be Feeling
-Heartburn may make an appearance this week. Progesterone relaxes the valve between the stomach and esophagus, letting acid creep upward — and this tends to worsen as pregnancy progresses. Helpful strategies: smaller, more frequent meals; staying upright after eating; avoiding spicy and acidic triggers; and keeping the head of the bed slightly elevated. Antacids like Tums are generally safe, but check with the doctor about specific brands.
+The Mom's sense of balance may feel slightly off. The growing uterus is shifting her center of gravity, and hormonal changes are loosening ligaments and joints — especially in the pelvis, in preparation for birth. She may feel more clumsy or unsteady than usual. Supportive shoes become more important now. Many women also report that evenings are the hardest, when fatigue compounds the hormonal shifts.
 
 ## 🍽️ Nutrition Tip
-Protein is essential for rapid cell growth right now. A simple power bowl hits the mark: cooked quinoa topped with edamame, avocado, a soft-boiled egg, cherry tomatoes, and a tahini-soy-lemon dressing. Takes about 15 minutes and delivers roughly 25 grams of protein — about a third of the daily pregnancy requirement.
+Iodine is an unsung hero of pregnancy nutrition — essential for brain development and thyroid function. The pregnancy requirement is 220 micrograms per day. Most people get iodine from iodized salt, dairy, eggs, and fish. Many prenatal vitamins contain it, but not all — check the label. If the Mom mainly uses sea salt or kosher salt for cooking, those typically aren't iodized.
 
 ## 💪 Exercise & Movement
-A quick shoulder and upper back release can counteract the forward-hunching posture that becomes common as breasts grow. Clasp hands behind the back, gently lift while squeezing shoulder blades together, and hold for 10 seconds. Then interlace fingers in front, round the upper back, and push hands forward. Five repetitions of each takes under five minutes.
+Wall push-ups are a great pregnancy-safe upper body exercise. Stand about arm's length from a wall, hands flat at shoulder height, and bend the elbows to bring the chest toward the wall, then push back. Three sets of 12. Stronger arms and shoulders will be incredibly useful for carrying, feeding, and soothing a newborn.
 
 ## 💡 Tip for Dad
-Run an errand she's been putting off — a prescription, groceries, a bill. Don't ask "do you need anything?" (she might say no out of politeness or exhaustion). Instead, notice what needs doing and just do it. The magic is in removing items from her mental load without being asked.
+Write down three questions for the next prenatal appointment. Having questions prepared shows you're engaged. Good ones for this stage: when to schedule first-trimester screening, whether any additional tests make sense given your ages and history, and what warning signs to watch for.
+
+## 🔬 Deep Dive: The Nuchal Translucency (NT) Scan
+The NT scan is typically performed between 11 weeks + 5 days and 13 weeks + 6 days. It measures the fluid-filled space at the back of the baby's neck using ultrasound. Combined with blood work (free beta-hCG and PAPP-A) and maternal age, it gives a risk estimate for chromosomal conditions. This is a screening, not a diagnostic test — a high-risk result means further testing may be offered. For many couples, this ultrasound is also the most detailed look at the baby so far, and it can be deeply emotional.
 
 ## 💬 Conversation Starter
-What's one thing from your childhood home — a smell, a sound, a feeling — that you'd love your child to experience? Maybe it's challah baking, or the sound of family gathered around a table. Sensory memories run deep.
+What do you think will be the hardest adjustment when the baby comes? And what do you think will come naturally? The goal isn't to have all the answers — it's to know you're both thinking about it.
 
-## 😴 Sleep Tip
-If the Mom is experiencing vivid or bizarre dreams, she's not alone. Pregnancy dreams are famously intense, thanks to hormonal changes and more frequent nighttime waking (which means more dream recall). These dreams are normal and harmless. If nightmares are causing anxiety, talking about them can help take away their power.
-
-## 💼 Workplace Tip
-"Pregnancy brain" — forgetfulness, difficulty concentrating — is real, not imagined. Research confirms that cognitive function can be slightly affected during pregnancy. Practical strategies: to-do lists, phone reminders, a work notebook for meeting notes, and self-compassion. It's temporary and has nothing to do with competence.
+## 🤔 Question of the Day
+Your baby's heart is beating at around 160-170 beats per minute right now. There's an old wives' tale that higher heart rate means girl, lower means boy. Is there any truth to it? We'll reveal what the research says tomorrow.
