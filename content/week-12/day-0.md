@@ -1,5 +1,5 @@
 ---
-subject: "Week 12, Day 1 — Welcome to the Final Week of the First Trimester! 🍋"
+subject: "Week 12, Day 1 — Reflexes Are Coming Online: Your Baby Is the Size of a Lime 🍋"
 week: 12
 day: 1
 ---
@@ -7,7 +7,7 @@ day: 1
 # Week 12, Day 1
 
 ## 🌒 This Week at a Glance
-This is it — week 12, the grand finale of the first trimester. Your baby is now the size of a lime, measuring roughly 5.4 cm (2.1 inches) and weighing about 14 grams. Reflexes like sucking and swallowing are coming online, the kidneys are producing urine, fingernails are beginning to form, and the intestines are migrating from the umbilical cord back into the abdomen. The nuchal translucency (NT) scan is usually performed this week. And perhaps the most reassuring milestone: after this week, the miscarriage risk drops from about 1-5% to less than 1%.
+Welcome to week 12 — the second-to-last week of the first trimester. Your baby is now the size of a lime, measuring roughly 5.4 cm (2.1 inches) and weighing about 14 grams. Reflexes like sucking and swallowing are coming online, the kidneys are producing urine, fingernails are beginning to form, and the intestines are migrating from the umbilical cord back into the abdomen. The nuchal translucency (NT) scan is usually performed this week. And perhaps the most reassuring milestone: after this week, the miscarriage risk drops from about 1-5% to less than 1%.
 
 For many couples, reaching week 12 feels like exhaling for the first time.
 

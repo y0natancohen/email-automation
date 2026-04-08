@@ -1,5 +1,5 @@
 ---
-subject: "Week 13, Day 7 — Week 13 Done: Your Baby Has Fingerprints and a Voice Box ✅"
+subject: "Week 13, Day 7 — First Trimester COMPLETE. You Made It! 🎉"
 week: 13
 day: 7
 ---
@@ -34,4 +34,4 @@ Postpartum recovery is real, and it takes time. Physical recovery from a vaginal
 Week 13 is done. The first trimester is behind you. Your baby has fingerprints — a unique identity, already forming, unlike any other human who has ever existed. Whatever this week brought, you showed up. And that's what parenting is, at its core: showing up, day after day.
 
 ## 🔮 Next Week Preview
-Week 14 brings more exciting developments. Your baby will be the size of a lemon and can squint, frown, and grimace — real facial expressions. The palate will be fully formed, lanugo starts covering the skin, the thyroid gland begins producing hormones, and your baby will start practicing breathing movements. The Mom's belly will likely become more noticeable, and the second-trimester energy boost should be in full swing.
+Week 14 — welcome to the second trimester, the "golden trimester." Your baby will be the size of a lemon and can squint, frown, and grimace — real facial expressions. The palate will be fully formed, lanugo starts covering the skin, the thyroid gland begins producing hormones, and your baby will start practicing breathing movements. The Mom's belly will likely become more noticeable, and the second-trimester energy boost should be in full swing.

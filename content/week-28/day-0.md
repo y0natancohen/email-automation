@@ -1,5 +1,5 @@
 ---
-subject: "Week 28, Day 1 — Your Baby Has Eyelashes! 👁️"
+subject: "Week 28, Day 1 — Welcome to the Third Trimester! Your Baby Has Eyelashes 👁️"
 week: 28
 day: 1
 ---
@@ -7,7 +7,7 @@ day: 1
 # Week 28, Day 1
 
 ## 🌒 This Week at a Glance
-Welcome to week 28. Your baby is about 14.8 inches long and weighs around 2.2 pounds. Tiny eyelashes are now in place, framing eyes that can sense light filtering through the womb. The brain is building billions of neurons, REM sleep is increasing, and antibodies are transferring from the Mom to build up the baby's immune system. Some babies begin positioning head-down this week, though there's still plenty of room to move around. If the Mom is Rh-negative, this is typically when the RhoGAM shot is given.
+Welcome to week 28 — the official start of the third trimester, the home stretch. Your baby is about 14.8 inches long and weighs around 2.2 pounds. Tiny eyelashes are now in place, framing eyes that can sense light filtering through the womb. The brain is building billions of neurons, REM sleep is increasing, and antibodies are transferring from the Mom to build up the baby's immune system. Some babies begin positioning head-down this week, though there's still plenty of room to move around. If the Mom is Rh-negative, this is typically when the RhoGAM shot is given.
 
 ## 🎉 Fun Fact
 Your baby is dreaming. REM sleep is well established by week 28, and while we can't know exactly what babies dream about, researchers believe they're processing their sensory world — sounds, movements, and the feeling of being held in warm amniotic fluid. A cozy preview of consciousness.

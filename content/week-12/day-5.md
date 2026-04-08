@@ -1,5 +1,5 @@
 ---
-subject: "Week 12, Day 6 — Shabbat Shalom: The First Trimester Victory Lap 🕯️"
+subject: "Week 12, Day 6 — Shabbat Shalom: The First Trimester Home Stretch 🕯️"
 week: 12
 day: 6
 ---
@@ -13,7 +13,7 @@ Your baby's face is looking beautifully human this week. The eyes have moved clo
 Your baby's movement repertoire is impressive: kicks, stretches, face-touching, head-turning, mouth opening and closing, and even what looks like "breathing" movements (moving amniotic fluid in and out of the lungs). One study found that 12-week fetuses exhibit at least 15 different types of movement. It's a busy life in there.
 
 ## 🤰 What Mom Might Be Feeling
-As the first trimester draws to a close, many women feel a shift — from anxious survival mode to genuine excitement. The Mom might start looking at baby things, thinking about names more seriously, or imagining the nursery. The constant nausea may be lifting, and energy is slowly returning. This is also when many couples decide to share the news with the wider world. Let yourselves enjoy this moment.
+With the first trimester nearing its end (one more week to go), many women feel a shift — from anxious survival mode to genuine excitement. The Mom might start looking at baby things, thinking about names more seriously, or imagining the nursery. The constant nausea may be lifting, and energy is slowly returning. This is also when many couples decide to share the news with the wider world. Let yourselves enjoy this moment.
 
 ## 🍽️ Nutrition Tip
 If the Mom's appetite is returning with a vengeance, help her steer cravings toward nutrient-dense options. Craving sweets? Dark chocolate (70% or higher) provides iron, magnesium, and antioxidants. Craving salt? Roasted chickpeas with sea salt pack protein and crunch. Craving carbs? Whole grain bread with avocado and a fried egg covers healthy fats, fiber, and protein. The goal isn't to suppress cravings — it's to find satisfying versions that also nourish.
@@ -34,4 +34,4 @@ With a baby on the way, it's worth reviewing life insurance coverage for both pa
 Tonight, if the Mom is open to it, place your hand gently on her lower abdomen. Close your eyes together. Take three deep breaths. And silently appreciate what her body is doing — building a human, organ by organ, cell by cell. The simple moments are often the ones that matter most.
 
 ## 🕯️ Shabbat Couple Activity
-The "First Trimester in Review" conversation: over dinner, look back at the last 12 weeks together. What was the hardest day? The funniest moment? The scariest? The most beautiful? What have you learned about each other? You survived the first trimester — and that's worth celebrating.
+The "First Trimester in Review" conversation: over dinner, look back at the last 12 weeks together. What was the hardest day? The funniest moment? The scariest? The most beautiful? What have you learned about each other? You're one week away from closing out the first trimester — and that's worth celebrating.

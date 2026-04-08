@@ -34,7 +34,7 @@ Make Shabbat prep easy this week. If cooking, choose something simple (like the 
 "Let's play a game: each of us guess — boy or girl, hair color, eye color, who the baby will look like more, what time of day they'll be born. Write it down and seal it. We'll open our predictions after the birth."
 
 ## 🎉 Fun Fact
-Your baby weighs about 3 pounds now — roughly the same as a large bag of flour. But unlike a bag of flour, your baby can kick, roll, hiccup, suck their thumb, dream, and respond to your voice. When you think about the journey from a microscopic fertilized egg to a 3-pound, fully-formed little person in just 30 weeks, it's nothing short of miraculous.
+Your baby weighs about 3 pounds now — roughly the same as a large bag of flour. But unlike a bag of flour, your baby can kick, roll, hiccup, suck their thumb, dream, and respond to your voice. When you think about the journey from a microscopic fertilized egg to a 3-pound, fully-formed little person in just 28 weeks since conception, it's nothing short of miraculous.
 
 ## 💰 Financial Tip
 This is a good time to review your health insurance coverage for the birth and postpartum period. In Israel, the birth itself is covered by the national health insurance system, but there may be options for upgraded rooms, specific hospitals, or additional services that require supplementary insurance (Biituach Mashlim). Check what your current plan covers, whether you need to pre-register at the hospital, and whether there are any out-of-pocket costs to expect. Better to know now than to be surprised later.

@@ -1,5 +1,5 @@
 ---
-subject: "Week 27, Day 1 — Welcome to the Third Trimester! 🎉"
+subject: "Week 27, Day 1 — The Final Week of the Second Trimester 🎉"
 week: 27
 day: 1
 ---
@@ -7,7 +7,7 @@ day: 1
 # Week 27, Day 1
 
 ## 🌒 This Week at a Glance
-Welcome to the third trimester — the home stretch. Your baby is about 14.4 inches long and weighs around 2 pounds, roughly the size of a cauliflower. The brain is surging with new development, the eyes can open and close, and sleep-wake cycles are becoming more regular. Hiccups are common this week — tiny rhythmic pulses that the Mom may start to recognize as part of the baby's daily routine. Braxton Hicks contractions may also make an appearance, but these are just practice contractions and nothing to worry about.
+Welcome to week 27 — the final week of the second trimester, with the home stretch just one week away. Your baby is about 14.4 inches long and weighs around 2 pounds, roughly the size of a cauliflower. The brain is surging with new development, the eyes can open and close, and sleep-wake cycles are becoming more regular. Hiccups are common this week — tiny rhythmic pulses that the Mom may start to recognize as part of the baby's daily routine. Braxton Hicks contractions may also make an appearance, but these are just practice contractions and nothing to worry about.
 
 ## 🎉 Fun Fact
 Your baby can already recognize both your voice and the Mom's voice. Babies at this stage show different heart rate patterns when they hear familiar voices versus unfamiliar ones. So keep talking and reading to that belly — your baby is already getting to know you.
@@ -27,13 +27,13 @@ The baby's brain is also hungry for DHA, the omega-3 fatty acid that's the prima
 Third-trimester exercise is about maintaining comfort and stamina. Walking remains one of the best options, and swimming is fantastic — the buoyancy takes pressure off joints and the back. Gentle prenatal yoga can help with flexibility and breathing techniques useful during labor. The key is listening to the body and slowing down when something feels off.
 
 ## 💡 Tip for Dad
-The third trimester can feel overwhelming — suddenly birth feels very real and close. Take a breath. You have about 13 weeks to go, and you'll be more ready than you think. This week, consider signing up for a childbirth preparation class together if you haven't already. They're genuinely helpful — not just for her, but for you too.
+The third trimester starts next week and can feel overwhelming — suddenly birth feels very real and close. Take a breath. You have about 13 weeks to go, and you'll be more ready than you think. This week, consider signing up for a childbirth preparation class together if you haven't already. They're genuinely helpful — not just for her, but for you too.
 
 ## 💬 Conversation Starter
-"Now that we're in the third trimester, what feels most exciting to you? And what feels scariest? Let's talk about both."
+"With the third trimester one week away, what feels most exciting to you? And what feels scariest? Let's talk about both."
 
 ## 🤔 Weekly Q&A
 **Question of the week:** What exactly are Braxton Hicks contractions, and how can you tell them apart from real labor contractions? (Answer coming tomorrow!)
 
 ## 👫 Couple Activity
-**Third Trimester Kickoff Date:** Celebrate entering the final stretch. Order your favorite takeout, lay out a blanket on the living room floor, and have a picnic at home. While you eat, each of you write down three things you're most looking forward to about becoming parents. Share them — and keep the notes. You'll love reading them after the baby arrives.
+**Second Trimester Send-Off Date:** Celebrate the home stretch coming into view. Order your favorite takeout, lay out a blanket on the living room floor, and have a picnic at home. While you eat, each of you write down three things you're most looking forward to about becoming parents. Share them — and keep the notes. You'll love reading them after the baby arrives.

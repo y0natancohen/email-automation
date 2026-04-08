@@ -10,7 +10,7 @@ day: 7
 As Week 25 comes to a close, your baby is 1.5 pounds of increasingly complex human being. The startle reflex is active, the nostrils are open, the skin is filling out, and the brain is developing at its fastest rate yet. Every day, millions of new neural connections are forming, turning raw brain cells into networks capable of processing the world. Your baby is a sensory being now — hearing, tasting, feeling, balancing, and possibly even smelling. The transformation from a collection of cells to a conscious being is well underway.
 
 ## 🤰 What Mom Might Be Feeling
-Saturday rest is essential. Your partner is closing in on the end of the second trimester, and her body has been working incredibly hard. She might feel the weight of it today — a general heaviness and tiredness that even a good night's sleep doesn't fully resolve. This is normal. The third trimester will bring new challenges, so encourage her to soak in whatever comfort and rest she can find right now. Napping without guilt, reading for pleasure, or simply sitting with a warm cup of tea — all legitimate Saturday activities for a 25-weeks-pregnant woman.
+Saturday rest is essential. Your partner is in the back stretch of the second trimester, and her body has been working incredibly hard. She might feel the weight of it today — a general heaviness and tiredness that even a good night's sleep doesn't fully resolve. This is normal. The third trimester will bring new challenges, so encourage her to soak in whatever comfort and rest she can find right now. Napping without guilt, reading for pleasure, or simply sitting with a warm cup of tea — all legitimate Saturday activities for a 25-weeks-pregnant woman.
 
 ## 🍽️ Nutrition Tip
 **Weekend meal prep idea:** Spend 30 minutes preparing grab-and-go snacks and meals for the week. Suggestions:
@@ -29,7 +29,7 @@ Rest day. A slow walk if she's up for it, gentle stretching if her body is calli
 Reflect on the past five weeks (21-25). You've crossed the viability milestone, learned about your baby's developing senses, started thinking about birth preferences and support teams, and watched your partner's body transform. How do you feel? Take 5 minutes to write in a journal or even just your phone notes: What surprised you? What are you proud of? What worries you? What are you most excited about? This regular check-in keeps you emotionally present rather than running on autopilot.
 
 ## 💬 Conversation Starter
-"We're about to enter the third trimester. What's your one word for how you're feeling about it?"
+"The third trimester is a few weeks away. What's your one word for how you're feeling about it?"
 
 ## 🎉 Fun Fact
 Your baby's brain has been growing so rapidly that if it continued at this rate outside the womb, it would be the size of a watermelon by the time your baby is one year old. Fortunately, brain growth slows down after birth, but the first year of life is still a period of incredible neural development. By age 3, a child's brain is about 80% of adult size — most of the growth happens before the kid can even string a sentence together.

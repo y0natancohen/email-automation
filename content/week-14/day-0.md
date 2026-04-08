@@ -1,5 +1,5 @@
 ---
-subject: "Week 14, Day 1 — Your Baby Can Squint, Frown, and Grimace: Lemon-Sized and Full of Personality 🍋"
+subject: "Week 14, Day 1 — Welcome to the Second Trimester! Hello, Lemon Baby 🍋"
 week: 14
 day: 1
 ---
@@ -7,7 +7,9 @@ day: 1
 # Week 14, Day 1
 
 ## 🌒 This Week at a Glance
-Welcome to week 14! Your baby is now the size of a lemon (~3.4 inches, 8.7 cm) and weighs about 43 grams — nearly triple the weight from just two weeks ago. Here's what's unfolding this week:
+Welcome to week 14 — the official start of the second trimester. Often called the "golden trimester," this stretch is known for less nausea, more energy, and the exciting milestones of feeling kicks and watching the belly grow. You've earned this.
+
+Your baby is now the size of a lemon (~3.4 inches, 8.7 cm) and weighs about 43 grams — nearly triple the weight from just two weeks ago. Here's what's unfolding this week:
 - Your baby can now squint, frown, and grimace — real facial movements
 - The roof of the mouth (palate) is fully formed
 - Lanugo — a fine, downy hair — is starting to cover the body
@@ -51,7 +53,9 @@ This gives you healthy fats (avocado), protein and choline (eggs), and a beautif
 Start the week with a 25-minute walk at a brisk pace. Now that energy is returning, try to establish a consistent walking routine — ideally 5 days per week. Walking is the foundation of prenatal fitness: it's safe for all trimesters, requires no equipment, and provides cardiovascular, muscular, and mental health benefits. If the weather's good, walk outside. Fresh air and sunlight add their own benefits (vitamin D, mood regulation, improved sleep). Track your walks if it helps with motivation.
 
 ## 💡 Tip for Dad
-As the belly becomes visible, your partner might receive comments from strangers and acquaintances. Some will be lovely. Some will be weird. Some will be unwanted. ("You're so big! Are you sure it's not twins?" "You're so small! Are you eating enough?") Be her buffer. If someone says something that bothers her, validate her feelings later. "That was weird. Are you okay?" goes a long way. Don't dismiss her reactions.
+Now that the second trimester has officially begun, this is a great time to start planning a "babymoon" — a trip or getaway just for the two of you before the baby arrives. The second trimester (especially weeks 14-28) is the ideal window for travel: energy is up, nausea is down, and the belly isn't yet unwieldy. It doesn't have to be elaborate — a weekend at the Dead Sea, a cabin in the Galilee, or a nice hotel in a nearby city all count.
+
+Also, as the belly becomes visible, your partner might receive comments from strangers and acquaintances. Some will be lovely. Some will be weird. Some will be unwanted. ("You're so big! Are you sure it's not twins?" "You're so small! Are you eating enough?") Be her buffer. If someone says something that bothers her, validate her feelings later. "That was weird. Are you okay?" goes a long way. Don't dismiss her reactions.
 
 ## 💬 Conversation Starter
 "What kind of home environment do you want our child to grow up in? Quiet or lively? Structured or free-flowing? Lots of visitors or more private?" These aren't just abstract preferences — they shape real daily decisions about routines, social life, and boundaries.
